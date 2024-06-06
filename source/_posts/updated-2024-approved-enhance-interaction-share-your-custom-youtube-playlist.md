@@ -1,0 +1,716 @@
+---
+title: "\"[Updated] 2024 Approved  Enhance Interaction  Share Your Custom YouTube Playlist\""
+date: 2024-06-03 13:34:43
+updated: 2024-06-05 11:59:57
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Enhance Interaction: Share Your Custom YouTube Playlist\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Enhance Interaction: Share Your Custom YouTube Playlist\""
+keywords: "\"Custom Playlists Sharing,Interactive YouTube Engagement,Personalized Video Lists,Social Media Content Distribution,Enhanced Video Discovery,User-Generated Video Selections,Shareable YouTube Collections\""
+thumbnail: https://www.lifewire.com/thmb/mDhxV8MNRpKsVw-MZy5n6Aic8pw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/samsung-soundbar-dolby-atmos-569f1fdd925e46ab8b3e1f51d95e1e6c.jpg
+---
+
+## Enhance Interaction: Share Your Custom YouTube Playlist
+
+YouTube has become the most popular video-sharing platform on the internet, with users from all over the world uploading and watching videos daily. You can find content on just about any topic you can think of on YouTube, making it an excellent resource for entertainment and education.
+
+But what if you've created a playlist of your favorite videos and think your friends or family would enjoy it? To help you with this, we've put together an extensive guide on **how to** **share a YouTube playlist** on your computer and mobile devices.
+
+So, let's get started with our guide without any further delay!
+
+## Why Doesn't The Share Function In The Playlist Work?
+
+Firstly, let's figure out why the "Share" function doesn't work. The "Share" function in the playlist does not work because it is set to "private," and YouTube doesn't allow you to share them. To fix this, you must first change the privacy settings of the playlist to "public" in the following way:
+
+Step1 Head to the [YouTube](https://www.youtube.com/) website using a browser on your PC and sign in to your account.
+
+Step2
+
+* **Click** the three-line **"Menu"** icon at the top-left of your screen.
+* Go to **"Library."**
+* Scroll down to the **"Playlist"** section.
+
+![changing playlist visibility](https://images.wondershare.com/filmora/article-images/2023/03/changing-playlist-visibility.png)
+
+Step3 Select your playlist labeled as **"Private."** On the next page, click the **"Private"** option in the playlist details section and select **"Public"** to change the visibility of your playlist.
+
+Once the privacy setting has been changed, the **"share"** function will work as intended.
+
+![making youtube playlist public](https://images.wondershare.com/filmora/article-images/2023/03/making-youtube-playlist-public.png)
+
+## How To Share The YouTube Playlist?
+
+If you want to share the playlist on YouTube using your computer or mobile device, read the instructions below carefully:
+
+### 1\. For Computers
+
+Here are four different ways to share your YouTube playlist using your laptop or desktop computer:
+
+##### How To Share Your Own YouTube Playlist With A Link To View?
+
+Sharing your YouTube playlist is a perfect way to increase the number of views and subscribers, allowing your viewers to see all the videos in one place.
+
+This is especially helpful if you have a series of videos that you want viewers to watch. Here are the step-by-step instructions for achieving this task:
+
+Step1 Visit the **YouTube website** using a browser on your computer and sign in to your account. Click your **Profile** in the top-right of the screen and select **"Your Channel"** from the drop-down menu, which will take you to your YouTube channel's dashboard.
+
+![accessing youtube channel to share playlist](https://images.wondershare.com/filmora/article-images/2023/03/accessing-youtube-channel-to-share-playlist.png)
+
+Step2 Next, go to the **"Playlist"** tab and click the **"View Full Playlist"** option under your playlist to access it.
+
+![sharing own youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/sharing-own-youtube-playlist.png)
+
+Step3 Finally, click the **"Share"** icon in the playlist's details section, and a window will pop up. From here, you can either click **"Copy"** to save the link to your clipboard or share the playlist directly to WhatsApp, Twitter, Facebook, Email, KakaoTalk, Reddit, and more platforms.
+
+##### How To Share Someone Else's YouTube Playlist With A Link To View?
+
+If you want to share someone else's YouTube playlist with a link, do the following steps in sequence:
+
+Step1 In the first step, launch your preferred browser, visit the **YouTube** website, and sign in to your account using your credentials.
+
+Step2 On the left side of the website's main interface, click the **"Library"** option and scroll down to the **Playlists** section.
+
+![sharing others youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/sharing-others-youtube-playlist.png)
+
+Step3 Under the **"Playlists"** section, click on the playlist you want to share. Now, click the **"Share"** icon in the playlist's details section, and a pop-up window will appear. In the **"Share"** section, copy the URL and paste it into an email, message, or social media post to share.
+
+That's all there is to it! Anyone you've shared the link with can watch the entire playlist.
+
+##### How To Share The Playlist While Watching?
+
+We all love using YouTube for research or just scrolling through videos to pass the time, and we often share our favorite videos with others. What if you wish to share a whole YouTube playlist while watching it?
+
+Fortunately, there's a simple and quick way to do this, and here are the step-by-step instructions for this method.
+
+Step1 In the first step, head to the **YouTube** website using a browser and use the search bar to access the playlist.
+
+![sharing youtube playlist while watching](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-while-watching.png)
+
+Step2 Click the playlist to start watching it. Next, click the **playlist title** in the grey box on the right-hand side.
+
+Step3 On the playlist page, click the **"Share"** icon in the details section, and a window will pop-up. Click **"Copy"** to save the link or directly share the playlist to social platforms.
+
+That's it! The recipient will now be able to watch the entire YouTube playlist you've shared.
+
+##### How To Share A YouTube Playlist With A Link To Collaborate
+
+Through the "Collaborate on playlists" feature, YouTube allows you to add friends to your playlist, who can then add videos to it.
+
+Here's how you can share a YouTube playlist with a link to collaborate with your friends:
+
+Step1 In the first step, go to the **YouTube** website using your preferred browser, and sign in to your channel's [Gmail](https://mail.google.com/mail/) account using your email address and password.
+
+Step2 Click your **"Profile"** icon, choose the **"Your Channel"** option from the drop-down menu and go to the **"Playlist."**
+
+Step3 In the next step, click the **"View Full Playlist"** option under your preferred playlist. This will take you to your playlist page.
+
+Step4 In the details section of your YouTube playlist on the playlist page, click the **three dots (ellipsis)** icon and select the **"Collaborate"** option.
+
+![sharing youtube playlist link to collaborate](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-link-to-collaborate.png)
+
+Step5 A pop-up window will appear on your screen. Toggle on the **"Collaborators can add videos to this playlist"** option to enable it, and the **"Allow new collaborators"** option will appear.
+
+Toggle on the **"Allow new collaborators"** option, click **"Copy"** to save the URL to your clipboard, and click **"Done"** to apply the changes.
+
+![allowing collaboration on youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/allowing-collaboration-on-youtube-playlist.png)
+
+That's about it! You can now share the playlist link with your friends, who can now add videos to it.
+
+### 2\. For iOS and Android
+
+If you want to quickly share a YouTube playlist using your iOS or Android device, follow these instructions step-by-step:
+
+![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+**Note:** The method of sharing the YouTube playlist on an iOS device is the same as mentioned above.
+
+Step1 Since most devices have YouTube already installed, locate the [YouTube app](https://play.google.com/store/apps/details?id=com.google.android.youtube&hl=en&gl=US) in your device's app drawer and launch it.
+
+Step2 On the app's main interface/Home screen, tap the **"Library"** option at the bottom right corner of your device's screen.
+
+Step3 Now, scroll down to the **"Playlists"** section and open the playlist you wish to share with your friends.
+
+![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
+
+Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
+
+## Bonus: Do You Want To Create Your Own YouTube Videos?
+
+We hope you have found the solution to share your YouTube Playlist. Supposing you are a common YouTube user and like to share the fantastic things you found on this platform, are you interested in making a YouTube video by yourself? If yes, please watch the video below to start editing your own videos with a user-friendly video editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With it, you can create your video with ease:
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+## Conclusion
+
+In this comprehensive guide, we've explored why the share function in the playlist is not working and **how to share a YouTube playlist** using your computer and mobile device.
+
+Step1 Since most devices have YouTube already installed, locate the [YouTube app](https://play.google.com/store/apps/details?id=com.google.android.youtube&hl=en&gl=US) in your device's app drawer and launch it.
+
+Step2 On the app's main interface/Home screen, tap the **"Library"** option at the bottom right corner of your device's screen.
+
+Step3 Now, scroll down to the **"Playlists"** section and open the playlist you wish to share with your friends.
+
+![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
+
+Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
+
+## Bonus: Do You Want To Create Your Own YouTube Videos?
+
+We hope you have found the solution to share your YouTube Playlist. Supposing you are a common YouTube user and like to share the fantastic things you found on this platform, are you interested in making a YouTube video by yourself? If yes, please watch the video below to start editing your own videos with a user-friendly video editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With it, you can create your video with ease:
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+## Conclusion
+
+In this comprehensive guide, we've explored why the share function in the playlist is not working and **how to share a YouTube playlist** using your computer and mobile device.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+## Step-by-Step Guide to Iconic YouTube Beginnings: Method A & B
+
+# 2024 | How to Make a YouTube Intro Video？
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Be it YouTube or any other streaming channel, or even for selling your videos on any e-commerce website, intros play a vital role in your brand promotion, and creating them is not as complicated as it sounds either.
+
+The following sections describe in detail **how to make a YouTube intro** with Wondershare Filmora video editor, and keep it safe so it can be re-used easily in all your creations to maintain consistency and to give your brand a unique identity.
+
+## Part 1: How to Make a YouTube Intro Video with Filmora
+
+With Wondershare Filmora, you can create your custom intros from scratch, i.e., even if you don’t have an existing image or footage to start with. You can follow the method given below to learn **how to make YouTube intro** with Filmora:
+
+### Step 1: Add Intro Background to Filmora
+
+Launch Wondershare Filmora, go to **Media** tab at the top, select the **Sample Colors** category from the left pane.
+
+Notice all the existing solid and gradient colors in the **Media** library in the right, hover the mouse over the tile of the color you want to use as a background, and click the **+** icon that appears in the center to add it to the timeline.
+
+![use sample colors as intro background](https://images.wondershare.com/filmora/article-images/sample-colors-media-in-filmora9.jpg)
+
+**Note:** The default duration of such solids is 5 seconds. You can increase or decrease this time by dragging the right handle of track in the timeline.
+
+Alternatively, you can also use your own background image or video clip by selecting the **Project Media** category from the left pane, clicking anywhere inside the **Media** window, and then importing your favorite media file to Filmora. After importing, you can follow the procedure given above to add it to the timeline.
+
+### Step 2: Select and Add Audio/Sound Effect to YouTube Intro
+
+With audio in the YouTube intro, your video will be more recognizable. If you have watched PewDiePie ‘s video, you’ll find that even though he changed the images on the intro often, he keeps the music and sound the same in the intro.
+
+![Filmora9 Audio Library](https://images.wondershare.com/filmora/article-images/filmora9-audio-library.jpg)
+
+In Filmora, you can use the music and sound effect in the inbuilt audio library, double click the audio thumbnail from the library to listen to the soundtrack.
+
+Repeat the process until you find the background music or sound effect that you can use in the intro. Once found, drag and drop it to the audio track below the video.
+
+![Filmora9 Sound Effect Library](https://images.wondershare.com/filmora/article-images/filmora9-sound-effects-audio-library.jpg)
+
+Note: You should keep the background and the audio at the same duration. For more details about audio editing in Filmora, please check this guide about [how to edit audio](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 3: Add Text/Logo to Intro Video
+
+In the intro video, you can add your channel name, company name, or other branding elements for brand awareness consideration.
+
+Click **Titles** tab, hover the mouse over the tile with the text you want to use, and then drag and drop it to the track above the video.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+To customize, double-click the title track in the timeline, use the new window that appears in the upper-left area of the interface to change, format, and animate the text as needed, and click **OK** from the bottom-right corner of the library.
+
+Also, you need to adjust the position and duration of the title to get a better view.
+
+In the intro video, it is recommended to [add your logo](https://tools.techidaily.com/wondershare/filmora/download/) or slogan as well. To add your logo, drag and drop it to the track above the video, and adjust its position and size. For more details, you can check the guide about [How to Add Photo or Video to Watermark](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 4: Add Effects to YouTube Intro
+
+Go to **Effects** tab, choose a category from the top-left pane, and click and drag your preferred effect from the **Effects** library to the timeline.
+
+Adjust the playback duration by dragging the right handle of the track in the timeline as explained above. Optionally, double-click the **Effects** track to customize the appearance as needed.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Step 5: Export the Intro and Add to Shared Media
+
+Once you are done creating your YouTube intro with all the required ingredients, click **EXPORT** from the top-center area of the interface, go to the **Local** tab on the **Export** box, choose your preferred output format from the left pane (the most common and widely used is **MP4**), adjust other preferences like destination location, resolution, framerate, etc. from the right pane of the box, and click **EXPORT** to export the YouTube intro.
+
+Once exported, back on the main interface, select **Media** again from the standard toolbar, select the **Shared Media** container from the left pane, click anywhere inside the **Media** library, and import the YouTube intro video you just created to **Shared Media** so it can be reused every time you create a new video for the series.
+
+![Filmora9 Shared Media](https://images.wondershare.com/filmora/article-images/shared-media-filmora9.jpg)
+
+Also, you can save the project, and then revise the element, effects or text to make a YouTube intro vibration.
+
+You can find there are many video tutorials about how to use Filmora to make a YouTube intro, and below is one for you to have a quick glance.
+
+## Part 2: How to Make YouTube Intros with Templates
+
+If the turnaround time of your project is about to end, and you need to hustle up, you can always use pre-built templates that not only expedite your creation process, they also look more professional because they are designed by the experts who already have decades of experience in the industry.
+
+Besides the pre-programmed templates and effects in Filmora, you can find more visual effect packs in the effect store Filmstock .
+
+You can learn **how to make YouTube intro video in Filmora** with a template downloaded from Filmstock.
+
+### Step 1: Visit Filmora Effects Page on Filmstock
+
+Visit [https://filmstock.wondershare.com/](https://tools.techidaily.com/wondershare/filmora/download/) and log in with the same WSID that you used on Filmora, and then click **EFFECTS** from the top of the webpage. Since Filmstock also provides templates for After Effects, you should select **Filmora Effects** to access the entire **Filmora Effects** library.
+
+![Filmstock Intro Effect for Filmora9](https://images.wondershare.com/filmora/article-images/Filmstock-intro-templates-collection.jpg)
+
+You can search the effects that you want in the Search bar, here, since I’m looking for effects for YouTube intro, I just enter “intro”. The effects related to intro will be displayed like below.
+
+### Step 2: Download Video Effect Packs for Filmora
+
+Click your preferred intro effect template, click **Download Now** and follow the on-screen instructions to obtain and download the template.
+
+After downloading, you will see these them in red circles under titles, transitions, or filters, based on the elements included in this effect pack. You can then add this downloaded titles or transitions to the intro video.
+
+![Filmstock Dynamic Intro](https://images.wondershare.com/filmora/article-images/dynamic-intro-templates.jpg)
+
+Looking for an online solution? Check the list of [Top 10 Free Online YouTube Intro Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 3: Creative Intro Makers Made with Filmora (Video Tutorial Included)
+
+Both the above processes on **how to make YouTube intro video** are helpful as long as you use effective titles, decent effects, and extremely appealing color combinations. While the first method gives you full control over the creation as you can use all your imaginations to prepare one, the second method saves your time and yet lets you come up with a professionally-looking intro clip.
+
+**Below is a video tutorial from YouTuber Nash. He demonstrated how to create a YouTube Intro with the Sample Colors, Titles, filters and sound effects.**
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### FAQs About YouTube Intro Video Making
+
+* **1\. What is a YouTube Intro Video?**
+
+A YouTube intro video is 5 seconds to 7 seconds short motion clip that comprises your company name and logo. Such intros help in your brand promotion and give any film or episode that follows them a unique identity. This allows audiences to recognize your organization, and with regular appearances, you can establish strong goodwill among your customers.
+
+* **2\. What Should I Put in a YouTube Intro Video?**
+
+A YouTube intro video should have your YouTube channel name, an effective and well-formatted text, brand logo, background music, effects, and a slight and simple animation.
+
+**Conclusion**
+
+To learn **how to make a YouTube intro** is easy, and things can get even simpler if you are using an efficient and robust post-production software like Wondershare Filmora, which not only allows you to create such clips from the scratch, it also enables you to access Filmstock’ online library to download more fantastic templates in order to expedite your workflow.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Be it YouTube or any other streaming channel, or even for selling your videos on any e-commerce website, intros play a vital role in your brand promotion, and creating them is not as complicated as it sounds either.
+
+The following sections describe in detail **how to make a YouTube intro** with Wondershare Filmora video editor, and keep it safe so it can be re-used easily in all your creations to maintain consistency and to give your brand a unique identity.
+
+## Part 1: How to Make a YouTube Intro Video with Filmora
+
+With Wondershare Filmora, you can create your custom intros from scratch, i.e., even if you don’t have an existing image or footage to start with. You can follow the method given below to learn **how to make YouTube intro** with Filmora:
+
+### Step 1: Add Intro Background to Filmora
+
+Launch Wondershare Filmora, go to **Media** tab at the top, select the **Sample Colors** category from the left pane.
+
+Notice all the existing solid and gradient colors in the **Media** library in the right, hover the mouse over the tile of the color you want to use as a background, and click the **+** icon that appears in the center to add it to the timeline.
+
+![use sample colors as intro background](https://images.wondershare.com/filmora/article-images/sample-colors-media-in-filmora9.jpg)
+
+**Note:** The default duration of such solids is 5 seconds. You can increase or decrease this time by dragging the right handle of track in the timeline.
+
+Alternatively, you can also use your own background image or video clip by selecting the **Project Media** category from the left pane, clicking anywhere inside the **Media** window, and then importing your favorite media file to Filmora. After importing, you can follow the procedure given above to add it to the timeline.
+
+### Step 2: Select and Add Audio/Sound Effect to YouTube Intro
+
+With audio in the YouTube intro, your video will be more recognizable. If you have watched PewDiePie ‘s video, you’ll find that even though he changed the images on the intro often, he keeps the music and sound the same in the intro.
+
+![Filmora9 Audio Library](https://images.wondershare.com/filmora/article-images/filmora9-audio-library.jpg)
+
+In Filmora, you can use the music and sound effect in the inbuilt audio library, double click the audio thumbnail from the library to listen to the soundtrack.
+
+Repeat the process until you find the background music or sound effect that you can use in the intro. Once found, drag and drop it to the audio track below the video.
+
+![Filmora9 Sound Effect Library](https://images.wondershare.com/filmora/article-images/filmora9-sound-effects-audio-library.jpg)
+
+Note: You should keep the background and the audio at the same duration. For more details about audio editing in Filmora, please check this guide about [how to edit audio](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 3: Add Text/Logo to Intro Video
+
+In the intro video, you can add your channel name, company name, or other branding elements for brand awareness consideration.
+
+Click **Titles** tab, hover the mouse over the tile with the text you want to use, and then drag and drop it to the track above the video.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+To customize, double-click the title track in the timeline, use the new window that appears in the upper-left area of the interface to change, format, and animate the text as needed, and click **OK** from the bottom-right corner of the library.
+
+Also, you need to adjust the position and duration of the title to get a better view.
+
+In the intro video, it is recommended to [add your logo](https://tools.techidaily.com/wondershare/filmora/download/) or slogan as well. To add your logo, drag and drop it to the track above the video, and adjust its position and size. For more details, you can check the guide about [How to Add Photo or Video to Watermark](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 4: Add Effects to YouTube Intro
+
+Go to **Effects** tab, choose a category from the top-left pane, and click and drag your preferred effect from the **Effects** library to the timeline.
+
+Adjust the playback duration by dragging the right handle of the track in the timeline as explained above. Optionally, double-click the **Effects** track to customize the appearance as needed.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Step 5: Export the Intro and Add to Shared Media
+
+Once you are done creating your YouTube intro with all the required ingredients, click **EXPORT** from the top-center area of the interface, go to the **Local** tab on the **Export** box, choose your preferred output format from the left pane (the most common and widely used is **MP4**), adjust other preferences like destination location, resolution, framerate, etc. from the right pane of the box, and click **EXPORT** to export the YouTube intro.
+
+Once exported, back on the main interface, select **Media** again from the standard toolbar, select the **Shared Media** container from the left pane, click anywhere inside the **Media** library, and import the YouTube intro video you just created to **Shared Media** so it can be reused every time you create a new video for the series.
+
+![Filmora9 Shared Media](https://images.wondershare.com/filmora/article-images/shared-media-filmora9.jpg)
+
+Also, you can save the project, and then revise the element, effects or text to make a YouTube intro vibration.
+
+You can find there are many video tutorials about how to use Filmora to make a YouTube intro, and below is one for you to have a quick glance.
+
+## Part 2: How to Make YouTube Intros with Templates
+
+If the turnaround time of your project is about to end, and you need to hustle up, you can always use pre-built templates that not only expedite your creation process, they also look more professional because they are designed by the experts who already have decades of experience in the industry.
+
+Besides the pre-programmed templates and effects in Filmora, you can find more visual effect packs in the effect store Filmstock .
+
+You can learn **how to make YouTube intro video in Filmora** with a template downloaded from Filmstock.
+
+### Step 1: Visit Filmora Effects Page on Filmstock
+
+Visit [https://filmstock.wondershare.com/](https://tools.techidaily.com/wondershare/filmora/download/) and log in with the same WSID that you used on Filmora, and then click **EFFECTS** from the top of the webpage. Since Filmstock also provides templates for After Effects, you should select **Filmora Effects** to access the entire **Filmora Effects** library.
+
+![Filmstock Intro Effect for Filmora9](https://images.wondershare.com/filmora/article-images/Filmstock-intro-templates-collection.jpg)
+
+You can search the effects that you want in the Search bar, here, since I’m looking for effects for YouTube intro, I just enter “intro”. The effects related to intro will be displayed like below.
+
+### Step 2: Download Video Effect Packs for Filmora
+
+Click your preferred intro effect template, click **Download Now** and follow the on-screen instructions to obtain and download the template.
+
+After downloading, you will see these them in red circles under titles, transitions, or filters, based on the elements included in this effect pack. You can then add this downloaded titles or transitions to the intro video.
+
+![Filmstock Dynamic Intro](https://images.wondershare.com/filmora/article-images/dynamic-intro-templates.jpg)
+
+Looking for an online solution? Check the list of [Top 10 Free Online YouTube Intro Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 3: Creative Intro Makers Made with Filmora (Video Tutorial Included)
+
+Both the above processes on **how to make YouTube intro video** are helpful as long as you use effective titles, decent effects, and extremely appealing color combinations. While the first method gives you full control over the creation as you can use all your imaginations to prepare one, the second method saves your time and yet lets you come up with a professionally-looking intro clip.
+
+**Below is a video tutorial from YouTuber Nash. He demonstrated how to create a YouTube Intro with the Sample Colors, Titles, filters and sound effects.**
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### FAQs About YouTube Intro Video Making
+
+* **1\. What is a YouTube Intro Video?**
+
+A YouTube intro video is 5 seconds to 7 seconds short motion clip that comprises your company name and logo. Such intros help in your brand promotion and give any film or episode that follows them a unique identity. This allows audiences to recognize your organization, and with regular appearances, you can establish strong goodwill among your customers.
+
+* **2\. What Should I Put in a YouTube Intro Video?**
+
+A YouTube intro video should have your YouTube channel name, an effective and well-formatted text, brand logo, background music, effects, and a slight and simple animation.
+
+**Conclusion**
+
+To learn **how to make a YouTube intro** is easy, and things can get even simpler if you are using an efficient and robust post-production software like Wondershare Filmora, which not only allows you to create such clips from the scratch, it also enables you to access Filmstock’ online library to download more fantastic templates in order to expedite your workflow.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Be it YouTube or any other streaming channel, or even for selling your videos on any e-commerce website, intros play a vital role in your brand promotion, and creating them is not as complicated as it sounds either.
+
+The following sections describe in detail **how to make a YouTube intro** with Wondershare Filmora video editor, and keep it safe so it can be re-used easily in all your creations to maintain consistency and to give your brand a unique identity.
+
+## Part 1: How to Make a YouTube Intro Video with Filmora
+
+With Wondershare Filmora, you can create your custom intros from scratch, i.e., even if you don’t have an existing image or footage to start with. You can follow the method given below to learn **how to make YouTube intro** with Filmora:
+
+### Step 1: Add Intro Background to Filmora
+
+Launch Wondershare Filmora, go to **Media** tab at the top, select the **Sample Colors** category from the left pane.
+
+Notice all the existing solid and gradient colors in the **Media** library in the right, hover the mouse over the tile of the color you want to use as a background, and click the **+** icon that appears in the center to add it to the timeline.
+
+![use sample colors as intro background](https://images.wondershare.com/filmora/article-images/sample-colors-media-in-filmora9.jpg)
+
+**Note:** The default duration of such solids is 5 seconds. You can increase or decrease this time by dragging the right handle of track in the timeline.
+
+Alternatively, you can also use your own background image or video clip by selecting the **Project Media** category from the left pane, clicking anywhere inside the **Media** window, and then importing your favorite media file to Filmora. After importing, you can follow the procedure given above to add it to the timeline.
+
+### Step 2: Select and Add Audio/Sound Effect to YouTube Intro
+
+With audio in the YouTube intro, your video will be more recognizable. If you have watched PewDiePie ‘s video, you’ll find that even though he changed the images on the intro often, he keeps the music and sound the same in the intro.
+
+![Filmora9 Audio Library](https://images.wondershare.com/filmora/article-images/filmora9-audio-library.jpg)
+
+In Filmora, you can use the music and sound effect in the inbuilt audio library, double click the audio thumbnail from the library to listen to the soundtrack.
+
+Repeat the process until you find the background music or sound effect that you can use in the intro. Once found, drag and drop it to the audio track below the video.
+
+![Filmora9 Sound Effect Library](https://images.wondershare.com/filmora/article-images/filmora9-sound-effects-audio-library.jpg)
+
+Note: You should keep the background and the audio at the same duration. For more details about audio editing in Filmora, please check this guide about [how to edit audio](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 3: Add Text/Logo to Intro Video
+
+In the intro video, you can add your channel name, company name, or other branding elements for brand awareness consideration.
+
+Click **Titles** tab, hover the mouse over the tile with the text you want to use, and then drag and drop it to the track above the video.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+To customize, double-click the title track in the timeline, use the new window that appears in the upper-left area of the interface to change, format, and animate the text as needed, and click **OK** from the bottom-right corner of the library.
+
+Also, you need to adjust the position and duration of the title to get a better view.
+
+In the intro video, it is recommended to [add your logo](https://tools.techidaily.com/wondershare/filmora/download/) or slogan as well. To add your logo, drag and drop it to the track above the video, and adjust its position and size. For more details, you can check the guide about [How to Add Photo or Video to Watermark](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 4: Add Effects to YouTube Intro
+
+Go to **Effects** tab, choose a category from the top-left pane, and click and drag your preferred effect from the **Effects** library to the timeline.
+
+Adjust the playback duration by dragging the right handle of the track in the timeline as explained above. Optionally, double-click the **Effects** track to customize the appearance as needed.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Step 5: Export the Intro and Add to Shared Media
+
+Once you are done creating your YouTube intro with all the required ingredients, click **EXPORT** from the top-center area of the interface, go to the **Local** tab on the **Export** box, choose your preferred output format from the left pane (the most common and widely used is **MP4**), adjust other preferences like destination location, resolution, framerate, etc. from the right pane of the box, and click **EXPORT** to export the YouTube intro.
+
+Once exported, back on the main interface, select **Media** again from the standard toolbar, select the **Shared Media** container from the left pane, click anywhere inside the **Media** library, and import the YouTube intro video you just created to **Shared Media** so it can be reused every time you create a new video for the series.
+
+![Filmora9 Shared Media](https://images.wondershare.com/filmora/article-images/shared-media-filmora9.jpg)
+
+Also, you can save the project, and then revise the element, effects or text to make a YouTube intro vibration.
+
+You can find there are many video tutorials about how to use Filmora to make a YouTube intro, and below is one for you to have a quick glance.
+
+## Part 2: How to Make YouTube Intros with Templates
+
+If the turnaround time of your project is about to end, and you need to hustle up, you can always use pre-built templates that not only expedite your creation process, they also look more professional because they are designed by the experts who already have decades of experience in the industry.
+
+Besides the pre-programmed templates and effects in Filmora, you can find more visual effect packs in the effect store Filmstock .
+
+You can learn **how to make YouTube intro video in Filmora** with a template downloaded from Filmstock.
+
+### Step 1: Visit Filmora Effects Page on Filmstock
+
+Visit [https://filmstock.wondershare.com/](https://tools.techidaily.com/wondershare/filmora/download/) and log in with the same WSID that you used on Filmora, and then click **EFFECTS** from the top of the webpage. Since Filmstock also provides templates for After Effects, you should select **Filmora Effects** to access the entire **Filmora Effects** library.
+
+![Filmstock Intro Effect for Filmora9](https://images.wondershare.com/filmora/article-images/Filmstock-intro-templates-collection.jpg)
+
+You can search the effects that you want in the Search bar, here, since I’m looking for effects for YouTube intro, I just enter “intro”. The effects related to intro will be displayed like below.
+
+### Step 2: Download Video Effect Packs for Filmora
+
+Click your preferred intro effect template, click **Download Now** and follow the on-screen instructions to obtain and download the template.
+
+After downloading, you will see these them in red circles under titles, transitions, or filters, based on the elements included in this effect pack. You can then add this downloaded titles or transitions to the intro video.
+
+![Filmstock Dynamic Intro](https://images.wondershare.com/filmora/article-images/dynamic-intro-templates.jpg)
+
+Looking for an online solution? Check the list of [Top 10 Free Online YouTube Intro Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 3: Creative Intro Makers Made with Filmora (Video Tutorial Included)
+
+Both the above processes on **how to make YouTube intro video** are helpful as long as you use effective titles, decent effects, and extremely appealing color combinations. While the first method gives you full control over the creation as you can use all your imaginations to prepare one, the second method saves your time and yet lets you come up with a professionally-looking intro clip.
+
+**Below is a video tutorial from YouTuber Nash. He demonstrated how to create a YouTube Intro with the Sample Colors, Titles, filters and sound effects.**
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### FAQs About YouTube Intro Video Making
+
+* **1\. What is a YouTube Intro Video?**
+
+A YouTube intro video is 5 seconds to 7 seconds short motion clip that comprises your company name and logo. Such intros help in your brand promotion and give any film or episode that follows them a unique identity. This allows audiences to recognize your organization, and with regular appearances, you can establish strong goodwill among your customers.
+
+* **2\. What Should I Put in a YouTube Intro Video?**
+
+A YouTube intro video should have your YouTube channel name, an effective and well-formatted text, brand logo, background music, effects, and a slight and simple animation.
+
+**Conclusion**
+
+To learn **how to make a YouTube intro** is easy, and things can get even simpler if you are using an efficient and robust post-production software like Wondershare Filmora, which not only allows you to create such clips from the scratch, it also enables you to access Filmstock’ online library to download more fantastic templates in order to expedite your workflow.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+Be it YouTube or any other streaming channel, or even for selling your videos on any e-commerce website, intros play a vital role in your brand promotion, and creating them is not as complicated as it sounds either.
+
+The following sections describe in detail **how to make a YouTube intro** with Wondershare Filmora video editor, and keep it safe so it can be re-used easily in all your creations to maintain consistency and to give your brand a unique identity.
+
+## Part 1: How to Make a YouTube Intro Video with Filmora
+
+With Wondershare Filmora, you can create your custom intros from scratch, i.e., even if you don’t have an existing image or footage to start with. You can follow the method given below to learn **how to make YouTube intro** with Filmora:
+
+### Step 1: Add Intro Background to Filmora
+
+Launch Wondershare Filmora, go to **Media** tab at the top, select the **Sample Colors** category from the left pane.
+
+Notice all the existing solid and gradient colors in the **Media** library in the right, hover the mouse over the tile of the color you want to use as a background, and click the **+** icon that appears in the center to add it to the timeline.
+
+![use sample colors as intro background](https://images.wondershare.com/filmora/article-images/sample-colors-media-in-filmora9.jpg)
+
+**Note:** The default duration of such solids is 5 seconds. You can increase or decrease this time by dragging the right handle of track in the timeline.
+
+Alternatively, you can also use your own background image or video clip by selecting the **Project Media** category from the left pane, clicking anywhere inside the **Media** window, and then importing your favorite media file to Filmora. After importing, you can follow the procedure given above to add it to the timeline.
+
+### Step 2: Select and Add Audio/Sound Effect to YouTube Intro
+
+With audio in the YouTube intro, your video will be more recognizable. If you have watched PewDiePie ‘s video, you’ll find that even though he changed the images on the intro often, he keeps the music and sound the same in the intro.
+
+![Filmora9 Audio Library](https://images.wondershare.com/filmora/article-images/filmora9-audio-library.jpg)
+
+In Filmora, you can use the music and sound effect in the inbuilt audio library, double click the audio thumbnail from the library to listen to the soundtrack.
+
+Repeat the process until you find the background music or sound effect that you can use in the intro. Once found, drag and drop it to the audio track below the video.
+
+![Filmora9 Sound Effect Library](https://images.wondershare.com/filmora/article-images/filmora9-sound-effects-audio-library.jpg)
+
+Note: You should keep the background and the audio at the same duration. For more details about audio editing in Filmora, please check this guide about [how to edit audio](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 3: Add Text/Logo to Intro Video
+
+In the intro video, you can add your channel name, company name, or other branding elements for brand awareness consideration.
+
+Click **Titles** tab, hover the mouse over the tile with the text you want to use, and then drag and drop it to the track above the video.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+To customize, double-click the title track in the timeline, use the new window that appears in the upper-left area of the interface to change, format, and animate the text as needed, and click **OK** from the bottom-right corner of the library.
+
+Also, you need to adjust the position and duration of the title to get a better view.
+
+In the intro video, it is recommended to [add your logo](https://tools.techidaily.com/wondershare/filmora/download/) or slogan as well. To add your logo, drag and drop it to the track above the video, and adjust its position and size. For more details, you can check the guide about [How to Add Photo or Video to Watermark](https://tools.techidaily.com/wondershare/filmora/download/).
+
+### Step 4: Add Effects to YouTube Intro
+
+Go to **Effects** tab, choose a category from the top-left pane, and click and drag your preferred effect from the **Effects** library to the timeline.
+
+Adjust the playback duration by dragging the right handle of the track in the timeline as explained above. Optionally, double-click the **Effects** track to customize the appearance as needed.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### Step 5: Export the Intro and Add to Shared Media
+
+Once you are done creating your YouTube intro with all the required ingredients, click **EXPORT** from the top-center area of the interface, go to the **Local** tab on the **Export** box, choose your preferred output format from the left pane (the most common and widely used is **MP4**), adjust other preferences like destination location, resolution, framerate, etc. from the right pane of the box, and click **EXPORT** to export the YouTube intro.
+
+Once exported, back on the main interface, select **Media** again from the standard toolbar, select the **Shared Media** container from the left pane, click anywhere inside the **Media** library, and import the YouTube intro video you just created to **Shared Media** so it can be reused every time you create a new video for the series.
+
+![Filmora9 Shared Media](https://images.wondershare.com/filmora/article-images/shared-media-filmora9.jpg)
+
+Also, you can save the project, and then revise the element, effects or text to make a YouTube intro vibration.
+
+You can find there are many video tutorials about how to use Filmora to make a YouTube intro, and below is one for you to have a quick glance.
+
+## Part 2: How to Make YouTube Intros with Templates
+
+If the turnaround time of your project is about to end, and you need to hustle up, you can always use pre-built templates that not only expedite your creation process, they also look more professional because they are designed by the experts who already have decades of experience in the industry.
+
+Besides the pre-programmed templates and effects in Filmora, you can find more visual effect packs in the effect store Filmstock .
+
+You can learn **how to make YouTube intro video in Filmora** with a template downloaded from Filmstock.
+
+### Step 1: Visit Filmora Effects Page on Filmstock
+
+Visit [https://filmstock.wondershare.com/](https://tools.techidaily.com/wondershare/filmora/download/) and log in with the same WSID that you used on Filmora, and then click **EFFECTS** from the top of the webpage. Since Filmstock also provides templates for After Effects, you should select **Filmora Effects** to access the entire **Filmora Effects** library.
+
+![Filmstock Intro Effect for Filmora9](https://images.wondershare.com/filmora/article-images/Filmstock-intro-templates-collection.jpg)
+
+You can search the effects that you want in the Search bar, here, since I’m looking for effects for YouTube intro, I just enter “intro”. The effects related to intro will be displayed like below.
+
+### Step 2: Download Video Effect Packs for Filmora
+
+Click your preferred intro effect template, click **Download Now** and follow the on-screen instructions to obtain and download the template.
+
+After downloading, you will see these them in red circles under titles, transitions, or filters, based on the elements included in this effect pack. You can then add this downloaded titles or transitions to the intro video.
+
+![Filmstock Dynamic Intro](https://images.wondershare.com/filmora/article-images/dynamic-intro-templates.jpg)
+
+Looking for an online solution? Check the list of [Top 10 Free Online YouTube Intro Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 3: Creative Intro Makers Made with Filmora (Video Tutorial Included)
+
+Both the above processes on **how to make YouTube intro video** are helpful as long as you use effective titles, decent effects, and extremely appealing color combinations. While the first method gives you full control over the creation as you can use all your imaginations to prepare one, the second method saves your time and yet lets you come up with a professionally-looking intro clip.
+
+**Below is a video tutorial from YouTuber Nash. He demonstrated how to create a YouTube Intro with the Sample Colors, Titles, filters and sound effects.**
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+#### FAQs About YouTube Intro Video Making
+
+* **1\. What is a YouTube Intro Video?**
+
+A YouTube intro video is 5 seconds to 7 seconds short motion clip that comprises your company name and logo. Such intros help in your brand promotion and give any film or episode that follows them a unique identity. This allows audiences to recognize your organization, and with regular appearances, you can establish strong goodwill among your customers.
+
+* **2\. What Should I Put in a YouTube Intro Video?**
+
+A YouTube intro video should have your YouTube channel name, an effective and well-formatted text, brand logo, background music, effects, and a slight and simple animation.
+
+**Conclusion**
+
+To learn **how to make a YouTube intro** is easy, and things can get even simpler if you are using an efficient and robust post-production software like Wondershare Filmora, which not only allows you to create such clips from the scratch, it also enables you to access Filmstock’ online library to download more fantastic templates in order to expedite your workflow.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
