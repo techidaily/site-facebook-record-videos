@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Key to Earning on YouTube  In-Depth Ad Revenue Guidebook\""
-date: 2024-05-29 16:14:30
-updated: 2024-05-31 10:54:16
+date: 2024-06-05T04:51:20.381Z
+updated: 2024-06-06T04:51:20.381Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes [Updated] The Key to Earning on YouTube: In-Depth Ad Revenue Guidebook\""
 excerpt: "\"This Article Describes [Updated] The Key to Earning on YouTube: In-Depth Ad Revenue Guidebook\""
 keywords: "\"YouTube Earnings Guide,Ad Revenue YouTube Tips,Boosting YouTube Profits,YouTube Monetization Strategies,Maximize YouTube Income,Earning on YouTube Video,YouTube Money-Making Hacks\""
-thumbnail: https://www.lifewire.com/thmb/laYr_bz-G81soaCEO-mXrkZKgVA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-80719175-5c801e67c9e77c0001fd5b12.jpg
+thumbnail: https://thmb.techidaily.com/aea87c60fd17e514ad5b0d00df16de19060de16b7b31b6165884880013291d16.jpg
 ---
 
 ## The Key to Earning on YouTube: In-Depth Ad Revenue Guidebook
@@ -196,3 +196,110 @@ Richard Bennett
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-earn-wisely-the-simple-triad-method-for-scrutinizing-youtube-profits-for-2024/"><u>[New] Earn Wisely  The Simple Triad Method for Scrutinizing YouTube Profits for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-video-quality-from-youtube-to-crisp-avis-format/"><u>[Updated] In 2024, Elevate Video Quality From YouTube to Crisp Avis Format</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-beginners-guide-to-pro-youtube-tech-for-2024/"><u>[New] Beginner's Guide to Pro YouTube Tech for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-audio-clarity-10-pro-tips-for-high-quality-recordings-for-2024/"><u>[New] Audio Clarity  10 Pro Tips for High-Quality Recordings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-creme-de-la-creativite-youtube-subscriber-list/"><u>[Updated] The Crème De La Créativité  YouTube Subscriber List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expanding-youtube-audience-through-perpetual-creative-commons-for-2024/"><u>[Updated] Expanding YouTube Audience Through Perpetual Creative Commons for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-pathway-to-pro-youtube-earnings-on-every-device-for-2024/"><u>The Pathway to Pro Youtube Earnings on Every Device for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beginning-the-video-odyssey-how-to-create-an-engaging-youtube-channel/"><u>[Updated] 2024 Approved  Beginning the Video Odyssey  How to Create an Engaging YouTube Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-charting-social-media-trends-with-data-graphics/"><u>[New] 2024 Approved  Charting Social Media Trends with Data Graphics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-exposed-the-hazards-of-fake-follower-purchases-on-youtube-for-2024/"><u>[New] Exposed  The Hazards of Fake Follower Purchases on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-consistent-viewing-automatic-youtube-video-playback-on-tv-for-2024/"><u>[New] Consistent Viewing  Automatic YouTube Video Playback on TV for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>[New] Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/stumble-upon-substantial-comment-sections-for-2024/"><u>Stumble upon Substantial Comment Sections for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-effective-affordable-youtube-intros-with-templates-for-2024/"><u>[New] Crafting Effective, Affordable YouTube Intros with Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-importance-of-understanding-asmr-media/"><u>[New] The Importance of Understanding ASMR Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-full-potential-of-your-youtube-videos-top-11-seo-tips/"><u>[Updated] Unlock the Full Potential of Your YouTube Videos  Top 11 SEO Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-guide-to-youtube-video-enhancement-with-wmm/"><u>[Updated] Step-by-Step Guide to YouTube Video Enhancement with WMM</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mini-media-magic-which-social-site-captures-the-crowd-faster-youtubes-or-tiktoks/"><u>[Updated] Mini-Media Magic  Which Social Site Captures the Crowd Faster? YouTubes or TikToks?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-your-youtube-content-basic-premiere-pro-edits-for-2024/"><u>[New] Enhancing Your YouTube Content  Basic Premiere Pro Edits for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-solutions-to-clear-up-black-space-on-youtube-watching/"><u>[Updated] Solutions to Clear Up Black Space on YouTube Watching</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free/"><u>[Updated] From Buffer to Broadcast  Learn How to Convert Your YouTube Viewing Into a Screenshot for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissecting-youtubes-activities-post-uploading-videos/"><u>[New] In 2024, Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gamers-picks-best-recording-software/"><u>[Updated] Gamers' Picks  Best Recording Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-superior-microphones-for-livestreaming/"><u>[Updated] Superior Microphones for Livestreaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-step-by-step-guide-on-applying-cc-rights-effectively/"><u>[Updated] In 2024, A Step-by-Step Guide on Applying CC Rights Effectively</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-editing-essentials-your-go-to-guide-for-beginner-vloggers-for-2024/"><u>[New] Editing Essentials  Your Go-To Guide for Beginner Vloggers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-future-of-streaming-money-youtube-update-for-2024/"><u>The Future of Streaming Money  YouTube Update for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-warriors-of-cyberspace-top-ten-female-youtubers/"><u>2024 Approved  Warriors of Cyberspace  Top Ten Female YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-pathway-to-smart-youtube-frames-free-methods-inside/"><u>[Updated] The Pathway to Smart YouTube Frames (Free Methods Inside!)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-smb-video-marketing-success-factors/"><u>[Updated] SMB Video Marketing Success Factors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-the-leading-youtube-to-webm-video-conversion-tools/"><u>[Updated] Explore the Leading YouTube-to-WebM Video Conversion Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dynamic-arrangement-of-your-youtube-selections/"><u>[Updated] In 2024, Dynamic Arrangement of Your YouTube Selections</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cut-to-perfection-top-video-editors-for-youtubers-for-2024/"><u>[Updated] Cut to Perfection  Top Video Editors for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-content-incorporating-exact-timestamps-in-videos-for-2024/"><u>[New] Elevate Your Content  Incorporating Exact Timestamps in Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-the-power-of-targeted-keywords-on-youtube/"><u>[New] Unlocking the Power of Targeted Keywords on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/prime-edition-best-video-editing-apps-unveiled-for-2024/"><u>Prime Edition  Best Video Editing Apps Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-unique-thumbnails-for-youtube-content/"><u>[New] In 2024, Crafting Unique Thumbnails for YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-engagement-avoiding-common-youtube-thumbnail-errors/"><u>[New] Maximizing Engagement  Avoiding Common YouTube Thumbnail Errors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-stronger-presence-with-effective-youtube-pairings/"><u>[New] In 2024, Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-to-infinite-entertainment-master-youtube-video-loops/"><u>[Updated] The Key to Infinite Entertainment  Master Youtube Video Loops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-bridging-mac-and-monetization-imovie-editing-to-youtube-success/"><u>[Updated] 2024 Approved  Bridging Mac & Monetization  IMovie Editing to YouTube Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-integration-a-beginners-guide-to-google-meet/"><u>[New] YouTube Integration  A Beginner's Guide to Google Meet</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>[Updated] In 2024, Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-initiating-your-youtube-content-compellingly/"><u>[Updated] The Art of Initiating Your YouTube Content Compellingly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-efficient-mac-video-resizing-to-fixed-ratio/"><u>[New] In 2024, Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-copycat-chronicles-the-science-of-satire-for-2024/"><u>[New] Copycat Chronicles  The Science of Satire for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-designing-youtube-shorts-templates/"><u>[Updated] The Ultimate Guide to Designing YouTube Shorts Templates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-new-era-of-creativity-pinpointing-the-best-10-budget-friendly-video-art-communities-on-youtube-for-2024/"><u>[Updated] A New Era of Creativity  Pinpointing the Best 10 Budget-Friendly Video Art Communities on YouTube for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigate-a-sea-of-tiktok-saves-with-proper-editing-know-how/"><u>[Updated] Navigate a Sea of TikTok Saves with Proper Editing Know-How</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-leading-listings-prime-tiktok-downloader-software/"><u>[Updated] In 2024, Leading Listings  Prime TikTok Downloader Software</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/game-capturing-excellence-the-best-of-windows-11-methods-unveiled/"><u>Game Capturing Excellence  The Best of Windows 11 Methods Unveiled</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-effective-measures-to-block-pesky-video-ads-online-for-2024/"><u>[Updated] Effective Measures to Block Pesky Video Ads Online for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocked-design-potential-100-free-pp-templates/"><u>2024 Approved  Unlocked Design Potential  100%% Free PP Templates</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-tecno-phantom-v-fold-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Tecno Phantom V Fold to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-streamline-your-workflow-with-aiseesoft-recording-tools/"><u>2024 Approved  Streamline Your Workflow with Aiseesoft Recording Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ideal-screencasting-software-for-effective-teaching/"><u>[New] In 2024, Ideal Screencasting Software for Effective Teaching</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-how-to-stream-your-google-meet-talks-iphone-and-android/"><u>2024 Approved  How to Stream Your Google Meet Talks  IPhone & Android</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-revolutionize-your-tiktok-presence-2-effective-ways-using-filmora-techniques-for-2024/"><u>[New] Revolutionize Your TikTok Presence  2 Effective Ways Using Filmora Techniques for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-audio-alchemy-instagram-video-to-mp3-a-compreayers-guide-for-2024/"><u>[Updated] Audio Alchemy  Instagram Video to Mp3 - A Compreayer's Guide for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-13-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 To Other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unique-images-unique-voice-podcast-graphic-principles/"><u>Unique Images, Unique Voice  Podcast Graphic Principles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/choreograph-cheeky-comics-via-giphy/"><u>Choreograph Cheeky Comics via Giphy</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-top-5-websites-for-an-active-social-presence/"><u>In 2024, Top 5 Websites for an Active Social Presence</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-10-vital-tiktok-analytics-for-cutting-edge-content-strategy/"><u>[New] In 2024, 10 Vital TikTok Analytics for Cutting-Edge Content Strategy</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/achieving-professionalism-with-zoom-filter-applications-for-2024/"><u>Achieving Professionalism with Zoom Filter Applications for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oneplus-ace-2-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your OnePlus Ace 2 Phone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-mastering-instagram-analytics-top-tools-for-enhanced-performance-insights/"><u>2024 Approved  Mastering Instagram Analytics  Top Tools for Enhanced Performance Insights</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-seamless-integration-of-audios-in-next-gen-avi-updates/"><u>Updated Seamless Integration of Audios in Next-Gen AVI Updates</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-poco-x6-pro-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Poco X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-xiaomi-redmi-note-12-proplus-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Xiaomi Redmi Note 12 Pro+ 5G FRP</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Stop Life360 from Tracking You On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-top-10-free-and-paid-tools-for-converting-podcasts-into-written-format/"><u>In 2024, Top 10 Free & Paid Tools for Converting Podcasts Into Written Format</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unified-media-experience-for-teams-via-microsoft/"><u>[Updated] Unified Media Experience for Teams via Microsoft</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/youtube-monetization-sourav-joshi-income-on-youtube-2024/"><u>YouTube Monetization  Sourav Joshi Income on YouTube 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/libertycam-studios-advanced-video-capture-capabilities-for-2024/"><u>LibertyCam Studio's Advanced Video Capture Capabilities for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-subtitle-edit-mac-alternative-find-your-new-go-to-subtitle-editor/"><u>New In 2024, Subtitle Edit Mac Alternative Find Your New Go-To Subtitle Editor</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-youtube-monetization-carryminati-ajey-nagar-youtube-income-2023/"><u>[Updated] YouTube Monetization  CarryMinati (Ajey Nagar) YouTube Income 2023</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/1714938863257-new-in-2024-how-to-improve-sound-quality-on-a-home-recorded-video/"><u>New In 2024, How to Improve Sound Quality on a Home Recorded Video</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tweaking-playback-velocity-on-netflix-devices/"><u>Tweaking Playback Velocity on Netflix Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/transform-your-mobile-broadcasting-top-tips-in-obs-studio/"><u>Transform Your Mobile Broadcasting  Top Tips in OBS Studio</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-mastering-locating-your-targeted-discord-server/"><u>[New] Mastering  Locating Your Targeted Discord Server</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-gently-reducing-sound-levels-in-operating-systems/"><u>2024 Approved  Gently Reducing Sound Levels in Operating Systems</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-realme-gt-5-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Realme GT 5 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/secrets-of-6-video-categories-for-viewer-retention/"><u>Secrets of 6 Video Categories for Viewer Retention</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/epic-martial-arts-arcade-classics-revisited-for-2024/"><u>Epic Martial Arts Arcade Classics Revisited for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-use-free-text-animations-online-and-offline-solutions-for-2024/"><u>How to Use Free Text Animations [Online and Offline Solutions] for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/discover-free-screen-capture-tools-ad-free/"><u>Discover FREE Screen Capture Tools (Ad-Free)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-how-iphoneipad-users-can-upload-youtube-videos/"><u>The Ultimate Guide  How iPhone/iPad Users Can Upload YouTube Videos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-analyzing-tseries-earnings-via-youtube-engagement/"><u>[Updated] Analyzing TSeries Earnings via YouTube Engagement</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-xiaomi-13t-devices-by-drfone-android/"><u>How to Reset Gmail Password on Xiaomi 13T Devices</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-conduct-a-chat-symphony-with-discord-tts-capabilities/"><u>[New] 2024 Approved  Conduct a Chat Symphony with Discord TTS Capabilities</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-how-to-regain-visibility-on-a-tiktok-ban-list/"><u>In 2024, How to Regain Visibility on a TikTok Ban List</u></a></li>
+</ul></div>
+
+<ins class="adsbygoogle"
+      style="display:block"
+      data-ad-client="ca-pub-7571918770474297"
+      data-ad-slot="8358498916"
+      data-ad-format="auto"
+      data-full-width-responsive="true"></ins>
