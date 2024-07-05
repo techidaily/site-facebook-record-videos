@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Dynamic Lighting  Elevating Video Aesthetics\""
-date: 2024-06-05T06:17:14.403Z
-updated: 2024-06-06T06:17:14.403Z
+date: 2024-07-04T22:44:40.660Z
+updated: 2024-07-05T22:44:40.660Z
 tags:
   - ai video
   - ai youtube
@@ -30,7 +30,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 

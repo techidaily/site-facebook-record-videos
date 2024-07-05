@@ -1,7 +1,7 @@
 ---
 title: "\"Reviving Rural Vistas  Sustainable Transition for Cities for 2024\""
-date: 2024-06-05T05:55:18.531Z
-updated: 2024-06-06T05:55:18.531Z
+date: 2024-07-04T22:44:36.391Z
+updated: 2024-07-05T22:44:36.391Z
 tags:
   - ai video
   - ai youtube
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
 * Open your YouTube account.
 * Click on My Channel
 
-![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
+![Find My Channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
@@ -74,11 +74,11 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
 
 * Click on "About."
 
-![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
+![Edit YouTube Channel Description - About](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
 
 * Then you can edit the channel description here
 
-![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
+![Edit YouTube Channel Description](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
@@ -97,7 +97,7 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
 
  Here we have also found out some useful tips for YouTube video description:
 
-![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
+![YouTube description](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
 #### 1. Take full advantage of the First Line
 

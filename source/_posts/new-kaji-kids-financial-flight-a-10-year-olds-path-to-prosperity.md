@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Kaji Kid’s Financial Flight  A 10-Year-Old’s Path to Prosperity\""
-date: 2024-06-05T06:37:05.119Z
-updated: 2024-06-06T06:37:05.119Z
+date: 2024-07-04T22:44:41.247Z
+updated: 2024-07-05T22:44:41.247Z
 tags:
   - ai video
   - ai youtube
@@ -446,7 +446,7 @@ YouTube Channel Link: <https://www.youtube.com/c/PixlCreations/videos>
 
  ![Mohammad%20Khan1](https://static.wondershare.com/images-filmora/images/activities/fcc/Mohammad%20Khan1.png)
 
-## Be a Part of [Filmora’s FCC Program](https://tools.techidaily.com/wondershare/filmora/download/)
+## Be a Part of Filmora’s FCC Program
 
 If you love video editing and have creative ideas to share, then Filmora’s FCC program would be just the perfect launchpad that you need.
 
@@ -536,7 +536,7 @@ YouTube Channel Link: <https://www.youtube.com/c/PixlCreations/videos>
 
  ![Mohammad%20Khan1](https://static.wondershare.com/images-filmora/images/activities/fcc/Mohammad%20Khan1.png)
 
-## Be a Part of [Filmora’s FCC Program](https://tools.techidaily.com/wondershare/filmora/download/)
+## Be a Part of Filmora’s FCC Program
 
 If you love video editing and have creative ideas to share, then Filmora’s FCC program would be just the perfect launchpad that you need.
 
@@ -626,7 +626,7 @@ YouTube Channel Link: <https://www.youtube.com/c/PixlCreations/videos>
 
  ![Mohammad%20Khan1](https://static.wondershare.com/images-filmora/images/activities/fcc/Mohammad%20Khan1.png)
 
-## Be a Part of [Filmora’s FCC Program](https://tools.techidaily.com/wondershare/filmora/download/)
+## Be a Part of Filmora’s FCC Program
 
 If you love video editing and have creative ideas to share, then Filmora’s FCC program would be just the perfect launchpad that you need.
 
@@ -716,7 +716,7 @@ YouTube Channel Link: <https://www.youtube.com/c/PixlCreations/videos>
 
  ![Mohammad%20Khan1](https://static.wondershare.com/images-filmora/images/activities/fcc/Mohammad%20Khan1.png)
 
-## Be a Part of [Filmora’s FCC Program](https://tools.techidaily.com/wondershare/filmora/download/)
+## Be a Part of Filmora’s FCC Program
 
 If you love video editing and have creative ideas to share, then Filmora’s FCC program would be just the perfect launchpad that you need.
 

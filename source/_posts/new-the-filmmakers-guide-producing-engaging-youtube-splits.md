@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Filmmaker's Guide  Producing Engaging YouTube Splits\""
-date: 2024-06-05T05:41:55.994Z
-updated: 2024-06-06T05:41:55.994Z
+date: 2024-07-04T22:44:40.675Z
+updated: 2024-07-05T22:44:40.675Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ Have you ever wondered how filmmakers create a clone of a person in movies? To d
 
 ### Watch Video! Use Split-Screen for Your YouTube Videos
 
-## Part 2: How to Make Creative YouTube Split-screen Videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)?
+## Part 2: How to Make Creative YouTube Split-screen Videos with Wondershare Filmora
 
 If you want to come up with professional YouTube split-screen videos, then consider using a resourceful tool like Wondershare Filmora. Recently, the company has launched Wondershare Filmora for Mac V10.2 with an upgraded set of newly-added [split-screen templates](https://tools.techidaily.com/wondershare/filmora/download/). Therefore, you can simply use the wide range of split-screen templates in Filmora and drag-and-drop your videos to implement the effect.
 

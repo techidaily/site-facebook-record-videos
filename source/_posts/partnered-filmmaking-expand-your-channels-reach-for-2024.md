@@ -1,7 +1,7 @@
 ---
 title: "\"Partnered Filmmaking  Expand Your Channel's Reach for 2024\""
-date: 2024-06-05T03:36:57.315Z
-updated: 2024-06-06T03:36:57.315Z
+date: 2024-07-04T22:44:34.858Z
+updated: 2024-07-05T22:44:34.858Z
 tags:
   - ai video
   - ai youtube
@@ -26,7 +26,7 @@ thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2
 
 [0](#commentsBoxSeoTemplate)
 
-The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/)which includes videos from 4 different YouTubers on that subject.
+The following post will teach you how to find and contact partners for YouTube collaborations, as well as provide advice for actually making the collab. We also did a post earlier this week about [**how to get other creators to collab with you,**](https://tools.techidaily.com/wondershare/filmora/download/) which includes videos from 4 different YouTubers on that subject.
 
 * [**Choosing A Potential Partner**](#choose)
 * [**How to Contact A Partner**](#contact)
@@ -44,7 +44,7 @@ Before you think about how you’re going to approach someone you need to decide
 
 A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
 
-![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
+![Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
 
 _Will Kitty get to collab with the big dog?_
 
@@ -68,7 +68,7 @@ Reaching out more casually through Twitter DMs, YouTube comments, or Facebook is
 
 ## 3\. Popular Types of Collab Videos
 
-_[**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ)talks about different types of collabs and how well they work._
+_ [**Gabrielle**](https://www.youtube.com/channel/UC7afFvLLvTiWI97M0jaqgKQ) talks about different types of collabs and how well they work._
 
 In most cases when you do a collab, you’ll each want to have content to post to your own channels (unless you’re doing some type of interview). You don’t want to put a lot of effort into a video that won’t end up being ‘yours’. Here are a few different ways to collaborate:
 
@@ -102,7 +102,7 @@ Usually, you have two reasons for wanting to do a collab; having fun with anothe
 
 Commenting on each other’s videos, and responding to viewer comments, is one of the best. It will help you seem more like a person who is being introduced than a guest star in a video.
 
-![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
+![Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
 
@@ -110,7 +110,7 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 

@@ -1,7 +1,7 @@
 ---
 title: "Optimize YouTube Visibility by Sustaining Creativity Commons License for 2024"
-date: 2024-06-05T04:24:11.450Z
-updated: 2024-06-06T04:24:11.450Z
+date: 2024-07-04T22:44:33.321Z
+updated: 2024-07-05T22:44:33.321Z
 tags:
   - ai video
   - ai youtube
@@ -68,7 +68,7 @@ So, as you have gone through several benefits associated with YouTube video clos
 
 **_Step 2:_** Click Edit underneath the video
 
-![click edit video ](https://images.wondershare.com/filmora/article-images/click-edit-video1.png)
+![click edit video](https://images.wondershare.com/filmora/article-images/click-edit-video1.png)
 
 **_Step 3:_** Add a specific tag to your content: “yt:cc=on”
 

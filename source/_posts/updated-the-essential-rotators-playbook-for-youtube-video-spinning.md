@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Essential Rotator's Playbook for YouTube Video Spinning"
-date: 2024-06-05T06:46:38.223Z
-updated: 2024-06-06T06:46:38.223Z
+date: 2024-07-04T22:44:36.919Z
+updated: 2024-07-05T22:44:36.919Z
 tags:
   - ai video
   - ai youtube
@@ -88,12 +88,12 @@ It not only allows you to cut, crop, rotate, reverse videos, but also offers you
 
 * To rotate the video, double click it on the timeline.
 
-![add video to Filmora timeline ](https://images.wondershare.com/filmora/article-images/import-vertical-video-filmora.jpg)
+![add video to Filmora timeline](https://images.wondershare.com/filmora/article-images/import-vertical-video-filmora.jpg)
 
 * The editing panel will appear and you will be able to see the rotation options.
 * There are four buttons. You can rotate the videos in **90 degrees**, **180 degrees** and **270 degrees**.
 
-![ rotate vdieo ](https://images.wondershare.com/filmora/article-images/filmora9-transform-options.jpg)
+![rotate vdieo](https://images.wondershare.com/filmora/article-images/filmora9-transform-options.jpg)
 
 * Export the video that you have rotated.
 
@@ -108,7 +108,7 @@ The steps of rotating a video in Windows Movie Maker is easy:
 * Import the video.
 * Click the video then select the rotate button that is found at the toolbar.
 
-![ rotate vdieo ](https://images.wondershare.com/filmora/article-images/windows-movie-maker-rotate.jpg)
+![rotate vdieo](https://images.wondershare.com/filmora/article-images/windows-movie-maker-rotate.jpg)
 
 * Save the video after rotating on the right angle.
 

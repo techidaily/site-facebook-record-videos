@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube Thumbnails Demystified - Mac Edition\""
-date: 2024-06-05T05:58:42.957Z
-updated: 2024-06-06T05:58:42.957Z
+date: 2024-07-04T22:44:40.064Z
+updated: 2024-07-05T22:44:40.064Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ If you don’t create a thumbnail then youtube will generate one by itself which
 
 ## How to make Youtube Thumbnails on Mac
 
-You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+You can easily create interesting thumbnails for youtube videos using a thumbnail maker like [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 ### 1. Preview the video and choose the still snapshot
 

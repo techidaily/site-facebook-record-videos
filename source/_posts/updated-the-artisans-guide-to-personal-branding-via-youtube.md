@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Artisan's Guide to Personal Branding via YouTube"
-date: 2024-06-05T04:54:57.568Z
-updated: 2024-06-06T04:54:57.568Z
+date: 2024-07-04T22:44:40.593Z
+updated: 2024-07-05T22:44:40.593Z
 tags:
   - ai video
   - ai youtube
@@ -43,7 +43,7 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 
 ## Your Brand is Your Unique Message
 
-Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
+Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to [invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
 ## The Elevator Pitch
 

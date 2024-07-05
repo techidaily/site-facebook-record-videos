@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mobile Editing Hacks  Select Top 10 Short Form Apps\""
-date: 2024-06-05T06:23:04.076Z
-updated: 2024-06-06T06:23:04.076Z
+date: 2024-07-04T22:44:33.269Z
+updated: 2024-07-05T22:44:33.269Z
 tags:
   - ai video
   - ai youtube
@@ -188,7 +188,7 @@ As the name suggests, VivaCut is a professional-level video editing tool for mob
 
 ### 9\.  Filmmaker Pro – Video Editor
 
-![YouTube Shorts Video Editing app: Filmmaker Pro ](https://images.wondershare.com/filmora/article-images/best-youtue-shorts-editing-apps-filmmaker-pro.jpg)
+![YouTube Shorts Video Editing app: Filmmaker Pro](https://images.wondershare.com/filmora/article-images/best-youtue-shorts-editing-apps-filmmaker-pro.jpg)
 
 Filmmaker Pro is a free video editing app for mobile devices equipped with a plethora of pro features to make your post-production experience convenient and fun.
 
