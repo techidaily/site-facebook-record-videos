@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, A Simple Approach to YouTube Statistics Review"
-date: 2024-06-05T03:44:47.957Z
-updated: 2024-06-06T03:44:47.957Z
+date: 2024-07-30T22:38:59.683Z
+updated: 2024-07-31T22:38:59.683Z
 tags:
   - ai video
   - ai youtube
@@ -35,12 +35,18 @@ The information available for each video includes how many new subscribers it at
 * **[Interpreting YouTube Interaction Reports](#interaction)**
 * **[How to View Other People's YouTube Statistics](#otherpeople)**
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Making Better YouTube Videos with Filmora to Get More Views
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## How to View Your YouTube Statistics
@@ -51,6 +57,9 @@ In order to check which of your videos are performing the best, click on **Watch
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -65,6 +74,10 @@ In the watch time reports for individual videos, you will be able to see data on
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -89,12 +102,18 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
 
 Now that you know how to view YouTube statistics, what will you do with them?
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -111,3 +130,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-5-innovative-apps-to-design-stunning-openings/"><u>[New] 2024 Approved  5 Innovative Apps to Design Stunning Openings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-copyright-safe-techniques-for-youtube-to-mp4/"><u>[New] 2024 Approved  Copyright-Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-comparing-profit-potential-dailymovement-and-youtubes-earnings-for-2024/"><u>[New] Comparing Profit Potential  DailyMovement and Youtube's Earnings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-edit-like-a-pro-10-must-know-tips-for-newbies-for-2024/"><u>[New] Edit Like a Pro  10 Must-Know Tips for Newbies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-efficient-techniques-sharing-video-content-from-youtube-fb-for-2024/"><u>[New] Efficient Techniques  Sharing Video Content From YouTube FB for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-the-top-10-fitness-channels-for-yogis/"><u>[New] In 2024, Discover the Top 10 Fitness Channels for Yogis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-excellent-10-tech-choices-for-livestream-monitoring/"><u>[New] In 2024, Excellent 10 Tech Choices for Livestream Monitoring</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-explore-the-best-historian-content-top-10-youtube-recommendations/"><u>[New] In 2024, Explore the Best Historian Content  Top 10 YouTube Recommendations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/erfect-pairing-of-livestream-tech-top-recommendations-for-youtubers-for-2024/"><u>[New] Perfect Pairing of Livestream Tech  Top Recommendations for Youtubers for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-scripters-toolbox/"><u>[New] Scripter's Toolbox</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-top-techniques-for-turning-yt-order-upside-down/"><u>[New] The Top Techniques for Turning YT Order Upside-Down</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-visuals-the-role-of-a-tripod-in-video-content/"><u>[Updated] 2024 Approved  Enhancing Visuals  The Role of a Tripod in Video Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-access-exclusive-stock-images-through-vital-4-youtube-sources-for-2024/"><u>[Updated] Access Exclusive Stock Images Through Vital 4 YouTube Sources for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-tools-simplifying-the-task-of-feedback-erasure-for-2024/"><u>[Updated] Efficient Tools  Simplifying the Task of Feedback Erasure for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-tips-for-enhancing-youtube-videos-through-seo-mastery-for-2024/"><u>[Updated] Expert Tips for Enhancing YouTube Videos Through SEO Mastery for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-hp-laptop-tutorial-easy-webcam-video-recording-steps/"><u>[Updated] HP Laptop Tutorial  Easy Webcam Video Recording Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-amplify-earnings-monetize-youtube-on-the-go-with-effective-techniques/"><u>[Updated] In 2024, Amplify Earnings  Monetize YouTube on the Go with Effective Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[Updated] In 2024, Banner Bonanza  Unlimited 50 FREE YouTube Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-8-youtube-thumbnail-grabbers-you-should-know/"><u>[Updated] In 2024, Best 8 YouTube Thumbnail Grabbers You Should Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beyond-simplicity-exploring-the-intricacies-of-youtubes-view-count-algorithm/"><u>[Updated] In 2024, Beyond Simplicity  Exploring the Intricacies of YouTube’s View Count Algorithm</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>[Updated] In 2024, Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-initiate-your-video-journey-establishing-a-youtube-account/"><u>[Updated] Initiate Your Video Journey  Establishing a YouTube Account</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-study-aids-top-10-educational-history-channels/"><u>[Updated] Study Aids  Top 10 Educational History Channels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-how-to-log-your-favorites-6-proven-methods-for-webcast-capture/"><u>2024 Approved  How to Log Your Favorites  6 Proven Methods for Webcast Capture</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-masterful-text-effects-in-adobe-after-effects/"><u>2024 Approved  Masterful Text Effects in Adobe After Effects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-soundtrack-anytime-anywhere-6-top-ranked-free-apps-to-download-youtube-music/"><u>2024 Approved  Your Soundtrack, Anytime, Anywhere  6 Top-Ranked Free Apps to Download Youtube Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-gaming-pros-choice-of-5-microphones/"><u>2024 Approved  YouTube Gaming Pros' Choice of 5 Microphones</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dynamic-dyes-mastery-in-color-manipulation/"><u>Dynamic Dyes  Mastery in Color Manipulation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-motorola-moto-g-5g-2023-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Motorola Moto G 5G (2023)?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-photo-aesthetics-the-essence-of-luts/"><u>In 2024, Mastering Photo Aesthetics  The Essence of LUTs</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Poco X5? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-oppo-reno-8t-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Oppo Reno 8T 5G FRP Bypass</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-vlog-glow-achieving-professional-video-setup/"><u>In 2024, Vlog Glow  Achieving Professional Video Setup</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/lightning-lens-work-efficiently-producing-google-collage-shots-for-2024/"><u>Lightning Lens Work  Efficiently Producing Google Collage Shots for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premier-lineup-best-free-video-editors-unveiled-for-2024/"><u>Premier Lineup  Best Free Video Editors Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/professional-video-tweaks-with-these-top-8-free-editing-apps-for-2024/"><u>Professional Video Tweaks with These Top 8 Free Editing Apps for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-nokia-105-classic-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Nokia 105 Classic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/scholarly-streams-10-best-ed-tutorials-yt-for-2024/"><u>Scholarly Streams  10 Best Ed Tutorials YT for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/step-by-step-filming-and-editing-your-first-reel-on-facebook-for-2024/"><u>Step-by-Step  Filming and Editing Your First Reel on Facebook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-authenticity-financial-fruits-in-filmmaking-for-2024/"><u>The Art of Authenticity  Financial Fruits in Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-mac-dvd-authorization-handbook-for-2024/"><u>The Ultimate Mac DVD Authorization Handbook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-unseen-factors-in-determining-a-videos-view-count-on-youtube-for-2024/"><u>The Unseen Factors in Determining a Video’s View Count on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-rewind-feat-unraveling-sequence-with-a-single-click-for-2024/"><u>YouTube's Rewind Feat  Unraveling Sequence with a Single Click for 2024</u></a></li>
+</ul></div>

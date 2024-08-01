@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Potential Videos Through Google Trend Study for 2024"
-date: 2024-06-24T20:01:50.555Z
-updated: 2024-06-25T20:01:50.555Z
+date: 2024-07-31T01:15:58.624Z
+updated: 2024-08-01T01:15:58.624Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/4703b9d657812b3886216df90e44b1d9ef5fb3878
 
 # How to Use Google Trends to Come up with Video Ideas \[Easy Guide\]
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +39,9 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 
 ## Part 1: Seeing The Big Picture
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -46,6 +52,9 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -68,6 +77,9 @@ Once you have narrowed down your results you can just scroll through and pick ou
 
 For example, if you have a gaming channel and you’re looking for a non-gameplay topic to make a video on, you would look under Sci/Tech. If I look under that category today (May 29, 2017) and specify that I want topics trending in the United States then these are my top 5 results:
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -76,6 +88,9 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -92,6 +107,9 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
@@ -118,6 +136,18 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Making Better YouTube Videos with Filmora
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
@@ -140,3 +170,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breaking-barriers-increasing-viewership-on-youtube/"><u>[New] 2024 Approved  Breaking Barriers  Increasing Viewership on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breaking-down-the-elements-of-a-youtube-shorts-template/"><u>[New] 2024 Approved  Breaking Down the Elements of a YouTube Shorts Template</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-demystifying-income-flow-to-creators-within-the-short-video-model/"><u>[New] 2024 Approved  Demystifying Income Flow to Creators Within the Short Video Model</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-animated-text-that-jumps-master-class-with-easy-steps-for-2024/"><u>[New] Animated Text That Jumps  Master Class with Easy Steps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-brand-differentiation-with-powerful-youtube-names-for-2024/"><u>[New] Brand Differentiation with Powerful YouTube Names for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-hyper-clear-playtime-best-ultra-hd-hdmi-21-gaming-screens/"><u>[New] Hyper-Clear Playtime  Best Ultra HD (HDMI 2.1) Gaming Screens</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-complete-guide-to-registering-with-youtube/"><u>[New] In 2024, A Complete Guide to Registering with YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-balancing-acts-the-power-of-alternate-perspectives-in-crafting-engaging-reaction-videos-on-youtube-2-pov-method/"><u>[New] In 2024, Balancing Acts  The Power of Alternate Perspectives in Crafting Engaging Reaction Videos on YouTube (2 POV Method)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-practices-for-youtube-thumbnail-dimensions/"><u>[New] In 2024, Best Practices for YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-yt-previews-making-a-lasting-first-impression/"><u>[New] The Art of YT Previews  Making a Lasting First Impression</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essential-how-to-for-youtube-comment-control/"><u>[New] The Essential How-To for YouTube Comment Control</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-youtube-potential-with-effective-seo-methods-1-11/"><u>[New] Unleashing YouTube Potential with Effective SEO Methods (1-11)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-high-quality-viewing-with-youtubes-latest-av1-feature/"><u>[New] Unlock High-Quality Viewing with YouTube’s Latest AV1 Feature</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-brief-video-joust-the-showdown-between-youtubes-shorts-and-tiktoks-flavor/"><u>[Updated] 2024 Approved  Brief Video Joust  The Showdown Between YouTubes Shorts and TikTok's Flavor</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-audio-file-fusion-seamless-conversion-from-srt-to-other-formats/"><u>[Updated] Audio File Fusion  Seamless Conversion From SRT to Other Formats</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-blade-chroma-with-4k-camera-review/"><u>[Updated] Blade Chroma with 4K Camera Review</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-configure-youtubes-audience-options-with-ease-for-2024/"><u>[Updated] Configure YouTube's Audience Options with Ease for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-conquering-content-sharing-on-igtv-for-2024/"><u>[Updated] Conquering Content Sharing on IGTV for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-success-with-these-15-youtube-introduction-plans-for-2024/"><u>[Updated] Crafting Success with These 15 YouTube Introduction Plans for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-calls-merging-youtube-and-sustainable-backgrounds-for-2024/"><u>[Updated] Expert Calls  Merging YouTube & Sustainable Backgrounds for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gastronomy-gurus-the-elite-of-food-vlogs/"><u>[Updated] Gastronomy Gurus  The Elite of Food Vlogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-growth-strategy-going-with-studio-or-beta-progression/"><u>[Updated] In 2024, Channel Growth Strategy  Going with Studio or Beta Progression</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-craft-your-channels-moniker-youtube-naming-tools-and-tips/"><u>[Updated] In 2024, Craft Your Channel's Moniker  YouTube Naming Tools and Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-effortless-engagement-integrating-gs-and-yt-strategies/"><u>[Updated] In 2024, Effortless Engagement  Integrating GS & YT Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-engaging-viewers-on-youtube-gaming-livestreams/"><u>[Updated] In 2024, Engaging Viewers on YouTube Gaming Livestreams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-video-aspect-ratios-in-youtube-platform/"><u>[Updated] Navigating Video Aspect Ratios in YouTube Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-subscribe-smart-hundreds-for-under-5/"><u>[Updated] Subscribe Smart - Hundreds for Under $5</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-mystery-of-unlisted-content-on-youtube-explored/"><u>[Updated] The Mystery of Unlisted Content on YouTube Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-list-of-8-free-video-editing-programs-for-creatives/"><u>[Updated] The Ultimate List of 8 FREE Video Editing Programs for Creatives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-things-you-should-know-about-youtube-live-thumbnails/"><u>[Updated] Things You Should Know About YouTube Live Thumbnails</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-list-of-public-domain-picture-banks/"><u>[Updated] Ultimate List of Public Domain Picture Banks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-richest-content-creator-ever/"><u>[Updated] YouTube's Richest Content Creator Ever</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-beyond-video-chats-webcam-alternatives/"><u>2024 Approved  Beyond Video Chats  Webcam Alternatives</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-jumble-to-flow-kinemasters-editing-masterclass/"><u>2024 Approved  From Jumble to Flow  Kinemaster's Editing Masterclass</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-se-2022-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone SE (2022) In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-itel-p40-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Itel P40 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/optimize-watching-incorporating-captions-into-wmp/"><u>Optimize Watching  Incorporating Captions Into WMP</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-10-volume-enhancers-windows-apple-android-for-2024/"><u>Premium 10 Volume Enhancers  Windows, Apple, Android for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rapid-audio-to-video-conversion-for-youtube-fans-for-2024/"><u>Rapid Audio-to-Video Conversion for YouTube Fans for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/steps-to-locate-your-youtube-comments-seamlessly-for-2024/"><u>Steps to Locate Your YouTube Comments Seamlessly for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-riches-a-deep-dive-into-mr-beasts-wealth-for-2024/"><u>The Riches  A Deep Dive Into Mr. Beast's Wealth for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-conversion-companion-best-youtubes-to-avis-for-2024/"><u>The Ultimate Conversion Companion  Best YouTubes to AVIs for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/trusted-picks-best-5-videographer-software-tools/"><u>Trusted Picks  Best 5 Videographer Software Tools</u></a></li>
+</ul></div>

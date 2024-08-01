@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Achieve Sharpness  Camera Tips Without a Tripod\""
-date: 2024-06-05T03:14:51.173Z
-updated: 2024-06-06T03:14:51.173Z
+date: 2024-07-30T21:48:17.917Z
+updated: 2024-07-31T21:48:17.917Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
@@ -48,16 +51,25 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -75,6 +87,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,6 +118,9 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -119,3 +137,44 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cut-the-cost-not-your-content-quality-try-these-top-8-free-tools/"><u>[New] 2024 Approved  Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-erasing-the-spotlight-hide-visuals-in-shared-media/"><u>[New] 2024 Approved  Erasing the Spotlight  Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-strategies-for-exceptional-live-thumbnail-appeal/"><u>[New] 2024 Approved  Expert Strategies for Exceptional Live Thumbnail Appeal</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-live-recording-gadgets-for-youtube-content-creators-for-2024/"><u>[New] Best Live Recording Gadgets for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-beyond-betting-in-depth-vegas-pro-21-analysis/"><u>[New] Beyond Betting  In-Depth Vegas Pro '21 Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-from-fast-pace-to-deliberate-motion-making-slow-movies-on-insta/"><u>[New] From Fast Pace to Deliberate Motion  Making Slow Movies on Insta</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-video-popularity-on-youtube/"><u>[New] In 2024, Elevating Video Popularity on YouTube</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-maximizing-team-output-8-excellent-facebook-planners-revealed/"><u>[New] Maximizing Team Output  8 Excellent Facebook Planners Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-navigating-playlist-creation-on-youtube-easily/"><u>[New] Navigating Playlist Creation on YouTube Easily</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-overview-of-dji-flyer-x20-virtual-reality-lenses/"><u>[New] Overview of DJi Flyer X20 Virtual Reality Lenses</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-banner-and-art-design-for-your-youtube-channel/"><u>[New] The Ultimate Guide to Banner & Art Design for Your YouTube Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-youtube-to-webm-converter-apps-reviewed-and-ranked/"><u>[New] Top 10 YouTube to WebM Converter Apps Reviewed & Ranked</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-practical-pathway-for-profit-tracking-the-straightforward-steps-to-analyze-youtube-earnings/"><u>[Updated] 2024 Approved  A Practical Pathway for Profit Tracking  The Straightforward Steps to Analyze YouTube Earnings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-channels-standing-with-these-tactics/"><u>[Updated] 2024 Approved  Elevate Your Channel's Standing with These Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-beginners-essential-guide-to-youtube-video-editing-magic-for-2024/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-views-via-strategic-tagging-tactics-for-2024/"><u>[Updated] Boost Views via Strategic Tagging Tactics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cultivating-a-unique-vibe-in-your-own-mukbang-content-for-2024/"><u>[Updated] Cultivating a Unique Vibe in Your Own Mukbang Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-bites-outside-the-box-new-film-favorites/"><u>[Updated] In 2024, Best Bites Outside the Box  New Film Favorites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-your-earnings-effective-youtube-money-methods/"><u>[Updated] In 2024, Channel Your Earnings  Effective YouTube Money Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-content-creators-arena-vs-beta-studio-evolutionary-path/"><u>[Updated] In 2024, Content Creator's Arena  Vs. Beta Studio Evolutionary Path</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-pinnacle-actions-recorder-assessment/"><u>[Updated] In 2024, Pinnacle Actions Recorder Assessment</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-depth-walkthrough-editing-youtube-videos-in-wmm/"><u>[Updated] In-Depth Walkthrough  Editing YouTube Videos in WMM</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-av-producers-the-ultimate-web-watchlist/"><u>[Updated] Innovative AV Producers  The Ultimate Web Watchlist</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-profitable-pursuits-on-youtube-the-non-ad-revenue-roadmap/"><u>[Updated] Profitable Pursuits on YouTube  The Non-Ad Revenue Roadmap</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-role-of-analytics-in-amplifying-your-youtube-presence/"><u>[Updated] The Role of Analytics in Amplifying Your YouTube Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-effective-youtube-banners-for-2024/"><u>[Updated] The Ultimate Guide to Effective YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-20-free-footage-sites-a-comprehensively-curated-list/"><u>[Updated] Top 20 Free Footage Sites  A Comprehensively Curated List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-shorts-showing-up-after-fix/"><u>[Updated] YouTube Shorts Showing Up After Fix</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-x-flip-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo X Flip to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-samsung-galaxy-f15-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Samsung Galaxy F15 5G FRP</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-pro-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Pro To Others ios devices? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-a-oppo-a78-easily-by-drfone-android/"><u>How To Unlock a Oppo A78 Easily?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimizing-lifes-dual-roles-job-and-youtubing-for-2024/"><u>Optimizing Life's Dual Roles  Job & YouTubing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/put-a-halt-on-surprise-youtube-videos-for-2024/"><u>Put a Halt on Surprise YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategies-for-seamless-integration-of-work-and-youtube-for-2024/"><u>Strategies for Seamless Integration of Work & YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-power-of-youtubes-creative-commons-for-videographers-for-2024/"><u>The Power of YouTube's Creative Commons for Videographers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-potential-of-monetized-vlogs-for-2024/"><u>Unlocking the Potential of Monetized Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-prime-moments-celebrations-beyond-vidcon-for-2024/"><u>Youtube's Prime Moments  Celebrations Beyond VidCon for 2024</u></a></li>
+</ul></div>

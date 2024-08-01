@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Demystifying YouTube SEO Terminology and Tactics"
-date: 2024-06-05T06:25:30.780Z
-updated: 2024-06-06T06:25:30.780Z
+date: 2024-07-31T03:09:58.184Z
+updated: 2024-08-01T03:09:58.184Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,9 @@ Video marketing is expensive, and that is why you have to find every possible ed
 
 Because keyword research allows your target audience to find you, this means more opportunities for you. Most of the users will share entertaining videos.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ## How to Research Keywords on YouTube?
 
 There are several ways of conducting keyword research for YouTube to find out what people are searching for and determine the content in your video. They include:
@@ -72,6 +75,9 @@ You can start your research by typing the keywords into YouTube's search bar and
 
 #### 2\. Using Google's Keyword Planner Tool
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use google keyword planner for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-6.png)
 
 This tool is helpful for keyword difficulty and monthly searches volume assessment. If you only want to know the number of organic visits a given keyword gets, Google Keyword Planner might be helpful. The tool allows you to create lists consisting of related keywords and provides information about CPC (cost per click) and potential traffic in general.
@@ -102,6 +108,136 @@ The tool allows you to enable inline keywords to know the tags your competitors 
 
 ##### TubeBuddy
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Tubebuddy youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-2.png)
+
+You can also use TubeBuddy to find and evaluate a range of YouTube keywords. You can do TubeBuddy keyword research on its mobile app or browser extension. The tool also shows how often people click on the results and how often users search a keyword.
+
+##### Keyword Keg
+
+![Keyword Keg youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-3.png)
+
+Using the YouTube suggest API, Keyword Keg shows you the terms users search most and the monthly number of searches. You'll also see what other people are paying for CPC (cost per click). You can use this data to determine the best keywords for your YouTube videos.
+
+Qusetion: Are keywords and Tags the Same Thing?
+
+Answer: The main difference between tags and keywords is where you will place them. Keywords describe the content in your video to help search engines and YouTube's algorithm find your video. Tags describe what the content in your video is about and how it's connected.
+
+## Make Great YouTube Videos with Filmora
+
+Having high-quality videos can make you stand out from your competitors. Filmora is a video editing software that allows you to create amazing YouTube videos. It has powerful editing tools that will enhance the quality of your videos.
+
+You can also add over 800 cool effects and filters to your videos to make them fun to watch. With just a single click, you can add opacity and speed ramp effects as well as infinite zoom effects.
+
+Additionally, you can adjust the dynamic range and white balance of Your YouTube videos. Furthermore, you can fine-tune the audio of your video to make it crisp and eliminate camera shake.
+
+The best part is: Filmora is compatible with macOS X 10.12 or later and Windows 7, 8, and 10\. It also supports all popular standard HD videos, audio, and image file formats.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
+## Conclusion
+
+Now that you know the importance of YouTube keyword research and how to perform keyword research, your target audience can find you easily.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+With more than 1 billion hours of video watched every day, YouTube is the world's second-largest search engine. That means you should optimize your videos for YouTube, so they rank well on Google and show up in YouTube searches.
+
+YouTube keywords are the words you include in your video title, description, and anywhere that will help YouTube’s algorithm know what your video is about and what it entails. Keep reading to learn more about YouTube keyword research.
+
+#### In this article
+
+[Why Do We Need to Research YouTube Keywords?](#part1)
+
+[How to Research Keywords on YouTube?](#part2)
+
+## Why Do We Need to Research YouTube Keywords?
+
+Researching YouTube keywords is essential to your success. Here are three reasons why you might want to consider YouTube keyword research.
+
+#### Helps You Know What Your Audience Is Searching for
+
+Keyword research allows you to understand what people search for when they are on YouTube. In turn, this helps you know what your potential customers are seeking. You'll then include these terms on your content to increase the chances of your audience finding you on YouTube.
+
+#### It Helps You Rank Higher
+
+You can use YouTube videos to promote brand awareness and market your product. Having high-ranking videos is a cost-effective way to push your target audience through the sales funnel.
+
+When creating YouTube videos, you need to ensure you are reaching your target audience. And that is why researching keywords is crucial.
+
+Once you have performed YouTube keyword research and determined the most suitable keywords for your topic, you can now use them to create target content for your audience. In turn, this will help you increase the number of subscribers on your YouTube channel. Your chances of your video showing up on YouTube will increase, which will bring traffic to your business.
+
+#### It's the Cheapest Way to Market Your Products or Services
+
+Video marketing is expensive, and that is why you have to find every possible edge for your video marketing if you want to lower your costs and increase your ROI. For this reason, keyword research will ensure your audience finds you without spending loads of money that you could have used on services like Google Ads.
+
+Because keyword research allows your target audience to find you, this means more opportunities for you. Most of the users will share entertaining videos.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## How to Research Keywords on YouTube?
+
+There are several ways of conducting keyword research for YouTube to find out what people are searching for and determine the content in your video. They include:
+
+#### 1\. Using YouTube Search
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![youtube keyword search](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-5.png)
+
+Although this method doesn't provide all available search options, it's still good for getting an idea of the type of keyword with which you're dealing.
+
+You can start your research by typing the keywords into YouTube's search bar and reviewing the displayed results. It might be helpful to check out similar videos or video playlists. If your search seems too wide, you can enter several keywords at once (separated by commas), which will help you find better results.
+
+#### 2\. Using Google's Keyword Planner Tool
+
+![use google keyword planner for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-6.png)
+
+This tool is helpful for keyword difficulty and monthly searches volume assessment. If you only want to know the number of organic visits a given keyword gets, Google Keyword Planner might be helpful. The tool allows you to create lists consisting of related keywords and provides information about CPC (cost per click) and potential traffic in general.
+
+#### 3\. Using YouTube Suggestions
+
+What makes YouTube unique is its ability to suggest content based on your location, subscription, and watch history. You can use this method to find keyword ideas if you have subscribed to relevant channels. Also, you can rely on YouTube suggestions to find out whether a topic is popular or not.
+
+#### 4\. Using YouTube Analytics
+
+![ Using YouTube Analytic for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-8.png)
+
+YouTube has a built-in Keyword Tool that is extremely helpful for researching the best keywords to use in your video titles, descriptions, and tags. This method allows you to see video search keywords with which users are finding your content. It is possible to review top organic keywords together with the respective engagement metrics, including bounce rate and average view duration.
+
+#### 5\. Using Third-Party YouTube Keyword Tools
+
+Last but not least, there are several third-party tools available on the market that provide both keyword difficulty and organic traffic estimation data for YouTube keywords. Some of these tools also offer similar features, including recommendations based on your existing subscriptions. Let's look at some of the popular YouTube tools that you can use.
+
+##### vidIQ
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![ VidIQ youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-1.png)
+
+Designed to boost YouTube views, vidIQ is an effective SEO tool. The tool recommends keywords, descriptions, and titles that will help you to get more views and subscribers.
+
+Performing vidIQ keyword research that relates to your video is a breeze. With just a few clicks, you will know what people are searching for and create content that they want to watch.
+
+The tool allows you to enable inline keywords to know the tags your competitors use on search results. Use them to help you generate ideas relevant to your content. vidIQ also suggests ideal keywords like YouTube.
+
+##### TubeBuddy
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Tubebuddy youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-2.png)
 
 You can also use TubeBuddy to find and evaluate a range of YouTube keywords. You can do TubeBuddy keyword research on its mobile app or browser extension. The tool also shows how often people click on the results and how often users search a keyword.
@@ -164,6 +300,13 @@ Video marketing is expensive, and that is why you have to find every possible ed
 
 Because keyword research allows your target audience to find you, this means more opportunities for you. Most of the users will share entertaining videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## How to Research Keywords on YouTube?
 
 There are several ways of conducting keyword research for YouTube to find out what people are searching for and determine the content in your video. They include:
@@ -178,6 +321,9 @@ You can start your research by typing the keywords into YouTube's search bar and
 
 #### 2\. Using Google's Keyword Planner Tool
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![use google keyword planner for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-6.png)
 
 This tool is helpful for keyword difficulty and monthly searches volume assessment. If you only want to know the number of organic visits a given keyword gets, Google Keyword Planner might be helpful. The tool allows you to create lists consisting of related keywords and provides information about CPC (cost per click) and potential traffic in general.
@@ -188,6 +334,9 @@ What makes YouTube unique is its ability to suggest content based on your locati
 
 #### 4\. Using YouTube Analytics
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![ Using YouTube Analytic for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-8.png)
 
 YouTube has a built-in Keyword Tool that is extremely helpful for researching the best keywords to use in your video titles, descriptions, and tags. This method allows you to see video search keywords with which users are finding your content. It is possible to review top organic keywords together with the respective engagement metrics, including bounce rate and average view duration.
@@ -208,12 +357,18 @@ The tool allows you to enable inline keywords to know the tags your competitors 
 
 ##### TubeBuddy
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ![Tubebuddy youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-2.png)
 
 You can also use TubeBuddy to find and evaluate a range of YouTube keywords. You can do TubeBuddy keyword research on its mobile app or browser extension. The tool also shows how often people click on the results and how often users search a keyword.
 
 ##### Keyword Keg
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Keyword Keg youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-3.png)
 
 Using the YouTube suggest API, Keyword Keg shows you the terms users search most and the monthly number of searches. You'll also see what other people are paying for CPC (cost per click). You can use this data to determine the best keywords for your YouTube videos.
@@ -276,6 +431,9 @@ There are several ways of conducting keyword research for YouTube to find out wh
 
 #### 1\. Using YouTube Search
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube keyword search](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-5.png)
 
 Although this method doesn't provide all available search options, it's still good for getting an idea of the type of keyword with which you're dealing.
@@ -294,6 +452,9 @@ What makes YouTube unique is its ability to suggest content based on your locati
 
 #### 4\. Using YouTube Analytics
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Using YouTube Analytic for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-8.png)
 
 YouTube has a built-in Keyword Tool that is extremely helpful for researching the best keywords to use in your video titles, descriptions, and tags. This method allows you to see video search keywords with which users are finding your content. It is possible to review top organic keywords together with the respective engagement metrics, including bounce rate and average view duration.
@@ -320,6 +481,9 @@ You can also use TubeBuddy to find and evaluate a range of YouTube keywords. You
 
 ##### Keyword Keg
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ![Keyword Keg youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-3.png)
 
 Using the YouTube suggest API, Keyword Keg shows you the terms users search most and the monthly number of searches. You'll also see what other people are paying for CPC (cost per click). You can use this data to determine the best keywords for your YouTube videos.
@@ -328,112 +492,9 @@ Qusetion: Are keywords and Tags the Same Thing?
 
 Answer: The main difference between tags and keywords is where you will place them. Keywords describe the content in your video to help search engines and YouTube's algorithm find your video. Tags describe what the content in your video is about and how it's connected.
 
-## Make Great YouTube Videos with Filmora
-
-Having high-quality videos can make you stand out from your competitors. Filmora is a video editing software that allows you to create amazing YouTube videos. It has powerful editing tools that will enhance the quality of your videos.
-
-You can also add over 800 cool effects and filters to your videos to make them fun to watch. With just a single click, you can add opacity and speed ramp effects as well as infinite zoom effects.
-
-Additionally, you can adjust the dynamic range and white balance of Your YouTube videos. Furthermore, you can fine-tune the audio of your video to make it crisp and eliminate camera shake.
-
-The best part is: Filmora is compatible with macOS X 10.12 or later and Windows 7, 8, and 10\. It also supports all popular standard HD videos, audio, and image file formats.
-
-## Conclusion
-
-Now that you know the importance of YouTube keyword research and how to perform keyword research, your target audience can find you easily.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-With more than 1 billion hours of video watched every day, YouTube is the world's second-largest search engine. That means you should optimize your videos for YouTube, so they rank well on Google and show up in YouTube searches.
-
-YouTube keywords are the words you include in your video title, description, and anywhere that will help YouTube’s algorithm know what your video is about and what it entails. Keep reading to learn more about YouTube keyword research.
-
-#### In this article
-
-[Why Do We Need to Research YouTube Keywords?](#part1)
-
-[How to Research Keywords on YouTube?](#part2)
-
-## Why Do We Need to Research YouTube Keywords?
-
-Researching YouTube keywords is essential to your success. Here are three reasons why you might want to consider YouTube keyword research.
-
-#### Helps You Know What Your Audience Is Searching for
-
-Keyword research allows you to understand what people search for when they are on YouTube. In turn, this helps you know what your potential customers are seeking. You'll then include these terms on your content to increase the chances of your audience finding you on YouTube.
-
-#### It Helps You Rank Higher
-
-You can use YouTube videos to promote brand awareness and market your product. Having high-ranking videos is a cost-effective way to push your target audience through the sales funnel.
-
-When creating YouTube videos, you need to ensure you are reaching your target audience. And that is why researching keywords is crucial.
-
-Once you have performed YouTube keyword research and determined the most suitable keywords for your topic, you can now use them to create target content for your audience. In turn, this will help you increase the number of subscribers on your YouTube channel. Your chances of your video showing up on YouTube will increase, which will bring traffic to your business.
-
-#### It's the Cheapest Way to Market Your Products or Services
-
-Video marketing is expensive, and that is why you have to find every possible edge for your video marketing if you want to lower your costs and increase your ROI. For this reason, keyword research will ensure your audience finds you without spending loads of money that you could have used on services like Google Ads.
-
-Because keyword research allows your target audience to find you, this means more opportunities for you. Most of the users will share entertaining videos.
-
-## How to Research Keywords on YouTube?
-
-There are several ways of conducting keyword research for YouTube to find out what people are searching for and determine the content in your video. They include:
-
-#### 1\. Using YouTube Search
-
-![youtube keyword search](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-5.png)
-
-Although this method doesn't provide all available search options, it's still good for getting an idea of the type of keyword with which you're dealing.
-
-You can start your research by typing the keywords into YouTube's search bar and reviewing the displayed results. It might be helpful to check out similar videos or video playlists. If your search seems too wide, you can enter several keywords at once (separated by commas), which will help you find better results.
-
-#### 2\. Using Google's Keyword Planner Tool
-
-![use google keyword planner for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-6.png)
-
-This tool is helpful for keyword difficulty and monthly searches volume assessment. If you only want to know the number of organic visits a given keyword gets, Google Keyword Planner might be helpful. The tool allows you to create lists consisting of related keywords and provides information about CPC (cost per click) and potential traffic in general.
-
-#### 3\. Using YouTube Suggestions
-
-What makes YouTube unique is its ability to suggest content based on your location, subscription, and watch history. You can use this method to find keyword ideas if you have subscribed to relevant channels. Also, you can rely on YouTube suggestions to find out whether a topic is popular or not.
-
-#### 4\. Using YouTube Analytics
-
-![ Using YouTube Analytic for yuotube keyword research](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-8.png)
-
-YouTube has a built-in Keyword Tool that is extremely helpful for researching the best keywords to use in your video titles, descriptions, and tags. This method allows you to see video search keywords with which users are finding your content. It is possible to review top organic keywords together with the respective engagement metrics, including bounce rate and average view duration.
-
-#### 5\. Using Third-Party YouTube Keyword Tools
-
-Last but not least, there are several third-party tools available on the market that provide both keyword difficulty and organic traffic estimation data for YouTube keywords. Some of these tools also offer similar features, including recommendations based on your existing subscriptions. Let's look at some of the popular YouTube tools that you can use.
-
-##### vidIQ
-
-![ VidIQ youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-1.png)
-
-Designed to boost YouTube views, vidIQ is an effective SEO tool. The tool recommends keywords, descriptions, and titles that will help you to get more views and subscribers.
-
-Performing vidIQ keyword research that relates to your video is a breeze. With just a few clicks, you will know what people are searching for and create content that they want to watch.
-
-The tool allows you to enable inline keywords to know the tags your competitors use on search results. Use them to help you generate ideas relevant to your content. vidIQ also suggests ideal keywords like YouTube.
-
-##### TubeBuddy
-
-![Tubebuddy youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-2.png)
-
-You can also use TubeBuddy to find and evaluate a range of YouTube keywords. You can do TubeBuddy keyword research on its mobile app or browser extension. The tool also shows how often people click on the results and how often users search a keyword.
-
-##### Keyword Keg
-
-![Keyword Keg youtube keyword research tool](https://images.wondershare.com/filmora/article-images/2021/youtube-keyword-research-3.png)
-
-Using the YouTube suggest API, Keyword Keg shows you the terms users search most and the monthly number of searches. You'll also see what other people are paying for CPC (cost per click). You can use this data to determine the best keywords for your YouTube videos.
-
-Qusetion: Are keywords and Tags the Same Thing?
-
-Answer: The main difference between tags and keywords is where you will place them. Keywords describe the content in your video to help search engines and YouTube's algorithm find your video. Tags describe what the content in your video is about and how it's connected.
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Make Great YouTube Videos with Filmora
 
 Having high-quality videos can make you stand out from your competitors. Filmora is a video editing software that allows you to create amazing YouTube videos. It has powerful editing tools that will enhance the quality of your videos.
@@ -460,6 +521,9 @@ Now that you know the importance of YouTube keyword research and how to perform 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Affordable Strategies for Engaging YouTube Opening & End Titles
 
 # How to Create YouTube Intros & End Cards - Free and Easy
@@ -486,6 +550,9 @@ Now that you know the importance of YouTube keyword research and how to perform 
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -512,6 +579,9 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -523,6 +593,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -654,6 +727,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -708,6 +784,9 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -780,6 +859,9 @@ Follow @Shanoon Cox
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -806,6 +888,9 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -817,6 +902,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -850,6 +938,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -872,3 +963,67 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-craft-memorable-content-explore-youtubes-top-10-creative-responses/"><u>[New] 2024 Approved  Craft Memorable Content  Explore YouTube's Top 10 Creative Responses</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-royalty-free-music-platforms-for-content-makers/"><u>[New] 2024 Approved  Cutting-Edge Royalty-Free Music Platforms for Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-ease-into-content-creation-crafting-the-top-10-accessible-youtube-videos/"><u>[New] 2024 Approved  Ease Into Content Creation  Crafting the Top 10 Accessible YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-gear-for-video-blogging-top-rated-camera-lenses-revealed/"><u>[New] 2024 Approved  Essential Gear for Video Blogging  Top-Rated Camera Lenses Revealed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-essential-steps-for-recording-captivate-videos/"><u>[New] 2024 Approved  Essential Steps for Recording Captivate Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-the-top-15-scientific-channels-to-grow-wisdom/"><u>[New] 2024 Approved  Explore the Top 15 Scientific Channels to Grow Wisdom</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-prime-shopping-destinations-customizable-presents-with-flair/"><u>[New] 2024 Approved  Prime Shopping Destinations  Customizable Presents with Flair</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-tackling-muted-frames-on-snapchat-videos-the-ultimate-solution/"><u>[New] 2024 Approved  Tackling Muted Frames on Snapchat Videos - The Ultimate Solution</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-digital-whirlwind-top-30-hashes-for-video-stardom-for-2024/"><u>[New] Digital Whirlwind  Top 30 Hashes for Video Stardom for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-video-game-youtube-production-mastery-for-2024/"><u>[New] Elevate Your Video Game  YouTube Production Mastery for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-engaging-video-credits-the-best-fonts-for-thumbnails-for-2024/"><u>[New] Engaging Video Credits  The Best Fonts for Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-innovative-concepts-for-youtube-success-and-inspiration/"><u>[New] Innovative Concepts for YouTube Success and Inspiration</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-keep-watching-youtube-on-the-go-with-iphoneandroid/"><u>[New] Keep Watching YouTube On-the-Go with iPhone/Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-make-your-comments-pop-with-emojis-in-youtube/"><u>[New] Make Your Comments Pop with Emojis in YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-idevice-screen-recording-techniques-for-youtube/"><u>[New] Mastering iDevice Screen Recording Techniques for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-playbook-for-earning-via-youtube-shorts/"><u>[New] The Ultimate Playbook for Earning via YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-zero-cost-techniques-for-video-and-text-combination/"><u>[New] Zero-Cost Techniques for Video and Text Combination</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-11-year-old-video-sensation-unprecedented-wealth-accumulation/"><u>[Updated] 2024 Approved  11-Year-Old Video Sensation  Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-anime-youtube-essentials-the-best-20-channels/"><u>[Updated] 2024 Approved  Anime YouTube Essentials  The Best 20 Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-building-gear-a-quick-start-guide/"><u>[Updated] 2024 Approved  Channel-Building Gear  A Quick Start Guide</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-directly-connect-tweeting-with-videos-on-whatsapp/"><u>[Updated] 2024 Approved  Directly Connect  Tweeting with Videos on WhatsApp</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-7-places-to-find-royalty-free-sound-effects-for-youtube-videos/"><u>[Updated] 7 Places to Find Royalty Free Sound Effects for YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-beyond-basics-tips-for-effective-qanda-sticker-usage-on-instagram/"><u>[Updated] Beyond Basics  Tips for Effective Q&A Sticker Usage on Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-tips-for-free-youtube-video-transcriptions-for-2024/"><u>[Updated] Essential Tips for FREE YouTube Video Transcriptions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-experts-guide-to-finding-cheap-sbd-solutions/"><u>[Updated] Expert's Guide to Finding Cheap SBD Solutions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-the-magic-behind-color-grading-with-luts/"><u>[Updated] Exploring the Magic Behind Color Grading with LUTs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-compre-written-in-code-deciphering-youtube-backlink-building-techniques/"><u>[Updated] In 2024, A Compre Written in Code  Deciphering YouTube Backlink Building Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-channel-with-these-top-11-budget-friendly-tools/"><u>[Updated] In 2024, Elevate Your Channel with These Top 11 Budget-Friendly Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-video-game-youtube-production-mastery/"><u>[Updated] In 2024, Elevate Your Video Game  YouTube Production Mastery</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-famebit-alternatives-for-finding-youtube-sponsorships/"><u>[Updated] In 2024, FameBit Alternatives for Finding YouTube Sponsorships</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-revolutionizing-video-views-conquering-youtube-millions/"><u>[Updated] In 2024, Revolutionizing Video Views, Conquering YouTube Millions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-increase-watch-time-win-viewers-on-youtube/"><u>[Updated] Increase Watch Time, Win Viewers on YouTube</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-prime-products-best-free-and-paid-macpc-video-decoders/"><u>[Updated] Prime Products  Best Free & Paid Mac/PC Video Decoders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift/"><u>[Updated] Quick Guide  YouTube Soundtracks to MP3 for MacOS 2Shift</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essential-guide-to-making-youtube-thumbnails-for-mobile-storytellers/"><u>[Updated] The Essential Guide to Making YouTube Thumbnails for Mobile Storytellers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-finishing-touch-journalisms-close-call/"><u>[Updated] The Finishing Touch  Journalism's Close Call</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-advanced-text-finessing-guide/"><u>2024 Approved  Advanced Text Finessing Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-connectivity-at-its-peak-usb-c-and-the-hp-envy-27-monitor/"><u>2024 Approved  Connectivity at Its Peak  USB-C & the HP Envy 27 Monitor</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-rise-in-popularity-top-10-instagram-hashtags-for-now/"><u>2024 Approved  Rise in Popularity  Top 10 Instagram Hashtags for Now</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-your-way-into-animated-gifs-turning-youtube-content-without-downloads/"><u>Binge Your Way Into Animated Gifs  Turning YouTube Content Without Downloads</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comprehensive-manual-for-registry-editing-with-command-prompt/"><u>Comprehensive Manual for Registry Editing with Command Prompt</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/enabling-duplex-print-for-office-hp-devices/"><u>Enabling Duplex Print for Office HP Devices</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-oppo-a1x-5g-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Oppo A1x 5G FRP Locks</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-c67-4g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme C67 4G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-motorola-g24-power-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Motorola G24 Power For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-network-locked-samsung-galaxy-a34-5g-phone-by-drfone-android/"><u>How to Unlock a Network Locked Samsung Galaxy A34 5G Phone?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-oppo-a56s-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Oppo A56s 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-connect-and-share-youtube-in-instagrams-ecosystem/"><u>In 2024, Connect & Share  YouTube in Instagram's Ecosystem</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-conquer-youtubes-realms-a-step-by-step-video-uploading-guidebook/"><u>In 2024, Conquer YouTube's Realms  A Step-by-Step Video Uploading Guidebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-iphone-14-plus-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My iPhone 14 Plus?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-sony-vegas-not-your-cup-of-tea-discover-top-alternatives-for-windows/"><u>In 2024, Sony Vegas Not Your Cup of Tea? Discover Top Alternatives for Windows</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-samsung-galaxy-s23plus-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Samsung Galaxy S23+ Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-visual-virtuosity-mastering-motivation-on-instagram/"><u>In 2024, Visual Virtuosity  Mastering Motivation on Instagram</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721477142579-is-your-iphone-sending-mms-when-you-expected-an-imessage-find-out-why/"><u>Is Your iPhone Sending MMS When You Expected an iMessage? Find Out Why!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-guide-to-video-extraction-from-youtube-for-2024/"><u>Quick Guide to Video Extraction From YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/securely-distributing-exclusive-youtube-videos-through-gmail-for-2024/"><u>Securely Distributing Exclusive YouTube Videos Through Gmail for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-presentations-how-to-add-youtube-videos-to-ppt-for-2024/"><u>Streamlining Presentations  How to Add YouTube Videos to PPT for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-15-apps-to-hack-wifi-password-on-vivo-x-fold-2-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Vivo X Fold 2</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-unable-to-deliver-sms-top-10-solutions/"><u>Troubleshooting: IPhone Unable to Deliver SMS - Top 10 Solutions</u></a></li>
+</ul></div>

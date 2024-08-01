@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Deciphering Your YouTube Viewership Stats\""
-date: 2024-06-05T05:45:07.929Z
-updated: 2024-06-06T05:45:07.929Z
+date: 2024-07-31T02:01:27.161Z
+updated: 2024-08-01T02:01:27.161Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/287414ff43ab53f27880b8114eed3693184381a70
 
 # How to View YouTube Statistics
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,14 +38,23 @@ The information available for each video includes how many new subscribers it at
 * **[Interpreting YouTube Interaction Reports](#interaction)**
 * **[How to View Other People's YouTube Statistics](#otherpeople)**
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Making Better YouTube Videos with Filmora to Get More Views
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -51,6 +63,9 @@ In order to check which of your videos are performing the best, click on **Watch
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -95,6 +110,9 @@ If you want to check out the statistics of rival YouTube channels ([including th
 
 Now that you know how to view YouTube statistics, what will you do with them?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -111,3 +129,57 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-17-best-lights-and-lighting-equipment-for-youtube-videos/"><u>[New] 2024 Approved  17 Best Lights and Lighting Equipment for YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-ace-the-game-crafting-a-pro-gaming-channels-success-story/"><u>[New] 2024 Approved  Ace the Game  Crafting a Pro Gaming Channels Success Story</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beautiful-beginnings-creating-your-personalized-glam-vlog/"><u>[New] 2024 Approved  Beautiful Beginnings  Creating Your Personalized Glam Vlog</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-confirmation-procedures-for-youtube-users/"><u>[New] 2024 Approved  Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-conveniently-share-your-videos-youtube-shorts-mobilecomputer-tips/"><u>[New] 2024 Approved  Conveniently Share Your Videos  YouTube Shorts Mobile/Computer Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-advanced-tips-for-mastering-color-grading-via-3d-luts-in-photoshop/"><u>[New] Advanced Tips for Mastering Color Grading via 3D LUTs in Photoshop</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-creating-impressive-3d-beginnings-on-youtube-for-2024/"><u>[New] Creating Impressive 3D Beginnings on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-end-screen-elegance-free-guides-to-upgrade-your-videos-for-2024/"><u>[New] End-Screen Elegance - Free Guides to Upgrade Your Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-exploring-asmrs-role-in-better-sleep-cycles-for-2024/"><u>[New] Exploring ASMR's Role in Better Sleep Cycles for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-steps-to-perfect-youtube-reactions-a-trio-guide/"><u>[New] In 2024, 10 Steps to Perfect YouTube Reactions – A Trio Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-create-effective-youtube-advertisements-on-a-budget/"><u>[New] In 2024, Create Effective YouTube Advertisements on a Budget</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-tips-creating-striking-youtube-video-previews/"><u>[New] In 2024, Essential Tips  Creating Striking YouTube Video Previews</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-stream-viewer-unraveler-for-2024/"><u>[New] Stream Viewer Unraveler for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-subforsub-review-is-it-safe-to-use-for-increasing-youtube-subscribers/"><u>[New] Subforsub Review? Is It Safe to Use for Increasing YouTube Subscribers?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-tutorial-transferring-youtube-videos-to-dailymotion/"><u>[New] The Ultimate Tutorial  Transferring YouTube Videos to Dailymotion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-free-content-creation-blending-text-and-video/"><u>[New] Unlocking Free Content Creation  Blending Text & Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elite-gaming-setup-essentials-revealed/"><u>[Updated] 2024 Approved  Elite Gaming Setup Essentials Revealed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-prime-video-titans-the-tweeted-and-tested-binge-masters/"><u>[Updated] 2024 Approved  Prime Video Titans  The #Tweeted and Tested Binge Masters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-views-strategic-partnerships-on-youtube-for-rapid-growth-for-2024/"><u>[Updated] Boost Views  Strategic Partnerships on YouTube for Rapid Growth for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-engagement-crafting-instagram-highlights-in-3-steps-for-2024/"><u>[Updated] Elevate Engagement  Crafting Instagram Highlights in 3 Steps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-forget-youtube-try-these-top-5-video-editor-options/"><u>[Updated] Forget Youtube? Try These Top 5 Video Editor Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-mix-text-and-video-on-a-shoestring-budget/"><u>[Updated] How to Mix Text & Video on a Shoestring Budget</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-convert-your-shorts-to-mp4-video-enhancement-techniques/"><u>[Updated] In 2024, Convert Your Shorts to Mp4  Video Enhancement Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exploring-t-series-youtube-profit-strategy/"><u>[Updated] In 2024, Exploring T-Series YouTube Profit Strategy</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-obs-vs-shadowplay-which-recording-tool-takes-the-prize/"><u>[Updated] In 2024, OBS Vs ShadowPlay  Which Recording Tool Takes the Prize?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-knowledge-hub-leading-educational-youtube-sources/"><u>[Updated] Knowledge Hub  Leading Educational YouTube Sources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-making-an-impression-professional-pc-editing-strategies-for-youtube/"><u>[Updated] Making an Impression  Professional PC Editing Strategies for YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-video-dimensions-the-key-to-youtube-presence/"><u>[Updated] Mastering Video Dimensions  The Key to YouTube Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-organize-and-share-music-how-to-make-youtube-playlists-easier/"><u>[Updated] Organize and Share Music  How to Make YouTube Playlists Easier</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-witness-youtube-techniques-for-rapid-rendering/"><u>[Updated] Quick-Witness YouTube Techniques for Rapid Rendering</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-chefs-roadmap-creating-culinary-content/"><u>[Updated] The Chef's Roadmap  Creating Culinary Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-path-to-beaming-beauty-expertise-starting-an-online-show/"><u>[Updated] Your Path to Beaming Beauty Expertise  Starting an Online Show</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-recommended-videos-block-the-videos/"><u>[Updated] YouTube Recommended Videos - Block the Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-skyeconomys-haven-budget-friendly-large-data-space/"><u>2024 Approved  SkyEconomy's Haven  Budget-Friendly Large Data Space</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-variants-of-moviemaker-pro-on-windows/"><u>2024 Approved  Variants of MovieMaker Pro on WIndows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-to-avi-mastery-top-8-convertors-reviewed/"><u>2024 Approved  YouTube to AVI Mastery  Top 8 Convertors Reviewed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-motorola-moto-g-5g-2023-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-shaky-to-steady-selecting-the-best-gimbals-for-your-drones/"><u>From Shaky to Steady  Selecting the Best Gimbals for Your Drones</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-infinix-note-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-forex-trade-copier-software-on-mt4-and-mt5-by-mt4copier-guide/"><u>How to Install Forex Trade Copier Software on MT4 and MT5</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-timeless-tale-of-roguelike-and-roguelite/"><u>In 2024, The Timeless Tale of Roguelike and Roguelite</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-opening-scenes-top-16-youtube-intros-for-popularity-for-2024/"><u>Premium Opening Scenes  Top 16 YouTube Intros for Popularity for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-your-video-content-with-free-intro-designers-for-2024/"><u>Revolutionize Your Video Content with Free Intro Designers for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/seamless-entry-into-google-meet-with-device-use/"><u>Seamless Entry Into Google Meet with Device Use</u></a></li>
+<li><a href="https://windows11.techidaily.com/shrouding-outage-with-code-0xc00d36b4-in-windows/"><u>Shrouding Outage with Code 0XC00D36B4 in Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube-for-2024/"><u>The Content Dilemma  Deciding on the Best Platform - IGTV or YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-rising-tide-of-infographics-for-social-insights-for-2024/"><u>The Rising Tide of Infographics for Social Insights for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlock-full-screen-browsing-potential-in-safari-for-apple/"><u>Unlock Full-Screen Browsing Potential in Safari for Apple</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Vivo Y27s? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-realme-narzo-60-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Realme Narzo 60 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-rotation-simplified-techniques-for-any-degree-updated-edition-for-2024/"><u>YouTube Rotation Simplified  Techniques for Any Degree [Updated Edition] for 2024</u></a></li>
+</ul></div>

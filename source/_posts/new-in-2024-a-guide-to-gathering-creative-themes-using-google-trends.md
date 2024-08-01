@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, A Guide to Gathering Creative Themes Using Google Trends"
-date: 2024-06-05T03:53:50.781Z
-updated: 2024-06-06T03:53:50.781Z
+date: 2024-07-30T22:54:24.774Z
+updated: 2024-07-31T22:54:24.774Z
 tags:
   - ai video
   - ai youtube
@@ -34,8 +34,23 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 ## Part 1: Seeing The Big Picture
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -68,6 +83,9 @@ Once you have narrowed down your results you can just scroll through and pick ou
 
 For example, if you have a gaming channel and you’re looking for a non-gameplay topic to make a video on, you would look under Sci/Tech. If I look under that category today (May 29, 2017) and specify that I want topics trending in the United States then these are my top 5 results:
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -76,6 +94,9 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -88,6 +109,9 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
@@ -98,6 +122,9 @@ There, now I can see how the popularity of Filmora as a search term has spiked o
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -106,6 +133,9 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
@@ -140,3 +170,35 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-owner-uncovering-your-subscribers/"><u>[New] 2024 Approved  Channel Owner  Uncovering Your Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-digging-through-youtube-conversations/"><u>[New] 2024 Approved  Digging Through YouTube Conversations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>[New] 2024 Approved  Effortless Sound Sourcing  The Top 15 Freebie Audiosites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-youtube-creation-by-merging-media-and-music/"><u>[New] 2024 Approved  Elevate Your YouTube Creation by Merging Media and Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-expansion-sharing-your-show-across-30-platforms-for-2024/"><u>[New] Channel Expansion  Sharing Your Show Across 30 Platforms for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-exclusive-webcast-winners-for-2024/"><u>[New] Exclusive Webcast Winners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-beginners-guide-to-seo-skyrocket-your-view-count/"><u>[New] In 2024, A Beginner’s Guide to SEO  Skyrocket Your View Count</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-conquer-youtube-searches-with-these-top-11-seo-strategies/"><u>[New] In 2024, Conquer YouTube Searches with These Top 11 SEO Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-decoding-the-core-contrasts-between-youtube-and-dailymention/"><u>[New] In 2024, Decoding the Core Contrasts Between YouTube and DailyMention</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-battlebuddies-channel-over-a-hundred-friends-in-games/"><u>[Updated] 2024 Approved  BattleBuddies Channel  Over a Hundred Friends in Games</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-rated-5-backdrop-change-utilities-for-iphones-x78/"><u>[Updated] Best-Rated 5 Backdrop Change Utilities for iPhones X/7/8</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-creating-focus-in-meetings-blurring-the-video-uniformity-for-2024/"><u>[Updated] Creating Focus in Meetings  Blurring the Video Uniformity for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-make-your-youtube-moments-come-alive-creating-dynamic-gifs/"><u>[Updated] How to Make Your YouTube Moments Come Alive  Creating Dynamic GIFs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-youtube-traffic-perfecting-titles-and-tags-for-max-views/"><u>[Updated] In 2024, Boosting YouTube Traffic  Perfecting Titles & Tags for Max Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elite-video-influencers/"><u>[Updated] In 2024, Elite Video Influencers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-explore-8-best-strategies-for-increasing-youtube-traffic/"><u>[Updated] In 2024, Explore 8 Best Strategies for Increasing Youtube Traffic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-insiders-approach-to-maximizing-youtube-video-revenue/"><u>[Updated] The Insider's Approach to Maximizing YouTube Video Revenue</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-itel-p55-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Itel P55</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-motorola-moto-g34-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Motorola Moto G34 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-perfect-screen-recording-made-simple-and-orderly/"><u>In 2024, Perfect Screen Recording Made Simple & Orderly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-video-magic-best-tools-for-effortless-webm-conversion/"><u>In 2024, YouTube Video Magic  Best Tools for Effortless WebM Conversion</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-in-this-article-you-will-see-how-filmora-video-cutter-and-joiner-lets-you-cut-and-join-the-best-of-your-original-footage/"><u>New 2024 Approved In This Article, You Will See How Filmora Video Cutter and Joiner Lets You Cut and Join the Best of Your Original Footage</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-the-ultimate-list-of-live-chat-apps-for-shopify/"><u>New In 2024, The Ultimate List of Live Chat Apps for Shopify</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/short-video-showdown-comparing-success-on-youtubes-vs-tiktok-for-2024/"><u>Short Video Showdown  Comparing Success on YouTubes Vs. TikTok for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-your-potential-skyrocketing-numbers-of-youtubers-subscribers-for-2024/"><u>Unleash Your Potential  Skyrocketing Numbers of YouTubers' Subscribers for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleashing-windows-11s-full-visual-potential-with-automatic-hdr-mode/"><u>Unleashing Windows 11'S Full Visual Potential with Automatic HDR Mode</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-itel-p55-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Itel P55 5G? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-banner-tactics-dos-and-donts-for-optimal-visibility-for-2024/"><u>YouTube Banner Tactics  Dos and Don'ts for Optimal Visibility for 2024</u></a></li>
+</ul></div>

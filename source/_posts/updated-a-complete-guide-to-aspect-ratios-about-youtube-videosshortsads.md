@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads"
-date: 2024-06-05T05:26:07.177Z
-updated: 2024-06-06T05:26:07.177Z
+date: 2024-07-31T01:29:26.492Z
+updated: 2024-08-01T01:29:26.492Z
 tags:
   - ai video
   - ai youtube
@@ -56,14 +56,32 @@ Like Android phones, iOS devices such as iPhone, iPad, YouTube App player will a
 
 Let’s take the example of Vertical Video display in YouTube Screen:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![vertical video example](https://images.wondershare.com/filmora/article-images/2021/vertical-video-example.jpg)
 
 Also, by selecting the Expand option, the video will adjust itself to fill the entire screen.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2 YouTube Shorts Aspect Ratio
 
 The world is moving swiftly, and with day passing, people want to complete their tasks as quickly as possible. The impact is seen in the field of the YouTube Video making process also with the introduction of YouTube Shorts. After following the short video trends of TikTok, this time YouTube appeared with its new feature YouTube Shorts, which allows a user to create a short video that ranges from 15 to 60 seconds. The only need is for a Smartphone and YouTube Application Shorts camera. And then you are good to go. Note that YouTube Shorts videos get searched and watched by people mainly through their phones.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
 
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
@@ -76,6 +94,9 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3 Aspect Ratios for YouTube Ads
 
 If you want to monetize from your video or Shorts, use YouTube Ads to generate additional income. Or, if you are already in some business and want to grow your business, do it with YouTube Ads.
@@ -92,6 +113,9 @@ Sponsor Card Ads Ratio: 1:1
 
 True View Discovery Ads Ratio: 16:9 or 4:3
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4 Think More about YouTube Aspect Ratio
 
 You have been listening about YouTube Screen size or YouTube Aspect Ratio so far many times. Now the biggest question is, how to adjust the Aspect Ratio of YouTube Video or Shorts?
@@ -112,8 +136,14 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More about Filmora >](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
@@ -136,3 +166,55 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-peak-performance-best-post-times-unveiled/"><u>[New] 2024 Approved  Peak Performance  Best Post Times Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-beginners-path-to-compiling-a-youtube-playlist-for-2024/"><u>[New] A Beginner's Path to Compiling a YouTube Playlist for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-budget-friendly-vlogging-cameras-unveiled-our-picks-for-2024/"><u>[New] Budget-Friendly Vlogging Cameras Unveiled  Our Picks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earn-while-you-entertain-the-content-creators-guide/"><u>[New] In 2024, Earn While You Entertain  The Content Creator's Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-financial-flourishing-yielding-higher-returns-with-mobile-youtube-content/"><u>[New] In 2024, Financial Flourishing  Yielding Higher Returns with Mobile YouTube Content</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-smooth-transition-uploading-imovie-films-into-vimeo/"><u>[New] Smooth Transition  Uploading iMovie Films Into Vimeo</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-disregarding-harmful-youtube-comments/"><u>[New] The Art of Disregarding Harmful YouTube Comments</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-impact-of-instant-subscribing-on-online-viewing-habits/"><u>[New] The Impact of Instant Subscribing on Online Viewing Habits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-checklist-for-optimizing-videos-with-pro-tags/"><u>[New] The Ultimate Checklist for Optimizing Videos with Pro Tags</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-youtube-sign-up-rate-learn-anime-subscribe-buttons-in-filmora/"><u>[New] Transform Your YouTube Sign-Up Rate - Learn Anime Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-the-undisclosed-territories-of-youtube-videos/"><u>[Updated] 2024 Approved  Charting the Undisclosed Territories of YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cost-effective-audio-equipment-for-newcomers/"><u>[Updated] 2024 Approved  Cost-Effective Audio Equipment for Newcomers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-video-playback-with-youtubes-latest-feature-av1/"><u>[Updated] 2024 Approved  Elevate Video Playback with YouTube's Latest Feature - AV1</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-strategies-for-successful-mukbang-production/"><u>[Updated] 2024 Approved  Essential Strategies for Successful Mukbang Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-expressive-sketches-for-fortnite-icons/"><u>[Updated] 2024 Approved  Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dream-makers-the-online-marvel-experience-for-2024/"><u>[Updated] Dream Makers  The Online Marvel Experience for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-engagement-how-to-craft-a-direct-subscribe-link-for-2024/"><u>[Updated] Effortless Engagement  How to Craft a Direct Subscribe Link for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes-for-2024/"><u>[Updated] Expert Tips for YouTube Channel Aesthetics  Finding Optimal Sizes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-guide-to-livecasting-google-meet-on-youtube/"><u>[Updated] Guide to Livecasting Google Meet on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-see-your-subscribers-on-youtube/"><u>[Updated] How to See Your Subscribers on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-buzzing-beats-leading-music-distortion-apps/"><u>[Updated] In 2024, Buzzing Beats  Leading Music Distortion Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-cross-promotion-mastery-sharing-igtv-to-fb/"><u>[Updated] In 2024, Cross-Promotion Mastery  Sharing IGTV to FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cutting-edge-strategies-for-flawless-custom-shorts-coverage/"><u>[Updated] In 2024, Cutting-Edge Strategies for Flawless Custom Shorts Coverage</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-defining-your-digital-dna-a-guide-to-youtubing-personal-branding/"><u>[Updated] In 2024, Defining Your Digital DNA  A Guide to YouTubing Personal Branding</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-master-your-content-essential-trimmer-tools-for-youtube/"><u>[Updated] Master Your Content  Essential Trimmer Tools for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-simply-saver-top-mobile-apps-for-downloading-youtube-series-and-songs/"><u>[Updated] Simply Saver  Top Mobile Apps for Downloading YouTube Series & Songs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-pathway-to-profitability-navigating-youtube-adsense/"><u>[Updated] The Pathway to Profitability  Navigating YouTube AdSense</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-perfect-end-youtube-outro-essentials-and-top-creators/"><u>[Updated] The Perfect End  YouTube Outro Essentials & Top Creators</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-expert-tips-to-correct-video-transmission-problem-on-mobile-messengers/"><u>2024 Approved  Expert Tips to Correct Video Transmission Problem on Mobile Messengers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-rise-above-the-crowd-in-instagram-world-with-these-9-must-try-strategies/"><u>2024 Approved  Rise Above the Crowd in Instagram World with These 9 Must-Try Strategies</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-clicks-top-tags-for-gamers-content-for-2024/"><u>Crafting Clicks  Top Tags for Gamers' Content for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-samsung-galaxy-a34-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Samsung Galaxy A34 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-oppo-a1-5g-by-drfone-android/"><u>How to Bypass FRP from Oppo A1 5G?</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-14-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/ideal-photo-correction-software/"><u>Ideal Photo Correction Software</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-camguard-elite-mesh-patch/"><u>In 2024, CamGuard Elite Mesh Patch</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-vivo-g2-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Vivo G2</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-flawless-free-download-of-youtube-video-covers-no-hurdles/"><u>In 2024, Flawless Free Download of YouTube Video Covers - No Hurdles!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-infinix-zero-30-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Infinix Zero 30 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-jailbreak-icloud-locked-iphone-13-pro-by-drfone-ios/"><u>In 2024, How to jailbreak iCloud locked iPhone 13 Pro</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-f15-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy F15 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-vivo-x100-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Vivo X100 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/innovative-ways-to-remove-ssgnature-backdrops-fast-for-2024/"><u>Innovative Ways to Remove Ssgnature Backdrops Fast for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/memes-unleashed-ranking-the-best-templates-10/"><u>Memes Unleashed  Ranking the Best Templates #10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/no-cost-to-you-heres-a-list-of-7-free-editing-apps-for-2024/"><u>No Cost to You? Here's a List of 7 Free Editing Apps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rise-to-the-top-mastering-youtube-descriptions-with-customizable-templates-for-2024/"><u>Rise to the Top  Mastering YouTube Descriptions with Customizable Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tailor-the-rhythm-of-youtube-videos-desktopmobile-way-for-2024/"><u>Tailor the Rhythm of YouTube Videos - Desktop/Mobile Way for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-unspoken-rules-for-asmr-enthusiasts-for-2024/"><u>The Unspoken Rules for ASMR Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tutorial-tracking-down-your-youtube-comments-for-2024/"><u>Tutorial  Tracking Down Your YouTube Comments for 2024</u></a></li>
+</ul></div>

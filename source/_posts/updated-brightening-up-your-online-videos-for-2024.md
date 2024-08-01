@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Brightening Up Your Online Videos for 2024"
-date: 2024-06-05T05:32:50.994Z
-updated: 2024-06-06T05:32:50.994Z
+date: 2024-07-31T01:40:37.266Z
+updated: 2024-08-01T01:40:37.266Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/93e8b8eb6bc88169936766a6461fe23e663eb5979
 
 # Lighting Tips for Vlogging: How to Light
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -28,8 +31,14 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## Video Lighting Basics: Three Point Lighting
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -44,6 +53,9 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -70,12 +82,18 @@ This is by far the best option if you want to be in complete control of the ligh
 
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -98,3 +116,48 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-templates-unlocking-your-videos-potential/"><u>[New] 2024 Approved  Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-thumbnail-extract-from-youtube-videos-today/"><u>[New] 2024 Approved  Free Thumbnail Extract From YouTube Videos Today</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-background-blur-101-boosting-video-clarity-on-youtube-for-2024/"><u>[New] Background Blur 101  Boosting Video Clarity on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-budget-friendly-webinar-strategies-for-youtube-for-2024/"><u>[New] Budget-Friendly Webinar Strategies for YouTube for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-capture-lifes-movement-integrating-motion-blur-into-face-photography-with-picsart/"><u>[New] Capture Life's Movement  Integrating Motion Blur Into Face Photography with Picsart</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>[New] In 2024, A Treasure Trove  Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-fanbase-with-youtube-streams/"><u>[New] In 2024, Building a Fanbase with YouTube Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-excellence-exchange-global-creators/"><u>[New] In 2024, Excellence Exchange  Global Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-first-youtube-journey-a-money-making-blueprint/"><u>[New] Your First Youtube Journey  A Money-Making Blueprint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-viewers-your-wealth-building-an-earning-strategy/"><u>[New] Your Viewers, Your Wealth  Building an Earning Strategy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-deep-dive-into-youtubes-latest-monetization-policy/"><u>[Updated] 2024 Approved  A Deep Dive Into YouTube's Latest Monetization Policy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-decoding-monetization-how-much-creators-earn-per-ad-on-youtube/"><u>[Updated] 2024 Approved  Decoding Monetization  How Much Creators Earn Per Ad on YouTube?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-download-all-youtube-images-for-free/"><u>[Updated] 2024 Approved  Download All YouTube Images for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-emotional-impact-in-personal-youtube-content-for-2024/"><u>[Updated] Crafting Emotional Impact in Personal YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-conversion-youtube-to-written-format-for-2024/"><u>[Updated] Expert Conversion  YouTube to Written Format for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-raw-footage-to-final-cut-youtube-studio-edition/"><u>[Updated] From Raw Footage to Final Cut  YouTube Studio Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chart-topping-video-content-on-youtube/"><u>[Updated] In 2024, Chart-Topping Video Content on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-digital-dollars-earn-from-youtubers-in-8-ways/"><u>[Updated] In 2024, Digital Dollars  Earn From YouTubers in 8 Ways</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easily-transform-youtube-music-into-mp3-for-mac-os/"><u>[Updated] In 2024, Easily Transform YouTube Music Into MP3 for Mac OS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos/"><u>[Updated] In 2024, Elevating Your Video's Visual Impact  YoutubThumbnail Design on macOS</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mystery-of-continuous-pauses-in-photo-booths/"><u>[Updated] Mystery of Continuous Pauses in Photo Booths</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-palette-playbook-utilizing-theoretical-knowledge/"><u>[Updated] Palette Playbook  Utilizing Theoretical Knowledge</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tackling-youtubes-dark-view-troubleshooting-steps/"><u>[Updated] Tackling YouTube's Dark View  Troubleshooting Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-guide-to-youtube-app-on-iphones-and-androids/"><u>[Updated] Ultimate Guide to YouTube App on iPhones and Androids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-shorts-are-back-on-youtube/"><u>[Updated] Your Shorts Are Back on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-equipment-for-gaming-channels-best-gaming-gears/"><u>[Updated] YouTube Equipment for Gaming Channels - Best Gaming Gears</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/account-liberation-freeing-your-fb-identity/"><u>Account Liberation  Freeing Your FB Identity</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-infinix-hot-30-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Infinix Hot 30 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-vivo-t2x-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP from Vivo T2x 5G?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-itops-expert-selection-best-windows-screencasters/"><u>In 2024, ITop's Expert Selection  Best Windows Screencasters</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unshakeable-video-quality-best-stabilizers/"><u>In 2024, Unshakeable Video Quality - Best Stabilizers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/infinix-smart-8-hd-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Infinix Smart 8 HD ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-notebooks-select-the-best-for-professional-edits-for-2024/"><u>Premium Notebooks  Select the Best for Professional Edits for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reviving-vintage-visual-storytelling-techniques-today-for-2024/"><u>Reviving Vintage Visual Storytelling Techniques Today for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/syncing-songs-safely-with-insta-rules-for-2024/"><u>Syncing Songs Safely with Insta Rules for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-key-to-sharing-success-youtubes-most-impactful-hashes/"><u>The Key to Sharing Success  YouTube's Most Impactful Hashes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-finding-a-quality-microphone-for-every-yt-style-for-2024/"><u>The Ultimate Guide to Finding a Quality Microphone for Every YT Style for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/thematic-concepts-for-daily-vlog-content-for-2024/"><u>Thematic Concepts for Daily Vlog Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-business-potential-top-10-streamlined-channel-setup-ideas-on-youtube-for-2024/"><u>Unlock Business Potential  Top 10 Streamlined Channel Setup Ideas on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-the-secrets-to-12-incredible-gamers-intro-videos-yt-no-cost-for-2024/"><u>Unlock the Secrets to 12 Incredible Gamers' Intro Videos (YT No Cost) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-financial-dynamics-of-youtube-shorts-for-2024/"><u>Unveiling the Financial Dynamics of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubers-essential-camera-guidebook-for-2024/"><u>YouTubers' Essential Camera Guidebook for 2024</u></a></li>
+</ul></div>

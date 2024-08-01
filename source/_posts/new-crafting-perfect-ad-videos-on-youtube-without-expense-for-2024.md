@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Perfect Ad Videos on YouTube Without Expense for 2024"
-date: 2024-06-05T06:49:48.702Z
-updated: 2024-06-06T06:49:48.702Z
+date: 2024-07-31T03:51:17.116Z
+updated: 2024-08-01T03:51:17.116Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/7dc1f793da1f2b9c448c995323e3532e944d03082
 
 # How to Create Video Ads for Free in YouTube Video Builder
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +39,9 @@ With that being said, the following sections talk about what **YouTube Video Bui
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What Is YouTube Video Builder?
 
 YouTube recently came up with an online tool, **YouTube Video Builder**, that, as the name suggests, enables you as an organization to prepare videos for free. These videos could be anywhere from 6 to 15 seconds long and are most appropriate for advertisements. Once created, the films can be used in the campaigns to promote your brand and/or products online.
@@ -92,6 +98,9 @@ Next, from the **Color & Logo** section, choose the base (background) and text c
 
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
 
 #### Step 2: Add the Ingredients
@@ -102,6 +111,9 @@ When you are on the **Images & Text** section of the navigation bar, pick the hi
 
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
 
 #### Step 3: Make Cosmetic Manipulations
@@ -112,10 +124,16 @@ From the **Pick a Font** section of the navigation bar, click the **Google Fonts
 
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
 #### Step 4: Save the Video and Begin Promotion
@@ -130,6 +148,9 @@ On the next page, click **Copy** to copy the video link, and share it with your 
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
@@ -148,6 +169,9 @@ The whole point here is to prepare your video adverts with the least investment 
 
 The bitter truth is, producing videos, especially for brand promotions requires expert creators, expensive tools, and a good amount of work experience. Although all these can be managed if you have some spare funds, **YouTube Video Builder** helps you create advertising videos of up to 15 seconds with ease and for free. All you need is access to **YouTube Video Builder**, your own YouTube Channel, your brand logo, and high-definition photos of your product(s).
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -164,3 +188,57 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-compre-written-in-sounds-youtube-playlists-decoded/"><u>[New] 2024 Approved  A Compre Written in Sounds  YouTube Playlists Decoded</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>[New] 2024 Approved  Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-downloading-the-latest-tracks-a-guide-to-free-extractors-for-pc-users/"><u>[New] 2024 Approved  Downloading the Latest Tracks  A Guide to Free Extractors for PC Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earn-more-maximizing-income-through-youtube-mobile-advertising/"><u>[New] 2024 Approved  Earn More  Maximizing Income Through YouTube Mobile Advertising</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[New] 2024 Approved  Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-igtv-downloads-decoded-iphone-and-android-edition/"><u>[New] 2024 Approved  IGTV Downloads Decoded  IPhone & Android Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-asmr-app-selection-guide-for-phones-for-2024/"><u>[New] ASMR App Selection Guide for Phones for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-average-income-for-popular-youtube-creators-for-2024/"><u>[New] Average Income for Popular YouTube Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-success-across-social-networks-youtube-plus-more-for-2024/"><u>[New] Channel Success Across Social Networks  YouTube + More for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cozy-up-your-videos-best-winter-bgs-revealed-for-2024/"><u>[New] Cozy Up Your Videos  Best Winter Bg's Revealed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-engaging-videos-with-7-free-premium-soundscapes-for-2024/"><u>[New] Craft Engaging Videos with 7 Free, Premium Soundscapes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cut-the-cost-not-your-content-quality-try-these-top-8-free-tools-for-2024/"><u>[New] Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-techniques-top-lenses-for-youtube-stars-for-2024/"><u>[New] Cutting-Edge Techniques  Top Lenses for YouTube Stars for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-youtube-income-how-much-does-each-1000-viewer-earn-in-2024/"><u>[New] Decoding YouTube Income  How Much Does Each 1,000 Viewer Earn, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-dive-into-creating-alluring-youtube-video-intros-for-2024/"><u>[New] Dive Into Creating Alluring YouTube Video Intros for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-fusion-of-youtube-audio-with-imovie-masterpieces-for-2024/"><u>[New] Effortless Fusion of YouTube Audio with iMovie Masterpieces for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-hilarity-unleashed-kinemaster-meme-creation/"><u>[New] Hilarity Unleashed  KineMaster Meme Creation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-edit-videos-for-youtube-on-pc-for-2024/"><u>[New] How to Edit Videos for YouTube on PC for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-3-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis/"><u>[New] In 2024, 3-Step Guide to Ascertain Google's Profitable Potential  YouTube Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-solid-foundation-youtube-video-script-basics/"><u>[New] In 2024, Building a Solid Foundation  YouTube Video Script Basics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>[New] In 2024, Craft Proficient Content for Short-Form Video  Best Edits Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[New] In 2024, DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevate-your-art-with-professional-color-alteration/"><u>[New] In 2024, Elevate Your Art with Professional Color Alteration</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-empowered-by-numbers-decoding-youtube-analytics/"><u>[New] In 2024, Empowered by Numbers  Decoding YouTube Analytics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-8-linux-software-for-editors/"><u>[New] In 2024, Essential 8 Linux Software for Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-extend-video-duration-for-youtube-posting/"><u>[New] In 2024, Extend Video Duration for YouTube Posting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-locating-your-youtube-comments-desktop-and-mobile-guide/"><u>[New] Locating Your YouTube Comments  Desktop & Mobile Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-5-key-players-to-triple-your-youtube-views/"><u>[New] The 5 Key Players to Triple Your YouTube Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-complete-manual-for-creating-condensed-youtube-videos/"><u>[New] The Complete Manual for Creating Condensed YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-income-impact-of-sharing-on-youtube-shorts/"><u>[New] The Income Impact of Sharing on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-opposite-view-creative-ways-to-watch-youtube-backwards/"><u>[New] The Opposite View  Creative Ways to Watch YouTube Backwards</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-power-of-collaborations-youtube-shorts-edition/"><u>[New] The Power of Collaborations  YouTube Shorts Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-8-techniques-for-grabbing-attention-in-yt-thumbnails/"><u>[New] Top 8 Techniques for Grabbing Attention in YT Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-vloggers-money-saving-camera-recommendations/"><u>[New] Vloggers' Money-Saving Camera Recommendations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubers-advanced-toolkit-studio-selection-over-beta/"><u>[New] YouTuber's Advanced Toolkit  Studio Selection Over Beta</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-multitask-media-magic-employing-netflix-picture-in-picture/"><u>[Updated] Multitask Media Magic  Employing Netflix Picture-in-Picture</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-perfecting-your-video-conferencing-experience-with-slack-and-filmora-for-2024/"><u>[Updated] Perfecting Your Video Conferencing Experience with Slack & Filmora for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-simple-routines-for-documenting-digital-dialogues-on-os-xpc-for-2024/"><u>[Updated] Simple Routines for Documenting Digital Dialogues on OS X/PC for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-flawless-footage-finishing-integrating-filters-in-viewing-devices/"><u>2024 Approved  Flawless Footage Finishing  Integrating Filters in Viewing Devices</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-vivo-y100-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Vivo Y100 in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-advanced-systems-for-tracking-human-manoeuvres/"><u>In 2024, Advanced Systems for Tracking Human Manoeuvres</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-oppo-a38-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Oppo A38 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-beauty-titans-whos-leading/"><u>In 2024, YouTube's Beauty Titans  Who's Leading ?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-premier-guide-to-top-notch-gear/"><u>In 2024, YouTube’s Premier Guide to Top-Notch Gear</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-your-video-output-top-10-apps-converting-flv-to-youtube-for-2024/"><u>Revolutionize Your Video Output  Top 10 Apps Converting FLV to YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/smartphone-cinematography-mastery-designing-impactful-youtube-thumbnails-for-2024/"><u>Smartphone Cinematography Mastery  Designing Impactful YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-tutorial-to-create-engaging-valorant-videos-with-thumbnails-for-2024/"><u>Step-by-Step Tutorial to Create Engaging Valorant Videos with Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamlining-access-to-subscriber-information-for-2024/"><u>Streamlining Access to Subscriber Information for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-short-film-previews-for-channels-for-2024/"><u>Streamlining Short Film Previews for Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-color-in-online-beauty-content-for-2024/"><u>The Art of Color in Online Beauty Content for 2024</u></a></li>
+</ul></div>

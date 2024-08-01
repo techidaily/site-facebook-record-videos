@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Bridging the Gap  Integrating Spotify and YouTube Music Playlists for 2024\""
-date: 2024-06-05T04:35:11.297Z
-updated: 2024-06-06T04:35:11.297Z
+date: 2024-07-31T00:04:06.312Z
+updated: 2024-08-01T00:04:06.312Z
 tags:
   - ai video
   - ai youtube
@@ -91,6 +91,9 @@ Step2 On the **"Select The Source"** page, choose **"Spotify"** as your source a
 
 Step3 Now, load your Spotify playlist or paste its URL from your account. Click **"Next: Select Destination"** on the next page and choose **"YouTube Music"** from the given options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using tunemymusic](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-tunemymusic.png)
 
 Finally, click **"Start Moving My Music"** to convert your Spotify playlist to YouTube Music.
@@ -119,16 +122,34 @@ Step1 In the first step, visit the Soundiiz website and click the "Start Now" op
 
 Step2 Select the **"Sign in with Spotify"** option from the list to log in to your account and click **"Access"** to provide permission to access your details.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using soundiiz](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-soundiiz.png)
 
 Step3 Select **"YouTube Music"** from the left-side panel and click **"Connect."** Now, sign in to your account.
 
 Step4 Now, open the **"Transfer"** tab, choose **"Spotify"** as a source, and go to **"Playlists."** Choose the Spotify playlist and click **"Confirm and Continue."**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ![transferring spotify playlist to youtube music using soundiiz](https://images.wondershare.com/filmora/article-images/2023/03/transferring-spotify-playlist-to-youtube-music-using-soundiiz.png)
 
 Step5 Configure your playlist and click the **"Save Configuration"** option. Next, click **"Confirm"** and choose **"YouTube Music"** on the next page to convert your **Spotify to a YouTube playlist.**
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [Playlist Converter](http://www.playlist-converter.net/)
 
 Playlist Converter allows you to take your favorite Spotify playlists and convert them to YouTube Music, Apple Music, Google Play Music, or Amazon Music.
@@ -157,10 +178,18 @@ Step2 Click **"Log in with Spotify"** and sign in to your account. Make sure to 
 
 Step3 Select your Spotify playlist and click **"Export to YouTube Account."** Next, click the **"Login With YouTube and Export the Playlist"** option and sign in to your account.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using playlist converter](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-playlist-converter.png)
 
 Playlist Converter will fetch your playlist details and transfer them to your YouTube account.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [SongShift](https://apps.apple.com/us/app/songshift/id1097974566)
 
 SongShift is an iOS app that allows you to transfer your songs between music streaming platforms. It's an excellent way to keep all your song tracks in one place, no matter where you prefer to stream them.
@@ -186,6 +215,9 @@ Step1 Open the App Store on your iOS device, install the **SongShift app** and l
 
 Step2 On the app's main page, tap **"Connect Your Music"** and go to the **"Music Services"** page. Select **"Spotify"** and click the **"Connect"** option.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using songshift app](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-songshift-app.png)
 
 Step3 Now, sign in to your Spotify account and tap the **"Plus"** icon at the bottom of the screen.
@@ -238,6 +270,9 @@ Step2 Now, click **"Agree"** to provide access to your account information. Clic
 
 Step3 Select your Spotify playlist, click **"Convert Playlist,"** and Playlist Buddy will start transferring your **Spotify to YouTube playlist.**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using playlist buddy](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-playlist-buddy.png)
 
 ### [Tune My Music](https://www.tunemymusic.com/)
@@ -295,6 +330,9 @@ Step1 In the first step, visit the Soundiiz website and click the "Start Now" op
 
 Step2 Select the **"Sign in with Spotify"** option from the list to log in to your account and click **"Access"** to provide permission to access your details.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using soundiiz](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-soundiiz.png)
 
 Step3 Select **"YouTube Music"** from the left-side panel and click **"Connect."** Now, sign in to your account.
@@ -337,6 +375,9 @@ Step3 Select your Spotify playlist and click **"Export to YouTube Account."** Ne
 
 Playlist Converter will fetch your playlist details and transfer them to your YouTube account.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [SongShift](https://apps.apple.com/us/app/songshift/id1097974566)
 
 SongShift is an iOS app that allows you to transfer your songs between music streaming platforms. It's an excellent way to keep all your song tracks in one place, no matter where you prefer to stream them.
@@ -362,6 +403,9 @@ Step1 Open the App Store on your iOS device, install the **SongShift app** and l
 
 Step2 On the app's main page, tap **"Connect Your Music"** and go to the **"Music Services"** page. Select **"Spotify"** and click the **"Connect"** option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![converting spotify playlist to youtube music using songshift app](https://images.wondershare.com/filmora/article-images/2023/03/converting-spotify-playlist-to-youtube-music-using-songshift-app.png)
 
 Step3 Now, sign in to your Spotify account and tap the **"Plus"** icon at the bottom of the screen.
@@ -384,6 +428,18 @@ Besides, before the end, we want to show you another exciting way to feel the mu
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 This comprehensive guide recommends the 5 best tools to help you **convert Spotify playlists to YouTube Music.** In addition, we've provided a step-by-step process of using each tool, its key features, and its limitations to help you make the right decisions.
@@ -400,6 +456,9 @@ This comprehensive guide recommends the 5 best tools to help you **convert Spoti
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Skyrocket Your YouTube Dollars with Short Video Monetization
 
 YouTube Shorts have grown in popularity since the launch of the platform in 2021\. At first, they offered a way for creators to share their content in a vertical format. However, **YouTube Shorts monetization** is also a great way for creators to earn money. When you monetize YouTube shorts, you increase the potential of earning more income on the platform. In this article, we explore what entails monetized YouTube shorts and how to increase your YT shorts earnings.
@@ -408,12 +467,18 @@ YouTube Shorts have grown in popularity since the launch of the platform in 2021
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## **Part 1\. YouTube Shorts Monetization: Eligibility Criteria**
 
 With short monetization options, you can monetize your short-firm content by joining the YouTube Partner Program (YPP). Being a member of this program gives you access to all tools for making money on YouTube. This includes the ability to place ads on your videos or make money directly from your audience through fan funding.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### **Eligibility Requirements for Monetizing Shorts**
 
 The easiest way to monetize Shorts on YouTube is to access the fan-funding program. This program gives you access to special tools that you can use to generate revenue by interacting with views. This is a great option for creators who primarily make short-form videos. The requirements for this option are as follows:
@@ -433,6 +498,9 @@ The other way you can monetize shorts is by accessing ad revenue and fan-funding
 * At least 4,000 public watch hours in the last 365 days, or
 * At least 10 million valid public Shorts views in the last 90 days
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Additional Guidelines for Creators**
 
 Once you meet the eligibility criteria, you will be required to follow certain guidelines or policies to continue earning. The additional guidelines include:
@@ -453,6 +521,9 @@ Can you monetize YouTube shorts? Yes, in more than one way. The easiest is throu
 
 ##### Step 1Sign in to YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ![youtube sign in](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-2.JPG)
 
 ##### Step 2Select YouTube Studio
@@ -463,6 +534,9 @@ In the top right of the YouTube page, click on your profile picture. From the po
 
 ##### Step 3In the left menu, Click on **Earn**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-4.JPG)
 
 ##### Step 4
@@ -481,6 +555,9 @@ Click **Start** to review and accept YouTube’s Base terms.
 
 Link your existing AdSense account if you have one. If not. Click **Start** to set up a new one.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![youtube link adsense](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-7.JPG)
 
 ##### Step 7
@@ -493,6 +570,9 @@ The instructions shared above are for applying for the YPP using a computer or d
 
 The money-making feature monetizes Shorts in exciting ways. To start monetizing with Super Thanks fan funding, click Supers on the Earn tab in YouTube Studio. Then click Get Started, and follow the presented prompts. The same process is applicable for Channel Memberships, and other fan-funding options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 3\. YouTube Shorts Monetization: A Realistic Look at Earnings Potential**
 
 Monetizing YouTube Shorts has the potential to make decent earnings. Although the amount is not as much as a long-form videos, it is a great way of making money on YouTube quickly. Most YouTube Shorts creators agree that the revenue per thousand views (RPM) for short-form content is currently around $0.05 - $0.07\. This means that for a million Shorts views, you will make $50 - $70.
@@ -515,6 +595,9 @@ The revenue-sharing program is the easiest way for creators to earn money on You
 * [James Seo](https://www.youtube.com/@JamesSeo/) (573,000 subscribers) - Earned $445.09 in ads from 10.3 million Shorts views
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) - Earned $163.73 in ads from 4.2 million Shorts views
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## **Part 4\. Editing YouTube Shorts with WonderShare to Boost Revenue Potential**
 
 The best way to reap big from Shorts YouTube monetization is to make quality videos that will go viral easily. Videos that generate more views will earn you more revenue and increase the number of subscribers within a short time. With Wondershare Filmora, making such videos is easy. The video editing software offers useful features for making your videos stand out. From jaw-dropping sports videos to cinema-like production, the choice of options is endless.
@@ -533,6 +616,9 @@ Before uploading a short-form video on YouTube, you want to make sure it is of t
 
 Narration is an important aspect of YouTube Shorts. You can tell what is happening in the clip in the simplest way for your audience to understand. The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voice-over. This makes your Shorts video more entertaining and enriched with more elements.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. [**AI Portrait**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Just like other vertical social media videos, Shorts require some bit of personalization. You may want to add a bit of elements or filters. The AI Portrait feature automatically removes background with high accuracy to further enhance your videos. It also comes with over 70 portrait and sticker effects to bring out the mood you are going after. Automatically recognize the faces of your subjects and add AR stickers on the go.
@@ -545,10 +631,30 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1\. YouTube Shorts Monetization: Eligibility Criteria**
 
 With short monetization options, you can monetize your short-firm content by joining the YouTube Partner Program (YPP). Being a member of this program gives you access to all tools for making money on YouTube. This includes the ability to place ads on your videos or make money directly from your audience through fan funding.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ### **Eligibility Requirements for Monetizing Shorts**
 
 The easiest way to monetize Shorts on YouTube is to access the fan-funding program. This program gives you access to special tools that you can use to generate revenue by interacting with views. This is a great option for creators who primarily make short-form videos. The requirements for this option are as follows:
@@ -558,8 +664,14 @@ The easiest way to monetize Shorts on YouTube is to access the fan-funding progr
 * At least 3,000 public watch hours in the last 365 days, or
 * At least 3 million public Shorts views in the last 90 days
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![youtube shorts fund](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Eligibility for Monetizing Shorts and Videos**
 
 The other way you can monetize shorts is by accessing ad revenue and fan-funding. With this option, you will generate income from ads that appear between Shorts in addition to interacting with viewers. This is a great option for creators who make long and short videos. The requirements for this include:
@@ -582,6 +694,9 @@ Once you meet the eligibility criteria, you will be required to follow certain g
 * Have an active AdSense account
 * Have access to advanced YouTube features by verifying your identity
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 2\. Monetizing YouTube Shorts: Step-by-Step Guide**
 
 Can you monetize YouTube shorts? Yes, in more than one way. The easiest is through the ad-revenue sharing model. Follow these steps to become part of the YPP and start monetizing your Shorts on YouTube:
@@ -594,10 +709,17 @@ Can you monetize YouTube shorts? Yes, in more than one way. The easiest is throu
 
 In the top right of the YouTube page, click on your profile picture. From the pop-up menu that appears, select **YouTube Studio**.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-3.JPG)
 
 ##### Step 3In the left menu, Click on **Earn**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-4.JPG)
 
 ##### Step 4
@@ -610,6 +732,9 @@ If you are eligible for the YPP, you will see an **Apply** Click on it to go to 
 
 Click **Start** to review and accept YouTube’s Base terms.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube base terms](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-6.JPG)
 
 ##### Step 6
@@ -622,6 +747,9 @@ Link your existing AdSense account if you have one. If not. Click **Start** to s
 
 Wait for YouTube to review and approve your application. The process will normally take a month. Once you are approved for the YPP, go to the Earn section in YouTube Studio. Then accept the Shorts Monetization Module. This will allow you to access ads and other money-making tools on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube monetization module](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-8.JPG)
 
 The instructions shared above are for applying for the YPP using a computer or desktop. You will still follow the same steps when using a mobile device, but you will do so using the YouTube Studio app.
@@ -641,6 +769,9 @@ The amount of money you make on YouTube Shorts is not fixed. It will depend on s
 * **Number of monetized Shorts:** Monetizing most of your short-form videos will increase the revenue generated.
 * **Shopping Revenue:** How well you promote your products and the set price point of the products will determine the shopping revenue generated.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### **Examples of Creators Who Have Earned from Shorts**
 
 The revenue-sharing program is the easiest way for creators to earn money on YouTube. Since monetizing their Shorts, these creators earned some decent bonus amounts:
@@ -660,6 +791,9 @@ The best way to reap big from Shorts YouTube monetization is to make quality vid
 
 The choice of Filmora features you use on your editing projects will depend on your goals. Here are a few favorites to get you started:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **1\.** [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Before uploading a short-form video on YouTube, you want to make sure it is of the right resolution. The Auto Reframe feature on Filmora allows you to instantly resize your videos while keeping all the important details. You only need to record one video for all platforms, and edit to fit with auto reframe.
@@ -690,3 +824,76 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audience-allure-3-ultimate-video-growth-methods/"><u>[New] 2024 Approved  Audience Allure  3 Ultimate Video Growth Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-youtube-audio-extractors-free-easy-download-and-convert/"><u>[New] 2024 Approved  Best YouTube Audio Extractors  Free, Easy Download & Convert</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breaking-down-barriers-to-inaccessible-youtube-content/"><u>[New] 2024 Approved  Breaking Down Barriers to Inaccessible YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-your-youtube-content-for-specific-crowds/"><u>[New] 2024 Approved  Crafting Your YouTube Content for Specific Crowds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cultivating-a-distinctive-presence-in-the-marketplace/"><u>[New] 2024 Approved  Cultivating a Distinctive Presence in the Marketplace</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-enriching-videos-with-no-cost-sounds-legally/"><u>[New] 2024 Approved  Enriching Videos with No-Cost Sounds Legally</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-perfectly-timed-instagram-content-our-list-of-the-top-8-schedulers/"><u>[New] 2024 Approved  Perfectly Timed Instagram Content - Our List of the Top 8 Schedulers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-vlc-video-recording-performance-study/"><u>[New] 2024 Approved  VLC Video Recording Performance Study</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-advanced-techniques-for-high-quality-youtube-content-for-2024/"><u>[New] Advanced Techniques for High-Quality YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-assembling-channel-summaries-that-attract-for-2024/"><u>[New] Assembling Channel Summaries That Attract for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-boosting-content-appeal-by-including-youtube-music-in-recordings/"><u>[New] Boosting Content Appeal by Including YouTube Music in Recordings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-creatives-making-marvel-virtual-worlds-vivid-for-2024/"><u>[New] Creatives Making Marvel Virtual Worlds Vivid for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehensive-review-of-ios-free-video-editing-apps/"><u>[New] In 2024, Comprehensive Review of iOS Free Video Editing Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-detailed-analysis-of-youtubes-versus-dailymentions/"><u>[New] In 2024, Detailed Analysis of YouTubes Versus DailyMentions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-drafting-dynamic-denouements/"><u>[New] In 2024, Drafting Dynamic Denouements</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-elite-gamers-guide-5-crucial-webcams-to-master/"><u>[New] In 2024, Elite Gamers' Guide  5 Crucial Webcams to Master</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-expressive-sketches-for-fortnite-icons/"><u>[New] In 2024, Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-legal-boundaries-of-online-video-capturing-tools/"><u>[New] Legal Boundaries of Online Video Capturing Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-reel-it-in-8-online-utilities-for-creating-and-sharing-instagram-videos/"><u>[New] Reel It In  8 Online Utilities For Creating & Sharing Instagram Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-sourav-joshis-financial-journey-charting-a-profitable-course-on-youtube/"><u>[New] Sourav Joshi’s Financial Journey  Charting a Profitable Course on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-subscription-wins-unlock-monetization-benefits/"><u>[New] Subscription Wins Unlock Monetization Benefits</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlock-your-videos-potential-with-youtube-link-building-techniques/"><u>[New] Unlock Your Video's Potential with YouTube Link Building Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-wizardry-your-guide-to-the-top-10-editing-hacks/"><u>[New] Video Wizardry  Your Guide to the Top 10 Editing Hacks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-whos-gaining-thunder-in-the-video-cosmos/"><u>[New] Who's Gaining Thunder in the Video Cosmos?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-elevating-your-tiktok-presence-a-comprehensible-guide-to-bg-updates/"><u>[Updated] 2024 Approved  Elevating Your TikTok Presence  A Comprehensible Guide to BG Updates</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebooks-aplus-covers-ranking-the-best-photo-making-websites/"><u>[Updated] 2024 Approved  Facebook's A+ Covers  Ranking the Best Photo Making Websites</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-navigating-the-dynamics-of-instagram-highlight-categories/"><u>[Updated] 2024 Approved  Navigating the Dynamics of Instagram Highlight Categories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-optimized-orchestration-top-5-chrome-vids-from-fb/"><u>[Updated] 2024 Approved  Optimized Orchestration  Top 5 Chrome Vids From FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-captivating-startups-discovering-the-best-15-video-intros-for-2024/"><u>[Updated] Captivating Startups  Discovering the Best 15 Video Intros for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-youtube-cpm-for-content-creators-success-for-2024/"><u>[Updated] Decoding YouTube CPM for Content Creators' Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-insight-free-access-to-1-6-video-clips-for-2024/"><u>[Updated] Exclusive Insight  Free Access to #1-#6 Video Clips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-finding-your-youtube-stored-melodies-easily/"><u>[Updated] Finding Your YouTube-Stored Melodies Easily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-breaking-down-the-process-for-youtube-comment-highlights/"><u>[Updated] In 2024, Breaking Down the Process for YouTube Comment Highlights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-new-heights-with-popular-youtube-content/"><u>[Updated] In 2024, Charting New Heights with Popular YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-eye-on-the-screen-youtube-journey-comparison-from-creator-to-competitor/"><u>[Updated] In 2024, Eye on the Screen  YouTube Journey Comparison From Creator to Competitor</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-investigating-why-specific-youtube-remarks-get-prominence/"><u>[Updated] Investigating Why Specific YouTube Remarks Get Prominence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[Updated] Jumpstart to Partner Elevation  Secure 10K Views in Minutes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-leading-macos-mkv-players-exposed/"><u>[Updated] Leading macOS MKV Players Exposed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-background-replacement-get-cost-free-lessons-in-green-screen-effects-from-youtubes-best/"><u>[Updated] Mastering Background Replacement  Get Cost-Free Lessons in Green Screen Effects From YouTube's Best</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximizing-youtube-visibility-with-key-hashtags/"><u>[Updated] Maximizing YouTube Visibility with Key #Hashtags</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-melody-matrix-tips-and-tricks-for-social-media-sounds-for-2024/"><u>[Updated] Melody Matrix  Tips and Tricks for Social Media Sounds for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-preeminent-zero-price-stock-image-sites/"><u>[Updated] Preeminent Zero-Price Stock Image Sites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rise-above-the-crowd-10-proven-techniques-for-video-standout/"><u>[Updated] Rise Above the Crowd  10 Proven Techniques for Video Standout</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-smile-more-using-emojis-in-youtube-conversations/"><u>[Updated] Smile More  Using Emojis in YouTube Conversations</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-5-emulators-the-ultimate-guide-for-classic-ps1-games-on-pc/"><u>[Updated] Top 5 Emulators  The Ultimate Guide for Classic PS1 Games on PC</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-prepare-yourself-7-must-have-tech-in-the-digital-frontier/"><u>2024 Approved  Prepare Yourself  7 Must-Have Tech in the Digital Frontier</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-130-music-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from 130 Music</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/chromebook-shutter-mastery-in-four-steps-only-for-2024/"><u>Chromebook Shutter Mastery in Four Steps Only for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-google-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Google FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/eating-the-trend-top-food-moments-on-tiktok/"><u>Eating the Trend  Top Food Moments on TikTok</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-performance-new-tech-in-microsoft-teams/"><u>Enhancing Performance: New Tech in Microsoft Teams</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-disabled-apple-iphone-6-plusipad-without-computer-by-drfone-ios/"><u>How to Unlock Disabled Apple iPhone 6 Plus/iPad Without Computer</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-enhancing-streaming-quality-using-obs-plus-zoom/"><u>In 2024, Enhancing Streaming Quality Using OBS + Zoom</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gently-reducing-volume-level-in-fl-beats/"><u>In 2024, Gently Reducing Volume Level in FL Beats</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-z-flip-5-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy Z Flip 5 Phones with/without a PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-huawei-nova-y91-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost Huawei Nova Y91 for Free? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-s23-ultra-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy S23 Ultra to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-scrutinizing-djis-phantom-3-for-enthusiast-use/"><u>In 2024, Scrutinizing DJI's Phantom 3 for Enthusiast Use</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-infinix-note-30-vip-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Infinix Note 30 VIP</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/no-cost-youtube-audio-tools-for-seamless-mp3-downloads-for-2024/"><u>No-Cost YouTube Audio Tools for Seamless MP3 Downloads for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-calculator-your-video-monetization/"><u>Quick Calculator  Your Video Monetization</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocketing-viewership-youtubes-quintessential-5-marketing-strategies-for-2024/"><u>Skyrocketing Viewership - YouTube's Quintessential 5 Marketing Strategies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamline-your-creation-process-with-this-youtube-shorts-guide-for-2024/"><u>Streamline Your Creation Process with This YouTube Shorts Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/thrive-in-youtube-mastering-analytics-to-elevate-channel-reach-for-2024/"><u>Thrive in YouTube  Mastering Analytics to Elevate Channel Reach for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-20-asmr-youtubers-to-watch-for-2024/"><u>Top 20 ASMR Youtubers to Watch for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-5-innovative-multimedia-collaboration-services/"><u>Top 5 Innovative Multimedia Collaboration Services</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-list-hashtags-for-maximum-video-engagement-in-games-for-2024/"><u>Ultimate List  Hashtags for Maximum Video Engagement in Games for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-your-creative-vision-with-youtubes-filmmaking-courses-for-2024/"><u>Unleash Your Creative Vision with YouTube's Filmmaking Courses for 2024</u></a></li>
+</ul></div>

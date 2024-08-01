@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Discover the Magic Behind Effective YouTube Short Videos"
-date: 2024-06-05T06:14:38.490Z
-updated: 2024-06-06T06:14:38.490Z
+date: 2024-07-31T02:51:25.691Z
+updated: 2024-08-01T02:51:25.691Z
 tags:
   - ai video
   - ai youtube
@@ -34,10 +34,25 @@ That said, in the following sections you will learn everything about the **YouTu
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## **Part 1: What Is YouTube Shorts?**
 
 A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok competitor developed by Google and can be accessed via the YouTube app on an Android or iOS device. In order to use the **YouTube Shorts app**, all you need to do is, sign in to your YouTube account on the YouTube app, and you are good to go.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. YouTube Shorts Release History
 
 At the time of this writing, **YouTube Shorts** is still in the Beta phase, and there is a lot more that the developers at Google have yet to explore and discover. However, for now, the fully functional variant of the program is available only for users in India on Android and iOS platforms.
@@ -57,6 +72,9 @@ The type of contents that the viewers expect to see as YouTube Shorts could incl
 
 In addition to the above, a few other categories could be People and Places, Music, Domestic and Wild Animals, Education, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. YouTube Shorts Content Requirements
 
 While creating **YouTube Shorts**, there are certain guidelines that must be followed. These points include:
@@ -71,6 +89,9 @@ Certain things that you must keep in mind while creating **YouTube Shorts** incl
 * **YouTube Shorts** cannot be monetized. However, they can serve as a good medium to attract and redirect the audiences to your main YouTube channel which may contain several videos that are eligible for monetization.
 * The number of views and the total playtime of the **YouTube Shorts** videos DO affect your YouTube channel statistics
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Where People Can Find YouTube Shorts
 
 As mentioned earlier, **YouTube Shorts** can be accessed by launching the YouTube app on your Android or iOS device. You can use **YouTube Shorts** by clicking the **+** (**Add**) icon present at the bottom. Once the **YouTube Shorts app** is initialized, you can easily create and publish short videos by following the simple on-screen instructions.
@@ -105,6 +126,9 @@ Enter a title for the video in the **Title** field. Make sure to include **#shor
 
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
 The **YouTube Shorts app** is pretty convenient to access and use alright. However, it doesn’t allow you to fine edit the videos. The app doesn’t even have many filtering options such as Effects, Elements, etc. to make your videos more engaging.
@@ -123,6 +147,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 The following step-by-step guide teaches you how to use Wondershare Filmora to create a vertical **YouTube Shorts** video:
@@ -133,6 +160,10 @@ The following step-by-step guide teaches you how to use Wondershare Filmora to c
 
 Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is used here for demonstration), go to **File** \> **New Project**, and click **9:16 (Portrait)**. Click anywhere inside the **Media** box, and select and import the source vertical video from your PC to Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
@@ -145,12 +176,18 @@ Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc
 
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![ Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
 
 **Note:** To be able to remain compliant with the **YouTube Shorts** policies, make sure that the video length is no longer than 60 seconds.
 
 **Step 3: Beautify the Video**
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add Title to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-title.jpg)
 
 Click **Titles** from the standard toolbox at the top, choose your preferred text category from the list in the left, hover the mouse over a decent preset in the right window, and click the **+** button at the bottom-right corner of the thumbnail to add the preset on top of the media track in the Timeline. Next, you can double-click the preset track in the Timeline to modify the text and make granular modifications to it as needed. Click **OK** to save the changes.
@@ -179,6 +216,9 @@ Once everything is set up, click **EXPORT** from the top of the window, go to th
 
 ![ Edit YouTube Shorts video in Filmora- export ](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### FAQs About YouTube Shorts
 
 1. **Where to download the YouTube Shorts app?**
@@ -205,6 +245,9 @@ YouTube hasn’t provided any information related to this as of now. However, yo
 
 Unfortunately, NO. Although you cannot monetize the recordings published as **YouTube Shorts**, they can be a good source to drive subscribers to your main YouTube channel that may have the videos that can be monetized.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -221,3 +264,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-curating-the-perfect-mix-a-youtube-playlist-manual/"><u>[New] 2024 Approved  Curating the Perfect Mix  A Youtube Playlist Manual</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-the-neuroscience-of-decision-making-and-its-implications-for-leadership/"><u>[New] 2024 Approved  Exploring the Neuroscience of Decision-Making and Its Implications for Leadership</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-building-an-engaging-sports-highlight-reel-for-2024/"><u>[New] Building an Engaging Sports Highlight Reel for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-demystifying-t-series-income-streams-via-youtube-platforms-for-2024/"><u>[New] Demystifying T-Series Income Streams via YouTube Platforms for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-channels-standing-with-these-tactics-for-2024/"><u>[New] Elevate Your Channel's Standing with These Tactics for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-final-cut-pro-for-beginners-the-definitive-starter-pack/"><u>[New] Final Cut Pro for Beginners  The Definitive Starter Pack</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-an-easy-to-use-youtube-subscription-tagline/"><u>[New] In 2024, Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cultivate-creativity-inspiration-driven-video-titles/"><u>[New] In 2024, Cultivate Creativity  Inspiration-Driven Video Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-diversifying-audience-across-30plus-online-venues/"><u>[New] In 2024, Diversifying Audience Across 30+ Online Venues</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-yt-content-creation-with-windows-movie-maker/"><u>[New] In 2024, Elevate Your YT Content Creation with Windows Movie Maker</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-in-depth-guide-to-installation-of-wm6/"><u>[New] In 2024, In-Depth Guide to Installation of WM6</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-inside-the-world-of-superior-screen-recording-with-recmeister/"><u>[New] Inside the World of Superior Screen Recording with Recmeister</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-quick-guide-to-youtube-trailer-making-with-filmora/"><u>[New] Quick Guide to YouTube Trailer Making with Filmora</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-strategies-for-uploading-and-live-streaming-past-videos-on-facebook/"><u>[New] Strategies for Uploading and Live Streaming Past Videos on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-surging-upstream-in-the-youtube-subscriber-pool/"><u>[New] Surging Upstream in the YouTube Subscriber Pool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-dynamic-duo-of-filmmaking-and-thumbnail-design/"><u>[New] The Dynamic Duo of Filmmaking and Thumbnail Design</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essentials-of-sharing-music-compilations-online/"><u>[New] The Essentials of Sharing Music Compilations Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-full-spectrum-alliance-an-mcn-decision-blueprint/"><u>[New] The Full Spectrum Alliance  An MCN Decision Blueprint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-top-6-favorite-short-form-video-download-tools/"><u>[New] Unveiling the Top 6 Favorite Short-Form Video Download Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-income-via-youtube-ads-and-analytics-across-platforms/"><u>[Updated] 2024 Approved  Boosting Income via YouTube Ads & Analytics Across Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-thumbnail-size-how-to-make-a-thumbnail-for-youtube/"><u>[Updated] Best YouTube Thumbnail Size  How to Make a Thumbnail for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-viewership-responsibly-strategies-that-work-for-2024/"><u>[Updated] Boosting Viewership Responsibly  Strategies That Work for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-growth-strategy-going-with-studio-or-beta-progression-for-2024/"><u>[Updated] Channel Growth Strategy  Going with Studio or Beta Progression for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-success-strategy-joining-ytp2024-now/"><u>[Updated] Channel Success Strategy - Joining YTP2024 Now!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-characters-that-captivate-key-growth-strategies-for-2024/"><u>[Updated] Characters That Captivate  Key Growth Strategies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-insights-on-maximizing-roi-through-effective-youtube-banner-campaigns/"><u>[Updated] Expert Insights on Maximizing ROI Through Effective YouTube Banner Campaigns</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-automate-iphones-video-repetition/"><u>[Updated] How to Automate iPhone's Video Repetition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ahead-of-tomorrow-key-youtube-gatherings-post-vidcon/"><u>[Updated] In 2024, Ahead of Tomorrow  Key Youtube Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-expansion-via-youtube-outros-maximizing-visibility/"><u>[Updated] In 2024, Channel Expansion via YouTube Outros  Maximizing Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-striking-channel-imagery-best-practices-for-success/"><u>[Updated] In 2024, Creating Striking Channel Imagery  Best Practices for Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elite-yoga-routines-youtubes-leading-fitness-sites/"><u>[Updated] In 2024, Elite Yoga Routines  YouTube's Leading Fitness Sites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-iosandroid-comparison-youtube-app-explored/"><u>[Updated] IOS/Android Comparison  YouTube App Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-8-software-for-linux-video-editors/"><u>[Updated] Leading 8 Software for Linux Video Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-content-distribution-a-close-look-at-igtv-and-youtube/"><u>[Updated] Navigating Content Distribution  A Close Look at IGTV and YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-real-time-viewership-metering-devices/"><u>[Updated] Real-Time Viewership Metering Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators/"><u>[Updated] The Art of Ad-Free Earning on YouTube  Strategies for Self-Reliance Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-best-8-free-editing-programs-to-streamline-your-youtube-projects/"><u>[Updated] The Best 8 Free Editing Programs to Streamline Your YouTube Projects</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-iphone-photography-handbook-tips-and-tricks/"><u>[Updated] The iPhone Photography Handbook  Tips & Tricks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-speed-up-photobooks-instructions-for-faster-google-collage-creation/"><u>2024 Approved  Speed Up Photobooks  Instructions for Faster Google Collage Creation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-view-bots-and-other-easy-hacks-to-increase-views/"><u>2024 Approved  YouTube View Bots and Other Easy Hacks to Increase Views</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/entertainment-galore-kinemaster-the-android-game-guide-2023/"><u>Entertainment Galore  KineMaster - The Android Game Guide 2023</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-honor-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Honor .</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-nubia-flip-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock ZTE Nubia Flip 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-from-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked From Apple iPhone SE (2022)?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-leveraging-virtual-collaboration-with-zoom-and-win11-tools/"><u>In 2024, Leveraging Virtual Collaboration with Zoom & Win11 Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-video-sharing-techniques-from-youtube-to-insta/"><u>In 2024, Video Sharing Techniques From YouTube to Insta</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-video-gear-starting-with-beginner-cameras-for-2024/"><u>Perfect Video Gear  Starting with Beginner Cameras for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rallying-towards-partnership-reach-the-critical-10k-view-target-quickly-for-2024/"><u>Rallying Towards Partnership  Reach the Critical 10K View Target Quickly for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-channel-wrapping-with-expert-templates-and-how-tos-for-2024/"><u>Revolutionize Channel Wrapping with Expert Templates & How-Tos for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-m54-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/subscription-surge-entry-into-monetization-realm-for-2024/"><u>Subscription Surge  Entry Into Monetization Realm for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-channels-for-filmmakers-to-learn-filmmaking-tips-and-tutorials-for-2024/"><u>YouTube Channels for Filmmakers to Learn Filmmaking Tips and Tutorials for 2024</u></a></li>
+</ul></div>

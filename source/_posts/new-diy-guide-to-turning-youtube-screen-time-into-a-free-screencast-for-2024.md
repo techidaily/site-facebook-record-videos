@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY Guide to Turning YouTube Screen Time Into a FREE Screencast for 2024"
-date: 2024-07-04T22:44:37.709Z
-updated: 2024-07-05T22:44:37.709Z
+date: 2024-07-31T00:45:04.583Z
+updated: 2024-08-01T00:45:04.583Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://www.lifewire.com/thmb/2KT-Xa_yamNje0rpMyqWKjujJXo=/400x300/fi
 
 # How To Record Screencast From YouTube For Free
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -30,8 +33,14 @@ There is a wide range of software tools that can assists you with screencasting 
 
 **Note:** We resolutely oppose all forms of copyright-infringing downloads. This tutorial is only for downloading YouTube videos/audio materials from your own channel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### The All-in-One Screen Recorder & Video Editor
 
 * Record desktop screen, voiceover, and webcam simultaneously
@@ -49,18 +58,32 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
 
 Step 2: On the create an event page, add a title for your screencast video; set privacy terms and then hit “Go Live Now” option.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube ScreenCast](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
@@ -106,3 +129,52 @@ Follow @Max Wales
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enriching-videos-with-no-cost-sounds-legally/"><u>[New] 2024 Approved  Enriching Videos with No-Cost Sounds Legally</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-for-smooth-youtube-content-trimming/"><u>[New] 2024 Approved  Essential Tips for Smooth YouTube Content Trimming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-audience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora-for-2024/"><u>[New] Audience Allure  Video Marketing Strategies for YouTube Trailers via Filmora for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-comparing-youtube-and-dailymotion-notable-contrasts-for-2024/"><u>[New] Comparing YouTube and Dailymotion  Notable Contrasts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-directly-stream-google-meet-youtube-edition-steps-for-2024/"><u>[New] Directly Stream Google Meet - YouTube Edition Steps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-20-essentials-every-new-creator-should-own/"><u>[New] In 2024, 20 Essentials Every New Creator Should Own</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-broadcast-perfection-recommended-tech-and-apps-for-youtubers/"><u>[New] In 2024, Broadcast Perfection  Recommended Tech and Apps for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-techniques-to-improve-video-visibility-on-youtube-platform/"><u>[New] Techniques to Improve Video Visibility on YouTube Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-female-youtubers-lastest/"><u>[New] Top 10 Female YouTubers [Lastest]</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-top-visionaries-selecting-the-10-elite-monitors-for-macs-for-2024/"><u>[New] Top Visionaries  Selecting the #10 Elite Monitors for Macs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-finest-9-free-youtube-brand-tools-online/"><u>[New] Unveiling the Finest 9 Free YouTube Brand Tools Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[Updated] 2024 Approved  Banner Bonanza  Unlimited 50 FREE YouTube Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-free-video-cutting-apps-your-go-to-list/"><u>[Updated] 2024 Approved  Best Free Video Cutting Apps  Your Go-To List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-earning-on-youtube-a-step-by-step-guide-for-newbies/"><u>[Updated] 2024 Approved  Earning on YouTube  A Step-by-Step Guide for Newbies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortlessly-engage-with-an-array-of-available-youtube-content/"><u>[Updated] 2024 Approved  Effortlessly Engage with an Array of Available YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-the-language-of-youtube-live-images-for-2024/"><u>[Updated] Deciphering the Language of YouTube Live Images for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-the-best-youtube-mp3-transformers-for-2024/"><u>[Updated] Discovering the Best YouTube MP3 Transformers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-dynamics-of-profit-distribution-in-video-shorts/"><u>[Updated] Exploring the Dynamics of Profit Distribution in Video Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-aspect-ratios-unveiled-a-complete-youtube-manual/"><u>[Updated] In 2024, Aspect Ratios Unveiled  A Complete YOUTUBE Manual</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-your-gaming-presence-with-these-top-14-video-ideas/"><u>[Updated] In 2024, Boost Your Gaming Presence with These Top 14 Video Ideas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-the-perfect-close-youtubes-free-end-screen-tools/"><u>[Updated] In 2024, Crafting the Perfect Close  YouTube's Free End Screen Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-entering-the-world-of-content-creation-sign-up-tutorial/"><u>[Updated] In 2024, Entering the World of Content Creation  Sign Up Tutorial</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-music-blends/"><u>[Updated] Mastering YouTube Music Blends</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>[Updated] Optimal Video Intros  Selecting the Top 16 to Increase Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-resetting-your-youtube-reputation/"><u>[Updated] Resetting Your YouTube Reputation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-short-form-content-breakdown-now/"><u>[Updated] Short Form Content Breakdown Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-financial-flip-understanding-1-million-views-payoff-for-2024/"><u>[Updated] The Financial Flip  Understanding 1 Million Views Payoff for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-saving-youtube-tracks-and-dialogues/"><u>[Updated] The Ultimate Guide to Saving YouTube Tracks & Dialogues</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-top-5-best-tv-for-ps5-and-xbox-series-x/"><u>[Updated] Top 5 Best TV for Ps5 and Xbox Series X</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>[Updated] Youtube's Prime Moments  Celebrations Beyond VidCon</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-vivo-y78plus-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Vivo Y78+ by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/charting-your-course-in-youtubing-dodge-these-top-8-common-missteps-in-2024/"><u>Charting Your Course in YouTubing  Dodge These Top 8 Common Missteps, In 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-leading-video-ranking-tools-for-youtube-success-for-2024/"><u>Discover Leading Video Ranking Tools for YouTube Success for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/easy-peel-mac-screenshots-for-no-cost/"><u>Easy-Peel Mac Screenshots for No Cost</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-maintain-a-shadowy-presence-on-instagram-livestreams/"><u>How to Maintain a Shadowy Presence on Instagram Livestreams</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-infinix-smart-8-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Infinix Smart 8 to iPad | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-compile-of-free-high-quality-sound-clips-for-videos/"><u>In 2024, Compile of Free, High-Quality Sound Clips for Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-cyberspace-companion-fb-stories-saver/"><u>In 2024, Cyberspace Companion  FB Stories Saver</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-viewer-retention-discovering-6-video-forms/"><u>In 2024, Pioneering Viewer Retention  Discovering 6 Video Forms</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-revolutionizing-audio-documentation-the-art-of-call-recording/"><u>In 2024, Revolutionizing Audio Documentation  The Art of Call Recording</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reimagining-cityscapes-the-integration-of-ecosystem-services-for-2024/"><u>Reimagining Cityscapes  The Integration of Ecosystem Services for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/synchronizing-social-media-channels-for-broad-distribution-for-2024/"><u>Synchronizing Social Media Channels for Broad Distribution for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tips-for-emptying-your-youtubes-watch-later-queue-for-2024/"><u>Tips for Emptying Your YouTube's Watch Later Queue for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-content-battle-who-wins-with-vimeo-youtube-or-dailymotion-in-2024/"><u>Video Content Battle  Who Wins with Vimeo, YouTube, or DailyMotion, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/virtual-virtuoso-verbalization-voyager/"><u>Virtual Virtuoso Verbalization Voyager</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/years-biggest-beauty-influencers-on-youtube-for-2024/"><u>Year's Biggest Beauty Influencers on YouTube for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Innovating Interaction  Beyond VidCon Conclaves\""
-date: 2024-06-05T03:55:43.271Z
-updated: 2024-06-06T03:55:43.271Z
+date: 2024-07-30T22:57:35.647Z
+updated: 2024-07-31T22:57:35.647Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/4abc1e0d974f64940dfb669b21c754808ce4ab1e9
 
 # Beyond VidCon - A Guide to the Most Important YouTube Events
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -78,6 +81,9 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -112,6 +118,9 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -136,6 +145,9 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -148,6 +160,9 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -186,6 +201,9 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 **London, UK:** August
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
@@ -226,3 +244,47 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-efficiently-upload-and-render-youtube-videos-with-precision/"><u>[New] 2024 Approved  Efficiently Upload and Render YouTube Videos with Precision</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-8-best-youtube-video-promotion-services-real/"><u>[New] 8 Best Youtube Video Promotion Services (Real)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-asmr-apps-for-android-and-ios-for-2024/"><u>[New] Best ASMR Apps for Android and iOS for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-auto-play-youtube-iphoneandroid-no-notification/"><u>[New] In 2024, Auto-Play YouTube  IPhone/Android, No Notification</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-fbx-for-the-aspiring-gamer-filmmaker/"><u>[New] In 2024, FBX for the Aspiring Gamer Filmmaker</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-live-youtube-streaming-unlocked-beginners-obs-tutorial/"><u>[New] Live Youtube Streaming Unlocked  Beginner's OBS Tutorial</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-mobile-apps-for-enhancing-youtube-shorts-videos/"><u>[New] Top 10 Mobile Apps for Enhancing YouTube Shorts Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-portable-tools-dominating-video-editing-landscape/"><u>[New] Top 10 Portable Tools Dominating Video Editing Landscape</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unbeatable-bargain-video-content-websites/"><u>[New] Unbeatable Bargain Video Content Websites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-your-views-with-premium-youtube-rank-watchers/"><u>[Updated] 2024 Approved  Boost Your Views with Premium YouTube Rank Watchers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-vlogging-game-with-tripod-mastery/"><u>[Updated] 2024 Approved  Elevate Your Vlogging Game with Tripod Mastery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-visuals-hub-icon-and-banner-crafting-tips-for-2024/"><u>[Updated] Channel Visuals Hub  Icon & Banner Crafting Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-designing-short-trailers-that-tell-a-story-for-2024/"><u>[Updated] Designing Short Trailers That Tell a Story for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-profits-youtubes-studio-monetization-simplified-for-2024/"><u>[Updated] Elevate Your Profits  YouTube's Studio Monetization Simplified for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-hack-your-way-to-speedy-youtube-video-processing/"><u>[Updated] Hack Your Way to Speedy YouTube Video Processing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-comprehensive-guide-to-personalizing-video-images/"><u>[Updated] In 2024, A Comprehensive Guide to Personalizing Video Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-disable-non-specific-youtube-video-alerts/"><u>[Updated] In 2024, Disable Non-Specific YouTube Video Alerts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discover-7-premier-android-apps-to-banish-ads/"><u>[Updated] In 2024, Discover 7 Premier Android Apps to Banish Ads</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-instant-impression-audiovisual-capture-for-2024/"><u>[Updated] Instant Impression  Audiovisual Capture for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-collab-videos-to-expand-viewership/"><u>[Updated] Mastering Collab Videos to Expand Viewership</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sound-sculpture-shaping-your-youtube-audio-experience/"><u>[Updated] Sound Sculpture  Shaping Your YouTube Audio Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-stay-in-the-limelight-how-to-keep-youtube-cc-and-boost-views/"><u>[Updated] Stay in the Limelight  How to Keep YouTube CC and Boost Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-411-on-building-sports-video-gold/"><u>[Updated] The 411 on Building Sports Video Gold</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-zest-up-social-feeds-create-meme-adobe-style-for-2024/"><u>[Updated] Zest Up Social Feeds  Create Meme Adobe-Style for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-discovering-portable-recording-solutions-for-mac-users/"><u>2024 Approved  Discovering Portable Recording Solutions for Mac Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-se-2022-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone SE (2022) and iPad Securely</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-f54-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy F54 5G</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/designing-professional-youtube-editors-workflow-for-2024/"><u>Designing Professional YouTube Editors' Workflow for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-itel-s23-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-z-flip-5-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy Z Flip 5 in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-steps-youtube-takes-once-a-video-is-submitted-for-viewing/"><u>In 2024, The Steps YouTube Takes Once a Video Is Submitted for Viewing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-htc-u23-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any HTC U23 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-editing-tips-and-tricks-for-shorter-videos/"><u>In 2024, YouTube Editing  Tips and Tricks for Shorter Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instagram-to-origins-the-step-by-step-image-trackback/"><u>Instagram to Origins  The Step-by-Step Image Trackback</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/spark-your-audience-with-best-video-content-ideas-for-2024/"><u>Spark Your Audience with Best Video Content Ideas for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/stream-undoing-simplified-15-actionable-insights-to-retrace-your-broadcast-trail-for-2024/"><u>Stream Undoing Simplified  15 Actionable Insights to Retrace Your Broadcast Trail for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-checklist-for-your-youtubes-most-impactful-visuals-for-2024/"><u>The Ultimate Checklist for Your YouTube's Most Impactful Visuals for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-list-of-no-cost-sound-sites-for-filmmakers-for-2024/"><u>The Ultimate List of No-Cost Sound Sites for Filmmakers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-20-best-gamer-progress-tools/"><u>Top 20 Best Gamer Progress Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tripping-up-avoid-common-tripod-mistakes-in-vlogging-for-2024/"><u>Tripping Up? Avoid Common Tripod Mistakes in Vlogging for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-view-bots-and-other-easy-hacks-to-increase-views-for-2024/"><u>YouTube View Bots and Other Easy Hacks to Increase Views for 2024</u></a></li>
+</ul></div>

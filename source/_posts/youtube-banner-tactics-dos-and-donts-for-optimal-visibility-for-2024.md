@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube Banner Tactics  Dos and Don'ts for Optimal Visibility for 2024\""
-date: 2024-06-05T03:05:21.440Z
-updated: 2024-06-06T03:05:21.440Z
+date: 2024-07-30T21:34:01.530Z
+updated: 2024-07-31T21:34:01.530Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/9f799a63c5ced001089eec847a965c77100b85a29
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -37,8 +40,14 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 * **[What Should I Write on Banner?](#write)**
 * **[How Can I Make My Channel Art Look Good?](#good)**
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -69,6 +78,9 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
@@ -129,8 +141,14 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -147,3 +165,66 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-craft-engaging-videos-with-7-free-premium-soundscapes/"><u>[New] 2024 Approved  Craft Engaging Videos with 7 Free, Premium Soundscapes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-youtube-channel-trailers-the-ultimate-guide-to-profitability/"><u>[New] 2024 Approved  Crafting YouTube Channel Trailers  The Ultimate Guide to Profitability</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked/"><u>[New] 2024 Approved  Direct Streamline  The Most Efficient Flv-to-YouTube Tools Ranked</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-visibility-comprehensive-guide-to-video-marketing-titles/"><u>[New] 2024 Approved  Elevate Visibility  Comprehensive Guide to Video Marketing Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-creating-striking-youtube-video-previews/"><u>[New] 2024 Approved  Essential Tips  Creating Striking YouTube Video Previews</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-examining-youtubes-copyright-stance-versus-cc-approach/"><u>[New] 2024 Approved  Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-the-top-free-platforms-for-youtube-ops-for-2024/"><u>[New] Discover the Top Free Platforms for YouTube Ops for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-android-users-discover-the-top-youtube-video-clips/"><u>[New] In 2024, Android Users, Discover the Top YouTube Video Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-clip-groove-best-bgm-choices-for-todays-popular-yt-shorts/"><u>[New] In 2024, Clip Groove  Best BGM Choices For Today's Popular YT Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-engage-audiences-writing-magical-youtube-description-templates-for-higher-views/"><u>[New] In 2024, Engage Audiences  Writing Magical YouTube Description Templates for Higher Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-youtubes-regular-pay-structure/"><u>[New] In 2024, Exploring YouTube’s Regular Pay Structure</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-insights-into-youtube-shorts-business-model/"><u>[New] Insights Into YouTube Shorts Business Model</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-into-the-unknown-how-to-start-and-flourish-as-a-travel-videographer/"><u>[New] Into the Unknown  How To Start & Flourish As a Travel Videographer</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mystic-modulation-is-this-speech-shifting-software-authentic-or-fiction-discover-substitutes/"><u>[New] Mystic Modulation  Is This Speech-Shifting Software Authentic or Fiction? Discover Substitutes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-insider-guide-to-regular-broadcast-etiquette/"><u>[New] The Insider Guide to Regular Broadcast Etiquette</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-selection-of-video-capture-tools-for-streaming/"><u>[New] Ultimate Selection of Video Capture Tools for Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-tutorial-simplifying-youtube-subscriptions/"><u>[New] Ultimate Tutorial  Simplifying YouTube Subscriptions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-secrets-to-stellar-youtube-intros/"><u>[New] Unveiling the Secrets to Stellar YouTube Intros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-movie-maker-a-beginner-friendly-video-editing-companion/"><u>[New] YouTube Movie Maker  A Beginner-Friendly Video Editing Companion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-copyright-landscape-decoded-a-complete-analysis/"><u>[New] YouTube's Copyright Landscape Decoded  A Complete Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks/"><u>[Updated] 2024 Approved  Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cultivating-connection-not-compulsion-in-subscriptions/"><u>[Updated] 2024 Approved  Cultivating Connection, Not Compulsion in Subscriptions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-your-vlogs-a-list-of-the-top-12-professional-cameras/"><u>[Updated] 2024 Approved  Elevating Your Vlogs  A List of the Top 12 Professional Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-income-average-creator-revenue-from-adverts-on-youtube/"><u>[Updated] 2024 Approved  Exploring Income  Average Creator Revenue From Adverts on YouTube?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-photosynth-pros-a-quick-snapchat-peek/"><u>[Updated] 2024 Approved  Photosynth Pros  A Quick Snapchat Peek</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-7-free-video-editing-programs-that-work-flawlessly-for-2024/"><u>[Updated] 7 Free Video Editing Programs That Work Flawlessly for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-android-and-ios-users-choice-top-playlist-saving-apps-for-youtube-for-2024/"><u>[Updated] Android & iOS Users' Choice  Top Playlist Saving Apps for YouTube for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-experiential-playground-vr-innovations/"><u>[Updated] Experiential Playground  VR Innovations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-use-jump-cuts-in-your-vlog/"><u>[Updated] How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-clear-youtubes-obscured-visual-field/"><u>[Updated] In 2024, Clear Youtube's Obscured Visual Field</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-drive-engagement-crafting-an-animated-subscribe-button-in-filmoras-step-by-step-guide/"><u>[Updated] In 2024, Drive Engagement  Crafting an Animated Subscribe Button in Filmora's Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-shots-vloggers-guide-to-the-9-finest-camera-gadgets/"><u>[Updated] In 2024, Elevate Your Shots  Vlogger's Guide to the 9 Finest Camera Gadgets</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-private-chronicles-in-snapchat-an-essential-guide/"><u>[Updated] In 2024, Private Chronicles in Snapchat  An Essential Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-instantly-access-all-episodes-premium-downloader-tools-reviewed/"><u>[Updated] Instantly Access All Episodes  Premium Downloader Tools Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pro-level-7-dslrs-that-transform-your-digital-storytelling/"><u>[Updated] Pro-Level 7 DSLRs That Transform Your Digital Storytelling</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-refresher-green-screen-film-tech-basics/"><u>[Updated] Quick Refresher  Green Screen Film Tech Basics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-best-gif-maker-applications-for-creative-freedom/"><u>[Updated] The Best GIF Maker Applications for Creative Freedom</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-future-of-development-understanding-the-impact-of-next-gen-frameworks/"><u>[Updated] The Future of Development  Understanding the Impact of Next-Gen Frameworks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-food-youtubers-you-should-follow/"><u>[Updated] Top Food YouTubers You Should Follow</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enchanting-audiences-crafting-captivating-animation-with-wmm/"><u>2024 Approved  Enchanting Audiences  Crafting Captivating Animation with WMM</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-guide-to-exceptional-srt-text-management/"><u>2024 Approved  How-To Guide to Exceptional SRT Text Management</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-silent-scribes-selection-top-choices-in-offline-recognition-tech/"><u>2024 Approved  Silent Scribes' Selection  Top Choices in Offline Recognition Tech</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-synthesizing-a-look-at-magix-creative-suite/"><u>2024 Approved  Synthesizing a Look at MAGIX Creative Suite</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-online-identity-unlocked-establishing-a-new-youtube-chanel-today/"><u>2024 Approved  Your Online Identity Unlocked  Establishing a New YouTube Chanel Today</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-honor-play-8t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-samsung-galaxy-z-flip-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-7-plus-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 7 Plus To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-11-pro-with-a-mask-on-by-drfone-ios/"><u>How to Unlock Apple iPhone 11 Pro with a Mask On</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-charting-earnings-from-youtube-adsense-what-you-can-expect-per-1000-views/"><u>In 2024, Charting Earnings From YouTube AdSense  What You Can Expect per 1,000 Views</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy A24? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-g2-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo G2 Phone without PIN</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-minimizing-disorientation-your-vr-wellbe-written-guide/"><u>In 2024, Minimizing Disorientation  Your VR Wellbe Written Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-what-are-the-earning-prospects-for-youtubers-from-branded-video-plays/"><u>In 2024, What Are the Earning Prospects for YouTubers From Branded Video Plays?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/professional-window-capturer-version-11/"><u>Professional Window Capturer - Version 11</u></a></li>
+<li><a href="https://driver-error.techidaily.com/seagate-external-hard-drive-not-showing-up-on-windows-10-solved/"><u>Seagate External Hard Drive Not Showing Up on Windows 10 [Solved]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-iconic-youtube-beginnings-method-a-and-b-for-2024/"><u>Step-by-Step Guide to Iconic YouTube Beginnings  Method A & B for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-youtube-numbers-for-enhanced-performance-for-2024/"><u>Unlock YouTube Numbers for Enhanced Performance for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-zte-nubia-z60-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+</ul></div>

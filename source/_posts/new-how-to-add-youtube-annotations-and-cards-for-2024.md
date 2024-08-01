@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Add YouTube Annotations and Cards for 2024"
-date: 2024-06-05T04:59:30.576Z
-updated: 2024-06-06T04:59:30.576Z
+date: 2024-07-31T00:45:05.866Z
+updated: 2024-08-01T00:45:05.866Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/3f83cf37f566bce38971b018170626d6e67c9f875
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -51,11 +54,17 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -67,6 +76,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -75,6 +87,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -118,6 +133,9 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -134,3 +152,54 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-6-completely-different-places-to-get-icons-and-logos-for-youtube-videos/"><u>[New] 2024 Approved  6 Completely Different Places to Get Icons and Logos for YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-identity-constructing-memorable-templates-for-gamers/"><u>[New] 2024 Approved  Channel Identity  Constructing Memorable Templates for Gamers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-easy-ways-to-add-music-to-imovie-from-youtube/"><u>[New] 2024 Approved  Easy Ways to Add Music to iMovie From YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide-for-2024/"><u>[New] Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-deciphering-digital-dominance-a-detailed-examination-of-youtube-engagement-metrics-for-2024/"><u>[New] Deciphering Digital Dominance  A Detailed Examination of YouTube Engagement Metrics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-the-mystery-of-where-are-my-youtube-comments-in-2024/"><u>[New] Decoding the Mystery of Where Are My YouTube Comments, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-engagement-integrating-gs-and-yt-strategies-for-2024/"><u>[New] Effortless Engagement  Integrating GS & YT Strategies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easy-and-inexpensive-techniques-for-youtube-cards/"><u>[New] In 2024, Easy and Inexpensive Techniques for YouTube Cards</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-erase-the-obvious-techniques-for-masked-youtube-content/"><u>[New] In 2024, Erase the Obvious  Techniques for Masked YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-famous-gamers-software-choices/"><u>[New] In 2024, Famous Gamers' Software Choices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-why-are-status-emojis-blue-understanding-fbs-visual-language/"><u>[New] In 2024, Why Are Status Emojis Blue? Understanding FB's Visual Language</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essential-guide-to-choosing-youtube-friendly-video-formats/"><u>[New] The Essential Guide to Choosing YouTube-Friendly Video Formats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-hilarious-song-mock-ups-laughter-unleashed/"><u>[New] Top 10 Hilarious Song Mock-Ups  Laughter Unleashed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-your-creative-spark-stylistic-self-discovery-high-ctr/"><u>[New] Unleashing Your Creative Spark  Stylistic Self-Discovery [High CTR]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-videos-hidden-potential-with-these-top-20-shortcuts/"><u>[New] Unlock Your Video's Hidden Potential with These Top 20 Shortcuts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-journey-to-glamorous-guruship-launching-an-aesthetic-channel/"><u>[New] Your Journey to Glamorous Guruship  Launching an Aesthetic Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-the-perfect-stream-a-comprehensive-guide-to-youtubes-full-rotation-videos/"><u>[Updated] 2024 Approved  Craft the Perfect Stream  A Comprehensive Guide to YouTube’s Full-Rotation Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-direct-screen-capture-chrome-os-tool/"><u>[Updated] 2024 Approved  Direct Screen Capture Chrome OS Tool</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-experience-the-power-of-visuals-discover-all-50-banners-in-our-digital-collection/"><u>[Updated] 2024 Approved  Experience the Power of Visuals  Discover All 50 Banners in Our Digital Collection</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-archive-navigation-made-simple/"><u>[Updated] 2024 Approved  Twitter Archive Navigation Made Simple</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-collaborative-video-creation-and-growth-tips-for-2024/"><u>[Updated] Collaborative Video Creation & Growth Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-an-impactful-online-presence-with-perfect-yt-dimensions-for-2024/"><u>[Updated] Crafting an Impactful Online Presence with Perfect YT Dimensions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-tips-for-post-upload-video-improvement/"><u>[Updated] Expert Tips for Post-Upload Video Improvement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-studio-to-stage-stream-your-mp3-tunes-on-youtube/"><u>[Updated] From Studio to Stage  Stream Your MP3 Tunes on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-get-free-views-on-youtube-2-easy-ways/"><u>[Updated] How to Get Free Views on YouTube [2 Easy Ways]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-delving-into-the-world-of-asmr-soundscapes/"><u>[Updated] In 2024, Delving Into the World of ASMR Soundscapes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-twitch-and-friendly-networks-efficient-crossposting/"><u>[Updated] In 2024, Twitch and Friendly Networks  Efficient Crossposting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-lush-looks-and-flawless-filters-building-your-vlog-empire/"><u>[Updated] Lush Looks and Flawless Filters  Building Your Vlog Empire</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-numbers-that-shook-youtube-facts-in-visual-form-2017/"><u>[Updated] Numbers that Shook! YouTube Facts in Visual Form (2017)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quality-guffaws-uncover-the-top-15-youtube-comedy-talents/"><u>[Updated] Quality Guffaws  Uncover the Top 15 YouTube Comedy Talents</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-cutting-edge-e-learning-sites-that-dont-fit-udemy/"><u>2024 Approved  Cutting-Edge E-Learning Sites That Don't Fit Udemy</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-instant-verbal-to-written-conversion-for-nothing/"><u>2024 Approved  Instant Verbal to Written Conversion for Nothing</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-unveiling-top-audio-capture-alternatives-your-ultimate-resource-guide-to-free-voice-recorders-for-the-upcoming-year/"><u>2024 Approved Unveiling Top Audio Capture Alternatives Your Ultimate Resource Guide to Free Voice Recorders for the Upcoming Year</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-on-your-apple-iphone-xr-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID On Your Apple iPhone XR</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>Born to Create Video Magic  Mac Basics for Beginners on YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-vivo-y100-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Vivo Y100</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-oppo-find-x7-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Oppo Find X7 Phone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-flashback-flair-top-80s-video-tricks-for-a-contemporary-edge/"><u>In 2024, Flashback Flair  Top 80S Video Tricks for a Contemporary Edge</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-zte-nubia-z60-ultra-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on ZTE Nubia Z60 Ultra Devices</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-on-apple-iphone-6-plus-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud On Apple iPhone 6 Plus Smoothly</u></a></li>
+<li><a href="https://games-able.techidaily.com/playing-for-the-digital-age-pros-and-cons-that-matter-to-gamers/"><u>Playing for the Digital Age: Pros and Cons That Matter to Gamers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-xr-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone XR Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/retrospective-graphics-radeons-reprise-for-2024/"><u>Retrospective Graphics  Radeon's Reprise for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-your-reacting-skills-with-these-3-pro-level-youtube-tips-for-2024/"><u>Revolutionize Your Reacting Skills with These 3 Pro-Level YouTube Tips for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sow-seeds-of-smile-inducing-images-for-2024/"><u>Sow Seeds of Smile-Inducing Images for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/transformative-tips-for-a-productive-win-11-bar/"><u>Transformative Tips for a Productive Win 11 Bar</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-video-content-strategies-on-youtube-for-2024/"><u>Unveiling Video Content Strategies on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-youtube-pros-tubebuddys-edge-for-2024/"><u>Unveiling YouTube Pros  TubeBuddy's Edge for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Transforming Web Popularity Into Video Concepts Using Google Trends"
-date: 2024-06-05T05:37:22.993Z
-updated: 2024-06-06T05:37:22.993Z
+date: 2024-07-31T01:48:16.676Z
+updated: 2024-08-01T01:48:16.676Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,9 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: Seeing The Big Picture
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
@@ -46,6 +49,10 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -88,6 +95,9 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
@@ -98,6 +108,10 @@ There, now I can see how the popularity of Filmora as a search term has spiked o
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
@@ -118,12 +132,25 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -140,3 +167,57 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-budget-edits-8-no-charge-video-editing-software/"><u>[New] 2024 Approved  Best Budget Edits  8 No-Charge Video Editing Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channelart-essentials-10-digital-tools-to-design-logos-and-themes/"><u>[New] 2024 Approved  ChannelArt Essentials  10 Digital Tools to Design Logos & Themes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-comedy-in-catchy-notes-best-parody-songs-list/"><u>[New] 2024 Approved  Comedy in Catchy Notes  Best Parody Songs List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-composing-channel-overview-teaser-clips/"><u>[New] 2024 Approved  Composing Channel Overview Teaser Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-imovie-music-enhancement-using-youtube-songs/"><u>[New] 2024 Approved  Effortless iMovie Music Enhancement Using YouTube Songs</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-5-excellent-gaming-keyboards-within-a-100-budget-for-2024/"><u>[New] 5 Excellent Gaming Keyboards Within a $100 Budget for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-comprehensive-look-at-youtuber-snippets-for-2024/"><u>[New] A Comprehensive Look at Youtuber Snippets for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-beautifying-videos-for-youtube-viewers-for-2024/"><u>[New] Beautifying Videos for YouTube Viewers for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-chuckle-chronicles-top-10-humoristic-youtube-video-plans/"><u>[New] Chuckle Chronicles  Top 10 Humoristic YouTube Video Plans</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-clip-weaver-workshop-for-2024/"><u>[New] Clip Weaver Workshop for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-advice-getting-rid-of-stickers-on-videos/"><u>[New] Expert Advice  Getting Rid of Stickers on Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-biggest-fifa-footage-trends-in-graphics/"><u>[New] In 2024, Exploring Biggest FIFA Footage Trends in Graphics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instacrafts-seamless-video-assemblies-on-androidios-for-2024/"><u>[New] InstaCrafts  Seamless Video Assemblies on Android/iOS for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-navigating-the-complexities-of-photo-hdr-in-photoshop-for-2024/"><u>[New] Navigating the Complexities of Photo-HDR in Photoshop for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-redesign-twitter-video-header/"><u>[New] Redesign Twitter Video Header</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-social-spectacle-snatcher-hub-for-2024/"><u>[New] Social Spectacle Snatcher Hub for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-investors-handbook-for-monetized-youtubers/"><u>[New] The Investor's Handbook for Monetized Youtubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-accelerate-video-processing-for-youtube-uploads/"><u>[Updated] 2024 Approved  Accelerate Video Processing for YouTube Uploads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-binge-your-way-into-animated-gifs-turning-youtube-content-without-downloads/"><u>[Updated] 2024 Approved  Binge Your Way Into Animated Gifs  Turning YouTube Content Without Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-edits-the-beginners-insider-look-at-editing-techniques/"><u>[Updated] 2024 Approved  Elevate Your Edits  The Beginner's Insider Look at Editing Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audiovisual-standards-for-success-on-youtube-top-format-choices-for-2024/"><u>[Updated] Audiovisual Standards for Success on YouTube – Top Format Choices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-content-masterpieces-with-these-essential-youtube-tips-for-2024/"><u>[Updated] Crafting Content Masterpieces with These Essential YouTube Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-youtubes-5-second-tales-for-2024/"><u>[Updated] Decoding YouTube's 5-Second Tales for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-content-visibility-discover-6-thumbnail-designers-best-tools-for-2024/"><u>[Updated] Elevate Your Content Visibility - Discover 6 Thumbnail Designers' Best Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enjoy-uninterrupted-youtube-with-effective-adblocking-methods-for-2024/"><u>[Updated] Enjoy Uninterrupted YouTube with Effective Adblocking Methods for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-free-mcb-banner-designs-for-2024/"><u>[Updated] Exclusive Free MCB Banner Designs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-advanced-video-control-in-youtubes-playback-features-for-2024/"><u>[Updated] Explore Advanced Video Control in YouTube’s Playback Features for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gaining-clarity-on-your-youtube-audiences-behavior/"><u>[Updated] Gaining Clarity on Your YouTube Audience's Behavior</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-guide-on-transforming-youtube-videos-into-mp3-using-safe-procedures/"><u>[Updated] Guide on Transforming YouTube Videos Into MP3 Using Safe Procedures</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-use-dslr-for-facebook-live-on-you-pc-or-mac-for-2024/"><u>[Updated] How to Use DSLR for Facebook Live on You PC or Mac for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-snappy-and-simple-steps-for-posting-short-videos-online/"><u>[Updated] Snappy and Simple  Steps for Posting Short Videos Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtubes-potential-title-and-tag-best-practices/"><u>[Updated] Unlocking YouTube's Potential  Title and Tag Best Practices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-webinar-guide-host-without-spending/"><u>[Updated] YouTube Webinar Guide  Host Without Spending</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-best-mobile-editors-for-professional-gopro-videos/"><u>2024 Approved  The Best Mobile Editors for Professional GoPro Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-unleashing-your-creative-potential-mastery-of-vocal-overdubs/"><u>2024 Approved  Unleashing Your Creative Potential  Mastery of Vocal Overdubs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-visual-identity-made-easy/"><u>2024 Approved  YouTube Visual Identity Made Easy</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/it-up-15-must-haves-for-your-youtube-live-stream/"><u>Beam It Up! 15 Must-Haves for Your YouTube Live Stream</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-realme-gt-neo-5-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Realme GT Neo 5 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/enlarge-your-feed-footprint-with-full-screen-videos/"><u>Enlarge Your Feed Footprint with Full-Screen Videos</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ensuring-amd-freesync-stability-and-support/"><u>Ensuring AMD FreeSync Stability and Support</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exclusive-zero-cost-custom-video-conclusions-for-2024/"><u>Exclusive, Zero-Cost Custom Video Conclusions for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-on-iphone-8-plus-5-best-solutions-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover deleted pictures on iPhone 8 Plus? 5 Best Solutions | Stellar</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-exclusive-mac-hd-scribing-plus-auditory-logging-solution/"><u>In 2024, Exclusive Mac HD Scribing + Auditory Logging Solution</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-13-pro-max-drfone-by-drfone-ios/"><u>In 2024, Guide on How To Change Your Apple ID Email Address On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-honor-90-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Honor 90 FRP Bypass</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-xiaomi-redmi-k70e-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Xiaomi Redmi K70E Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-who-are-you-unraveling-youtuber-personalities-in-6-quizzes/"><u>In 2024, Who Are You? Unraveling YouTuber Personalities in 6 Quizzes</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-do-you-want-to-add-a-slow-mo-effect-in-your-videos-in-this-guide-we-will-discuss-how-to-add-slow-motion-effects-in-the-videos-with-after-effects/"><u>New In 2024, Do You Want to Add a Slow-Mo Effect in Your Videos? In This Guide, We Will Discuss How to Add Slow-Motion Effects in the Videos with After Effects in an Efficient Way</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-video-value-calculation-tools-for-2024/"><u>Quick Video Value Calculation Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-your-device-by-clearing-youtube-downloads-for-2024/"><u>Streamlining Your Device by Clearing YouTube Downloads for 2024</u></a></li>
+</ul></div>

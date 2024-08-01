@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, DIY Tips for Affordable YouTube Intro/End Videos"
-date: 2024-06-05T05:26:13.860Z
-updated: 2024-06-06T05:26:13.860Z
+date: 2024-07-31T01:29:38.041Z
+updated: 2024-08-01T01:29:38.041Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/900dc848292f751f63b27f646fc76a619bc7384a4
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -40,6 +43,9 @@ thumbnail: https://thmb.techidaily.com/900dc848292f751f63b27f646fc76a619bc7384a4
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -66,6 +72,9 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -77,6 +86,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -110,6 +122,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -126,3 +141,37 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>[New] 2024 Approved  Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earn-more-maximizing-income-through-youtube-mobile-advertising/"><u>[New] 2024 Approved  Earn More  Maximizing Income Through YouTube Mobile Advertising</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[New] 2024 Approved  Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-optimal-low-cost-video-conferencing-software-options/"><u>[New] 2024 Approved  Optimal Low-Cost Video Conferencing Software Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-success-across-social-networks-youtube-plus-more-for-2024/"><u>[New] Channel Success Across Social Networks  YouTube + More for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-click-and-groove-an-insiders-guide-to-making-tiktok-dance-videos-for-mac-for-2024/"><u>[New] Click and Groove  An Insider's Guide to Making TikTok Dance Videos for Mac for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cozy-up-your-videos-best-winter-bgs-revealed-for-2024/"><u>[New] Cozy Up Your Videos  Best Winter Bg's Revealed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-engaging-videos-with-7-free-premium-soundscapes-for-2024/"><u>[New] Craft Engaging Videos with 7 Free, Premium Soundscapes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cut-the-cost-not-your-content-quality-try-these-top-8-free-tools-for-2024/"><u>[New] Cut The Cost, Not Your Content Quality - Try These Top 8 Free Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-youtube-income-how-much-does-each-1000-viewer-earn-in-2024/"><u>[New] Decoding YouTube Income  How Much Does Each 1,000 Viewer Earn, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-fusion-of-youtube-audio-with-imovie-masterpieces-for-2024/"><u>[New] Effortless Fusion of YouTube Audio with iMovie Masterpieces for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-edit-videos-for-youtube-on-pc-for-2024/"><u>[New] How to Edit Videos for YouTube on PC for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-3-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis/"><u>[New] In 2024, 3-Step Guide to Ascertain Google's Profitable Potential  YouTube Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-solid-foundation-youtube-video-script-basics/"><u>[New] In 2024, Building a Solid Foundation  YouTube Video Script Basics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>[New] In 2024, Craft Proficient Content for Short-Form Video  Best Edits Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[New] In 2024, DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-8-linux-software-for-editors/"><u>[New] In 2024, Essential 8 Linux Software for Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-extend-video-duration-for-youtube-posting/"><u>[New] In 2024, Extend Video Duration for YouTube Posting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-locating-your-youtube-comments-desktop-and-mobile-guide/"><u>[New] Locating Your YouTube Comments  Desktop & Mobile Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-8-techniques-for-grabbing-attention-in-yt-thumbnails/"><u>[New] Top 8 Techniques for Grabbing Attention in YT Thumbnails</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-5-reviews-of-zooms-powerful-affordable-transcription-software/"><u>[Updated] Top 5 Reviews of Zoom's Powerful, Affordable Transcription Software</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-dramatic-writing-site/"><u>Best Dramatic Writing Site</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-oneplus-nord-3-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead OnePlus Nord 3 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-xiaomi-13t-pro-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Xiaomi 13T Pro Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-how-to-avoid-and-reverse-strikes-on-your-youtube-channel/"><u>In 2024, How to Avoid and Reverse Strikes on Your YouTube Channel</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-oneplus-nord-3-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your OnePlus Nord 3 5G Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-xiaomi-redmi-note-12-pro-4g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Xiaomi Redmi Note 12 Pro 4G Location | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-short-film-previews-for-channels-for-2024/"><u>Streamlining Short Film Previews for Channels for 2024</u></a></li>
+</ul></div>

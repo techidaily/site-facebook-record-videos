@@ -1,7 +1,7 @@
 ---
 title: "The Secret to Viral Videos? Get the Best Thumbnail Size Guide for 2024"
-date: 2024-06-05T05:05:49.985Z
-updated: 2024-06-06T05:05:49.985Z
+date: 2024-07-31T00:55:45.144Z
+updated: 2024-08-01T00:55:45.144Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,9 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -62,6 +65,9 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * Upload your desired video to YouTube in the Upload section.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
@@ -71,6 +77,9 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
@@ -84,13 +93,22 @@ To change the thumbnail on an already uploaded video you need to follow these st
 * Sign in to YouTube Studio associated with your YouTube channel.
 * From the menu go to **Videos** and then select the video you want to upload a custom thumbnail to via its title or thumbnail
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
@@ -98,6 +116,9 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -151,3 +172,46 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-20-youtube-channels-for-all-time-favorite-bands/"><u>[New] 2024 Approved  20 YouTube Channels for All-Time Favorite Bands</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-bundle-of-nine-premium-holiday-treasures-watch-for-free-on-youtube/"><u>[New] 2024 Approved  A Bundle of Nine Premium Holiday Treasures  Watch for Free on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-approach-to-best-youtube-thumbnails/"><u>[New] 2024 Approved  A Step-by-Step Approach to Best YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-student-focused-historical-yt-series/"><u>[New] 2024 Approved  Best Student-Focused Historical YT Series</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-up-the-essential-guide-to-computer-and-mobile-video-upload/"><u>[New] 2024 Approved  Channel Up  The Essential Guide to Computer & Mobile Video Upload</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-delving-into-tseries-streaming-revenue-model-on-youtube/"><u>[New] 2024 Approved  Delving Into TSeries' Streaming Revenue Model on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-the-science-of-hash-optimization-for-game-streaming-for-2024/"><u>[New] Decoding the Science of Hash Optimization for Game Streaming for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-compreenas-guide-to-choosing-ideal-lenses-for-filmmaking/"><u>[New] In 2024, A Compreenas Guide to Choosing Ideal Lenses for Filmmaking</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unveiling-the-process-of-sharing-srt-text-in-social-digital-spaces/"><u>[New] Unveiling the Process of Sharing SRT Text in Social Digital Spaces</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-3-techniques-to-retrieve-and-save-youtubes-iconic-images/"><u>[Updated] 2024 Approved  3 Techniques to Retrieve & Save YouTube's Iconic Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-5-tricks-for-instantly-boosting-youtube-subscribers/"><u>[Updated] 2024 Approved  5 Tricks for Instantly Boosting YouTube Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-download-king-comprerante-video-acquisition-guide/"><u>[Updated] 2024 Approved  Digital Download King  Comprerante Video Acquisition Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-network-neutralizer-overcoming-facebook-intrusion/"><u>[Updated] 2024 Approved  Network Neutralizer  Overcoming Facebook Intrusion</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-capturing-every-detail-tactics-for-streamlined-meet-recordings-for-2024/"><u>[Updated] Capturing Every Detail  Tactics for Streamlined Meet Recordings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-mobile-youtube-usage-on-different-oses-for-2024/"><u>[Updated] Exploring Mobile YouTube Usage on Different OSes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beam-your-content-upward-perfecting-youtube-seo-techniques/"><u>[Updated] In 2024, Beam Your Content Upward  Perfecting YouTube SEO Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-earn-extra-bucks-maximizing-youtubes-mobile-revenue-opportunities/"><u>[Updated] In 2024, Earn Extra Bucks  Maximizing YouTube's Mobile Revenue Opportunities</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-strategies-for-viewing-your-subscribers/"><u>[Updated] In 2024, Essential Strategies for Viewing Your Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[Updated] In 2024, Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-learn-from-the-best-youtubes-top-green-screen-techniques/"><u>[Updated] Learn From The Best  Youtube’s Top Green Screen Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mr-beasts-financial-portrait/"><u>[Updated] Mr. Beast’s Financial Portrait</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-pushing-up-conversions-with-high-roi-animated-advertisements-on-fb-for-2024/"><u>[Updated] Pushing Up Conversions with High-ROI Animated Advertisements on FB for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-insights-for-successful-short-video-creation/"><u>[Updated] The Ultimate Insights for Successful Short Video Creation</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-viewer-recognition-the-play-button-reward-ribbon/"><u>[Updated] Viewer Recognition  The Play Button Reward Ribbon</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-exploring-whatsapp-voice-chat-features/"><u>2024 Approved  Exploring WhatsApp Voice Chat Features</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-in-depth-look-at-frozen-delight-recording-software/"><u>2024 Approved  In-Depth Look at Frozen Delight Recording Software</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-tecno-camon-20-pro-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Tecno Camon 20 Pro 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-nubia-z50-ultra-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Nubia Z50 Ultra</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-itel-p55-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Itel P55 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-oppo-a38-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Oppo A38 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-se-2022-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone SE (2022)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/igtv-to-fb-exposure-guide-5-top-methods-for-2024/"><u>IGTV to FB Exposure Guide (5 Top Methods) for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unrestricted-story-preservation-free/"><u>In 2024, Unrestricted Story Preservation, FREE</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-success-elevating-audience-count/"><u>In 2024, YouTube Success  Elevating Audience Count</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/ode-omission-module-assemble-bespoke-musical-frameworks/"><u>Ode Omission Module Assemble Bespoke Musical Frameworks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/regulatory-views-on-screenshots-from-youtube-streaming-for-2024/"><u>Regulatory Views on Screenshots From YouTube Streaming for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/supercharge-your-channel-with-smart-youtube-collaborations-for-2024/"><u>Supercharge Your Channel with Smart YouTube Collaborations for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-samsung-galaxy-z-flip-5-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Samsung Galaxy Z Flip 5 Location | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-the-secrets-of-efficient-banner-use-in-game-channels-for-2024/"><u>Unlock the Secrets of Efficient Banner Use in Game Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-mysteries-of-digital-media-ownership-on-youtube-for-2024/"><u>Unveiling the Mysteries of Digital Media Ownership on YouTube for 2024</u></a></li>
+</ul></div>

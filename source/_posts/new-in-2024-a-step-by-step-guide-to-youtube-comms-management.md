@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Step-by-Step Guide to YouTube Comms Management\""
-date: 2024-06-05T04:26:22.100Z
-updated: 2024-06-06T04:26:22.100Z
+date: 2024-07-30T23:49:07.614Z
+updated: 2024-07-31T23:49:07.614Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/4bb09ddf21259f8aa35372dd3bddaab5a52e4c2f7
 
 # How to Turn on or off Comments on YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -30,6 +33,9 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -38,6 +44,9 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -62,6 +71,9 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
@@ -90,6 +102,14 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -112,6 +132,23 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -156,3 +193,45 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-mp4-utilities-choosing-the-right-one-for-mac/"><u>[New] 2024 Approved  Cutting Edge MP4 Utilities  Choosing the Right One for Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-new-heights-top-10-adventure-channels/"><u>[New] 2024 Approved  Discover New Heights  Top 10 Adventure Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exclusive-access-top-8-platforms-for-free-green-screen-scenery-files/"><u>[New] 2024 Approved  Exclusive Access  Top 8 Platforms for Free Green Screen Scenery Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-cinematic-magic-learn-green-screen-wonders-with-youtube-for-2024/"><u>[New] Craft Cinematic Magic  Learn Green Screen Wonders with YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-analyze-youtube-data-efficiently-with-social-blade-tools/"><u>[New] In 2024, Analyze YouTube Data Efficiently with Social Blade Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-brief-but-impactful-which-social-platform-leads-for-short-video-content/"><u>[New] In 2024, Brief but Impactful  Which Social Platform Leads for Short Video Content?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-link-driven-success-a-backlink-blueprint-for-channels/"><u>[New] In 2024, Crafting Link-Driven Success  A Backlink Blueprint for Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-embracing-resilience-against-online-detractors/"><u>[New] In 2024, Embracing Resilience Against Online Detractors</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-premier-4k-recorder-apps-reviewed/"><u>[New] In 2024, Premier 4K Recorder Apps Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-leading-asmr-content-on-the-web/"><u>[New] Leading ASMR Content on the Web</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-quickshot-recorder-evaluation-summary/"><u>[New] QuickShot Recorder Evaluation Summary</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-eradicating-youtube-content-in-a-device-friendly-way/"><u>[Updated] 2024 Approved  Eradicating YouTube Content in a Device-Friendly Way</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-beginners-ultimate-list-of-youtube-production-tools-for-2024/"><u>[Updated] Beginner's Ultimate List of YouTube Production Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comic-capers-top-10-hilarious-youtube-short-film-ideas-for-2024/"><u>[Updated] Comic Capers  Top 10 Hilarious YouTube Short Film Ideas for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-finding-peace-in-patience-slowing-down-your-online-video-experience-on-youtube-60-chars-a-bit-long-but-full-of-helpful-info/"><u>[Updated] Finding Peace in Patience  Slowing Down Your Online Video Experience on YouTube (60 Chars, a Bit Long but Full of Helpful Info)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[Updated] From Average to Exceptional  Discover the Finest Free Intra Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-brand-visualization-inserting-watermarks-and-logos-into-youtube-media/"><u>[Updated] In 2024, Brand Visualization  Inserting Watermarks and Logos Into YouTube Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-worldly-stories-startup-guide-for-future-travel-vloggers/"><u>[Updated] In 2024, Crafting Worldly Stories  Startup Guide for Future Travel Vloggers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-picks-easy-youtube-template-downloads/"><u>[Updated] Prime Picks  Easy YouTube Template Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tailored-trends-the-pathway-to-a-specialized-youtube-niche/"><u>[Updated] Tailored Trends  The Pathway to a Specialized Youtube Niche</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-video-symbolism-6-websites-where-creativity-thrives/"><u>[Updated] The Art of Video Symbolism  6 Websites Where Creativity Thrives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-thumbnail-insight-top-picks-for-maximizing-video-visibility/"><u>[Updated] Thumbnail Insight  Top Picks for Maximizing Video Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-financial-success-through-youtubes-viewer-count/"><u>[Updated] Unlocking Financial Success Through Youtube's Viewer Count</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtubes-potential-the-25-step-guide/"><u>[Updated] Unlocking YouTube's Potential  The 25-Step Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-live-or-recorded-twitch-versus-youtube-face-off/"><u>2024 Approved  Live or Recorded  Twitch versus YouTube Face Off</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-quintessential-list-best-tales-from-youtube-in-23/"><u>2024 Approved  The Quintessential List  Best Tales From YouTube in '23</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-nokia-c12-pro-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Nokia C12 Pro</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fix-windows-10-upside-down-display-issue/"><u>Fix: Windows 10 Upside-Down Display Issue</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-11-pro-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 11 Pro To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-comprehensive-guide-to-leveraging-adobe-cloud-for-enhanced-data-management/"><u>In 2024, Comprehensive Guide to Leveraging Adobe Cloud for Enhanced Data Management</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-top-9-androidios-video-chat-platforms-ranked/"><u>In 2024, Top 9 Android/iOS Video Chat Platforms Ranked</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfectly-positioned-cards-youtube-embedding-techniques-for-2024/"><u>Perfectly Positioned Cards  YouTube Embedding Techniques for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionizing-travel-a-dive-into-vr-tour-possibilities-for-2024/"><u>Revolutionizing Travel  A Dive Into VR Tour Possibilities for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-creating-popular-youtube-openings-for-2024/"><u>Step-by-Step Guide to Creating Popular YouTube Openings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-complete-reference-for-content-creators-youtube-copyright-for-2024/"><u>The Complete Reference for Content Creators  YouTube Copyright for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-power-of-collaborations-youtube-shorts-edition-for-2024/"><u>The Power of Collaborations  YouTube Shorts Edition for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/troubleshooting-missing-device-issue-on-windows-os/"><u>Troubleshooting Missing Device Issue on Windows OS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unveiling-ace-video-capturers-guide/"><u>Unveiling Ace Video Capturers Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-x100-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo X100 Phone Network-Ready</u></a></li>
+</ul></div>

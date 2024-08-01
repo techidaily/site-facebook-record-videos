@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Creating Engaging YouTube Openings & Closers for Free"
-date: 2024-06-05T05:20:44.005Z
-updated: 2024-06-06T05:20:44.005Z
+date: 2024-07-31T01:20:29.306Z
+updated: 2024-08-01T01:20:29.306Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/fd52a4ddb4c67fef5b4a68a7a51c8e47e5f13f4d1
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -40,6 +43,9 @@ thumbnail: https://thmb.techidaily.com/fd52a4ddb4c67fef5b4a68a7a51c8e47e5f13f4d1
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -66,6 +72,10 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -77,6 +87,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -110,6 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -126,3 +142,43 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>[New] 2024 Approved  A Compreayer's Guide to Monetizing Videos  Critical View Figures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-a-sports-channel-via-macos-step-by-step-guide/"><u>[New] 2024 Approved  Building a Sports Channel via macOS  Step by Step Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-tips-to-triple-your-instagram-video-viewers/"><u>[New] 2024 Approved  Tips to Triple Your Instagram Video Viewers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-deciphering-youtubes-shorts-funding-mechanism-for-2024/"><u>[New] Deciphering YouTube's Shorts Funding Mechanism for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-prevent-missing-facebook-page-views/"><u>[New] In 2024, Prevent Missing Facebook Page Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-launch-free-youtube-events-a-step-by-step-guide/"><u>[New] Launch Free Youtube Events  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-rise-to-editing-greatness-with-our-top-10-youtube-tips/"><u>[New] Rise to Editing Greatness with Our Top 10 YouTube Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-scrutinizing-video-edits-is-inshot-the-champion/"><u>[New] Scrutinizing Video Edits  Is InShot The Champion?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-versatile-viewing-cycle-and-catch-up-with-youtube-videos-on-tv/"><u>[New] Versatile Viewing  Cycle and Catch Up with YouTube Videos on TV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-channel-art-make-banners-icons-and-thumbnails/"><u>[New] YouTube Channel Art - Make Banners, Icons, and Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-a-journalistic-closing-statement/"><u>[Updated] 2024 Approved  Crafting a Journalistic Closing Statement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-engaging-youtube-thumbnails-a-step-by-step-guide/"><u>[Updated] 2024 Approved  Crafting Engaging YouTube Thumbnails  A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-customizing-your-watch-the-art-of-altering-youtube-video-pace/"><u>[Updated] 2024 Approved  Customizing Your Watch  The Art of Altering YouTube Video Pace</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps-for-2024/"><u>[Updated] Access Short Videos Anywhere  The Top 6 Free & Online YouTube Short Download Apps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-your-shorts-appeal-with-personalized-thumbnails-for-2024/"><u>[Updated] Enhance Your Shorts' Appeal with Personalized Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-best-history-youtube-channels-for-students-and-history-lovers/"><u>[Updated] In 2024, 10 Best History YouTube Channels for Students & History Lovers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-amplify-your-channel-effortless-tactics-for-more-views/"><u>[Updated] In 2024, Amplify Your Channel  Effortless Tactics for More Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[Updated] In 2024, Easy Transition From Local to Global  Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exploring-the-world-of-youtube-channel-naming-innovative-ideas-for-vloggers-and-filmmakers-no-more-than-156-characters/"><u>[Updated] In 2024, Exploring the World of YouTube Channel Naming  Innovative Ideas For Vloggers & Filmmakers (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-font-picks-to-elevate-your-youtube-thumbnail-impact/"><u>[Updated] In 2024, Top Font Picks to Elevate Your YouTube Thumbnail Impact</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-converter-youtube-dialogue-to-text/"><u>[Updated] Leading Converter  YouTube Dialogue to Text</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mind-mavens-top-10-educational-youtube-hubs/"><u>[Updated] Mind Mavens  Top 10 Educational YouTube Hubs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-monetizing-mastery-in-your-mind-the-no-ad-youtube-money-manual/"><u>[Updated] Monetizing Mastery in Your Mind  The No-Ad YouTube Money Manual</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-tag-selection-elevate-your-videos-online-presence/"><u>[Updated] Optimal Tag Selection  Elevate Your Video's Online Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-20-best-free-and-paid-gif-software-options/"><u>[Updated] The 20 Best Free and Paid GIF Software Options</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-freezing-your-gameplay-xbox-one-screenshot-essentials/"><u>2024 Approved  Freezing Your Gameplay  Xbox One Screenshot Essentials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-unlock-brand-potential-access-50-banners-at-no-cost/"><u>2024 Approved  Unlock Brand Potential - Access 50 Banners at No Cost!</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixing-non-registered-graphics-devices-on-pcs/"><u>Fixing Non-Registered Graphics Devices on PCs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-jpg-free-by-ldigisigner-sign-a-jpg-sign-a-jpg/"><u>How do i sign a jpg free</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-confirm-your-youtube-account-securely/"><u>How to Confirm Your YouTube Account Securely?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-x-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone X in the Best Ways</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-winning-the-game-with-a-strong-video-game-youtube-presence/"><u>In 2024, Winning the Game with a Strong Video Game Youtube Presence</u></a></li>
+<li><a href="https://review-topics.techidaily.com/itel-s23-music-recovery-recover-deleted-music-from-itel-s23-by-fonelab-android-recover-music/"><u>Itel S23 Music Recovery - Recover Deleted Music from Itel S23</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-converter-hub-optimal-youtube-videos-to-text-solutions-for-2024/"><u>Perfect Converter Hub  Optimal Youtube Videos to Text Solutions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simple-screen-capture-techniques-to-grab-youtube-soundtracks-for-2024/"><u>Simple Screen-Capture Techniques to Grab YouTube Soundtracks for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-power-of-precision-in-slug-line-writing-techniques/"><u>The Power of Precision in Slug Line Writing Techniques</u></a></li>
+<li><a href="https://techidaily.com/will-galaxy-a15-5g-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Will Galaxy A15 5G play AVCHD mts files?</u></a></li>
+</ul></div>

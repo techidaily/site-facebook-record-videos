@@ -1,7 +1,7 @@
 ---
 title: "[New] Mastering Quick YouTube Comment Removal Techniques"
-date: 2024-06-05T04:10:10.023Z
-updated: 2024-06-06T04:10:10.023Z
+date: 2024-07-30T23:21:40.019Z
+updated: 2024-07-31T23:21:40.019Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/e3cfe2024e8223233dca02c9346a88bd3c9122571
 
 # Deleting YouTube Comments
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -69,6 +72,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -83,6 +89,9 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -110,10 +119,17 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -126,6 +142,11 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -142,3 +163,56 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-captivate-and-enchant-explore-the-best-creative-reactions-on-yt/"><u>[New] 2024 Approved  Captivate and Enchant  Explore the Best Creative Reactions on YT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-charting-a-course-through-youtubes-copyright-maze/"><u>[New] 2024 Approved  Charting a Course Through YouTube's Copyright Maze</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cultivating-a-positive-mindset-against-cyberbullying/"><u>[New] 2024 Approved  Cultivating a Positive Mindset Against Cyberbullying</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-advanced-array-manipulations-and-sorting-algorithms-for-2024/"><u>[New] Advanced Array Manipulations and Sorting Algorithms for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-content-creation-and-currency-maximizing-youtube-wealth-for-2024/"><u>[New] Content Creation & Currency  Maximizing YouTube Wealth for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-perfect-ad-videos-on-youtube-without-expense-for-2024/"><u>[New] Crafting Perfect Ad Videos on YouTube Without Expense for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-effortless-and-accurate-how-to-capture-every-hulu-playback-for-2024/"><u>[New] Effortless and Accurate  How To Capture Every Hulu Playback for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-strategies-for-educators-starting-their-own-youtube-series/"><u>[New] In 2024, 10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-strong-foundation-for-advertising-deals-using-famebit-methods/"><u>[New] In 2024, Building a Strong Foundation for Advertising Deals Using FameBit Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cut-down-clutter-discover-these-7-ultimate-android-app-blockers/"><u>[New] In 2024, Cut Down Clutter  Discover These 7 Ultimate Android App Blockers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dismantling-the-economics-of-youtubes-ambitious-shorts-fund/"><u>[New] In 2024, Dismantling the Economics of YouTube's Ambitious Shorts Fund</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-content-strategies-for-youtube-success/"><u>[New] In 2024, Elevate Your Content  Strategies for YouTube Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-11-zero-cost-youtube-moniker-makers/"><u>[New] In 2024, Essential 11 Zero-Cost YouTube Moniker Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-innovative-practices-in-creating-powerful-youtube-summaries/"><u>[New] Innovative Practices in Creating Powerful YouTube Summaries</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-jake-pauls-youtube-success-story/"><u>[New] Jake Paul's YouTube Success Story</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-resolving-dark-scenes-on-youtube-videos/"><u>[New] Resolving Dark Scenes on YouTube Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-steps-for-perfect-audio-transition-in-adobe-audition/"><u>[New] Steps for Perfect Audio Transition in Adobe Audition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-online-presence-sharing-youtube-videos-on-fb-today/"><u>[New] Transform Your Online Presence  Sharing YouTube Videos on FB Today</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[Updated] 2024 Approved  Audio-to-Video Bridge  Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-avoiding-piracy-safe-techniques-for-youtube-to-mp4/"><u>[Updated] 2024 Approved  Avoiding Piracy  Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[Updated] 2024 Approved  Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-amplify-your-imovie-with-youtube-audio-streams-for-2024/"><u>[Updated] Amplify Your iMovie with YouTube Audio Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-choosing-a-champion-dslr-or-mirrorless-camera-in-2024/"><u>[Updated] Choosing a Champion  DSLR or Mirrorless Camera, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-the-mystery-of-youtube-shorts-for-2024/"><u>[Updated] Decoding the Mystery of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-direct-to-youtube-stepwise-process-of-mobile-and-desktop-video-posting-for-2024/"><u>[Updated] Direct to YouTube  Stepwise Process of Mobile & Desktop Video Posting for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-7-cameras-to-improve-your-youtube-vlogging-experience/"><u>[Updated] Ideal 7 Cameras To Improve Your YouTube Vlogging Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficient-strategies-for-saving-youtube-thumbnails-on-any-os/"><u>[Updated] In 2024, Efficient Strategies for Saving Youtube Thumbnails on Any OS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-explore-top-10-iphoneandroid-intro-creation-software/"><u>[Updated] In 2024, Explore Top 10 iPhone/Android Intro Creation Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-video-edits-post-upload-techniques/"><u>[Updated] Mastering Video Edits  Post-Upload Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastery-of-viewership-hierarchy-key-aspects-examined/"><u>[Updated] Mastery of Viewership Hierarchy  Key Aspects Examined</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-proactive-copyright-checking-for-safe-tiktok-sharing/"><u>[Updated] Proactive Copyright Checking for Safe TikTok Sharing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-a-channel-with-confidence-your-essential-kit/"><u>[Updated] Starting a Channel with Confidence – Your Essential Kit</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streaming-wars-understanding-vimeo-and-youtubes-distinctions/"><u>[Updated] Streaming Wars  Understanding Vimeo and YouTube's Distinctions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-first-steps-for-youtube-earning-8-methods/"><u>[Updated] Your First Steps for YouTube Earning - 8 Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-for-filmmakers-revolutionizing-visual-storytelling/"><u>[Updated] Youtube for Filmmakers  Revolutionizing Visual Storytelling</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-capture-every-word-a-guide-to-recording-in-google-meet/"><u>2024 Approved  Capture Every Word  A Guide to Recording in Google Meet</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-pros-guide-to-clearing-backdrops-in-figma-design/"><u>2024 Approved  The Pro's Guide to Clearing Backdrops in Figma Design</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-samsung-galaxy-f14-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Samsung Galaxy F14 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-13-mini-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 13 mini?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-apple-iphone-15-plus-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your Apple iPhone 15 Plus and iPad</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-nokia-c12-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Nokia C12</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-vivo-x-fold-2-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Vivo X Fold 2 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-xiaomi-redmi-note-13-5g-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Xiaomi Redmi Note 13 5G Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-echoes-equalized-advanced-methods-to-normalize-audio-quality-in-film-and-broadcast/"><u>New 2024 Approved Echoes Equalized Advanced Methods to Normalize Audio Quality in Film and Broadcast</u></a></li>
+<li><a href="https://games-able.techidaily.com/pc-gamers-dream-list-top-games-in-google-play-game-beta/"><u>PC Gamers’ Dream List - Top Games in Google Play Game Beta</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/social-media-live-war-fb-live-and-yt-live-vs-twitter-spaces-for-2024/"><u>Social Media Live War  FB LIVE & YT Live Vs. Twitter Spaces for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-modern-content-curators-guide-to-branding-10-tools-for-2024/"><u>The Modern Content Curator's Guide to Branding - 10 Tools for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-infinix-note-30-vip-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Infinix Note 30 VIP Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-time-travel-how-to-flip-videos-for-2024/"><u>YouTube Time Travel  How to Flip Videos for 2024</u></a></li>
+</ul></div>

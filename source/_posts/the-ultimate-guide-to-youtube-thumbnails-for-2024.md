@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Guide to YouTube Thumbnails for 2024"
-date: 2024-06-05T03:54:04.405Z
-updated: 2024-06-06T03:54:04.405Z
+date: 2024-07-30T22:54:47.849Z
+updated: 2024-07-31T22:54:47.849Z
 tags:
   - ai video
   - ai youtube
@@ -35,12 +35,18 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
@@ -53,10 +59,16 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
@@ -65,6 +77,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
@@ -73,6 +88,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
@@ -81,10 +100,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
 #### Conclusion
@@ -111,3 +137,55 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-balancing-acts-the-power-of-alternate-perspectives-in-crafting-engaging-reaction-videos-on-youtube-2-pov-method/"><u>[New] 2024 Approved  Balancing Acts  The Power of Alternate Perspectives in Crafting Engaging Reaction Videos on YouTube (2 POV Method)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-alternatives-to-blockbuster-flicks/"><u>[New] 2024 Approved  Best Alternatives to Blockbuster Flicks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-ig-boomerangs-crafting-compelling-circular-content/"><u>[New] 2024 Approved  IG Boomerangs  Crafting Compelling Circular Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-step-by-step-guide-to-youtube-comms-management-for-2024/"><u>[New] A Step-by-Step Guide to YouTube Comms Management for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-bring-imagination-to-life-self-animated-artistry/"><u>[New] In 2024, Bring Imagination to Life  Self-Animated Artistry</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-captivating-content-the-basics-of-removing-background-from-videos/"><u>[New] In 2024, Captivating Content  The Basics of Removing Background From Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/1717305967220-new-stylish-profiles-easy-downloads/"><u>[New] Stylish Profiles, Easy Downloads!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-swift-method-image-alchemy-into-engaging-youtube-thumbnail-pics/"><u>[New] Swift Method  Image Alchemy Into Engaging YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-youtube-broadcast-handbook/"><u>[New] The Ultimate YouTube Broadcast Handbook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-viewers-experience-the-impact-of-text-on-youtube-media/"><u>[New] Transforming Viewers' Experience  The Impact of Text on YouTube Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-mic-for-digital-content-makers/"><u>[New] Ultimate Mic for Digital Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-where-custom-visuals-for-youtube-live-and-breathe/"><u>[New] Where Custom Visuals for YouTube Live and Breathe</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10plus-must-use-free-youtube-intro-maker-sites-for-2024/"><u>[Updated] 10+ Must-Use Free YouTube Intro Maker Sites for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-your-channels-moniker-youtube-naming-tools-and-tips/"><u>[Updated] 2024 Approved  Craft Your Channel's Moniker  YouTube Naming Tools and Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-directly-embedding-google-meet-in-youtubes-video-library/"><u>[Updated] 2024 Approved  Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-unlocking-pathways-to-discover-new-discord-communities/"><u>[Updated] 2024 Approved  Unlocking  Pathways to Discover New Discord Communities</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-angles-of-perspective-youtubes-path-to-dynamic-video-editing-for-2024/"><u>[Updated] Angles of Perspective  YouTube's Path to Dynamic Video Editing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-audience-size-a-comprehensive-guide-to-youtube-shorts-success-for-2024/"><u>[Updated] Boosting Audience Size  A Comprehensive Guide to YouTube Shorts Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brief-video-explanations-all-inclusive-for-2024/"><u>[Updated] Brief Video Explanations, All-Inclusive for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-complete-insights-into-the-updated-videoshow-app-for-24/"><u>[Updated] Complete Insights Into the Updated VideoShow App for '24</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-tips-for-harnessing-the-power-of-top-9-free-youtube-makers-for-2024/"><u>[Updated] Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-disparities-between-youtube-and-dailymention/"><u>[Updated] Exploring the Disparities Between YouTube and DailyMention</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-pick-a-unique-name-for-youtube-channel-filmora/"><u>[Updated] How To Pick a Unique Name for YouTube Channel - Filmora</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-become-a-trendsetter-in-snapchat-innovate-with-dynamic-boomers/"><u>[Updated] In 2024, Become a Trendsetter in SnapChat  Innovate with Dynamic Boomers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-building-gear-a-quick-start-guide/"><u>[Updated] In 2024, Channel-Building Gear  A Quick Start Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dominate-search-results-essential-tips-for-optimizing-youtube-videos/"><u>[Updated] In 2024, Dominate Search Results  Essential Tips for Optimizing YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-visual-vault-safeguarding-the-artistry-of-twitters-gifs/"><u>[Updated] In 2024, Visual Vault - Safeguarding the Artistry of Twitter's GIFs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-seamless-inshot-video-cuts/"><u>[Updated] Mastering Seamless Inshot Video Cuts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pro-streamers-compendium-essential-livestream-software-and-hardware-for-success/"><u>[Updated] Pro Streamer's Compendium  Essential Livestream Software and Hardware for Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-guide-to-youtube-trailer-making-with-filmora/"><u>[Updated] Quick Guide to YouTube Trailer Making with Filmora</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-sharing-is-caring-but-not-without-copyright-checks-tiktok-for-2024/"><u>[Updated] Sharing Is Caring - But Not Without Copyright Checks (TikTok) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-process-to-craft-memorable-gifs-from-any-youtube-video-on-devices/"><u>[Updated] Step-by-Step Process to Craft Memorable GIFs From Any YouTube Video on Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-your-creativity-anywhere-anyplace-these-6-best-free-online-platforms-for-youtube-short-video-downloading/"><u>[Updated] Unleash Your Creativity Anywhere, Anyplace  These 6 Best Free, Online Platforms for YouTube Short Video Downloading</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-studio-review-profits-and-payments/"><u>[Updated] YouTube Studio Review  Profits and Payments</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-the-past-reverse-video-on-ios-devices/"><u>2024 Approved  Explore the Past  Reverse Video on iOS Devices</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-snorkel-and-capture-best-action-cameras-unveiled/"><u>2024 Approved  Snorkel and Capture  Best Action Cameras Unveiled</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/7-strategies-to-fix-failed-security-codes-from-epic-games-on-windows/"><u>7 Strategies to Fix Failed Security Codes From Epic Games on Windows</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/beat-to-freedom-online-fb-music-downloads-for-2024/"><u>Beat to Freedom  Online FB Music Downloads for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-oneplus-ace-2-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For OnePlus Ace 2</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cutting-through-steps-posting-tiktok-videos-on-twitter/"><u>Cutting Through Steps  Posting TikTok Videos on Twitter</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-vivo-y36i-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Vivo Y36i Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-effective-ways-to-watch-multiple-youtube-videos-at-one-time/"><u>In 2024, Effective Ways to Watch Multiple YouTube Videos at One Time</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On OnePlus Nord N30 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/mirror-your-media-how-to-flip-a-clip-in-final-cut-pro-quickly/"><u>Mirror Your Media How to Flip a Clip in Final Cut Pro Quickly</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-crash-no-more-solutions-for-final-cut-pro-x-stability-issues/"><u>New 2024 Approved Crash No More Solutions for Final Cut Pro X Stability Issues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tapping-into-youtubes-affiliate-income-streams-for-2024/"><u>Tapping Into YouTube's Affiliate Income Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/turning-time-on-its-ear-unique-approaches-to-reversed-youtube-content-for-2024/"><u>Turning Time on Its Ear  Unique Approaches to Reversed YouTube Content for 2024</u></a></li>
+</ul></div>

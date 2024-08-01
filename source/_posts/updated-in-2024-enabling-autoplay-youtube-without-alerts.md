@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Enabling Autoplay YouTube Without Alerts"
-date: 2024-06-05T04:57:24.970Z
-updated: 2024-06-06T04:57:24.970Z
+date: 2024-07-31T00:41:33.874Z
+updated: 2024-08-01T00:41:33.874Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
 # How to Play YouTube in Background on iPhone and Android
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -54,10 +57,16 @@ Launch **YouTube Music**, search for your favorite music using the **Search** ic
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 3: Play YouTube in Background
 
 Use your phone-specific button or option to minimize YouTube Music. You can then either continue using your smartphone normally, or turn off the screen to **play YouTube in background**.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on iPhone
 
 If you don’t want to pay for YouTube Premium, there are a few other workarounds that you can try to play YouTube in background on your iPhone. One of the easiest methods among them is explained below:
@@ -68,18 +77,31 @@ Launch Safari on your iPhone, and go to [**www.youtube.com**](https://www.youtub
 
 Use the regular method to search for the video you want to play in the background, and tap the **Play** button to start streaming.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### Step 2: Open a New Tab
 
 Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap **+** from the bottom-center. Notice how the YouTube video continues to play even when you are on the new tab.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### Step 3: Play YouTube in Background
 
 Press the **Home** button or swipe up on iPhone X or above to get to the Home screen. You can notice how YouTube still continues to stream. From this point onward, you can either start using your iPhone normally, or turn off the screen and let your device **play YouTube in background**.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on Android
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 1: Switch to Desktop Mode
 
 Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.com**](https://www.youtube.com). Click the **More options** icon (with three vertically aligned dots) from the top-right corner of the browser, and check the **Desktop site** box from the menu that appears.
@@ -100,6 +122,9 @@ Once the video starts streaming, get back to the Home screen, pull down the **No
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### [VLC for Android](https://play.google.com/store/apps/details?id=org.videolan.vlc&hl=en%5Fus)
 
 Being one of the most versatile media playing software, VLC needs no introduction, and icing on the cake was added when the program was made available on Google Play Store. After you have installed VLC on your Android phone, you can launch the YouTube app, search for and tap the video you want to play in the background, tap the streaming video, tap the ‘More options’ icon from the top-right corner, and tap ‘Play in VLC’ from the available options.
@@ -108,10 +133,16 @@ Being one of the most versatile media playing software, VLC needs no introductio
 
 This app does exactly what its name suggests. The program has a ‘Minimize player’ mode that allows you to stream YouTube videos in a small window that reduces its size and resides at the bottom of the screen, thus letting you use your Android phone for other important tasks simultaneously.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ### [Background player for YouTube Vanced minimizer](https://play.google.com/store/apps/details?id=com.free.music.app&hl=en%5Fus)
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Best Video Editing Software for YouTube
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -120,6 +151,9 @@ Yet another app available on Google Play Store that lets you search for your fav
 
 Watching YouTube videos has become a part of people’s day-to-day life now. While many of them use the platform to learn new skills through the tutorials that are available for free, others love the idea of having unlimited and unrestricted access to the gigantic database of music videos that they can dig in to find and play their favorite tracks. For the latter scenario, the processes explained above are likely to come in handy in order to **play YouTube in background** so the users can take full advantage of their iPhone or Android smartphone in case they only want to listen to the audio, and are not interested in watching the video while streaming.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -136,3 +170,46 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-15-must-see-investment-channels-online/"><u>[New] 2024 Approved  15 Must-See Investment Channels Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-free-youtube-to-mp3-converters-you-should-know-onlinewinmac/"><u>[New] 2024 Approved  Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac]</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-bandicam-revolutionizing-screen-capture-for-modern-media/"><u>[New] Bandicam  Revolutionizing Screen Capture for Modern Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-step-by-step-on-youtube-annotations/"><u>[New] In 2024, A Step-by-Step on YouTube Annotations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissecting-your-profit-share-in-youtube-short-creation/"><u>[New] In 2024, Dissecting Your Profit Share in YouTube Short Creation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-masters-building-marvels-virtual-horizons/"><u>[New] Masters Building Marvel's Virtual Horizons</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimizing-profits-on-youtube-studio-for-all-device-users/"><u>[New] Optimizing Profits on YouTube  Studio for All-Device Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-steady-selfies-and-photos/"><u>[New] The Art of Steady Selfies & Photos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-engagement-secrets-top-10-video-reacting-techniques/"><u>[New] Unveiling Engagement Secrets  Top 10 Video Reacting Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-20-best-free-platforms-for-youtube-channel-beginners/"><u>[Updated] 2024 Approved  20 Best Free Platforms for YouTube Channel Beginners</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-amplify-reach-todays-most-effective-instagram-tag-strategies/"><u>[Updated] 2024 Approved  Amplify Reach  Today's Most Effective Instagram Tag Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-behind-the-numbers-deciphering-how-youtube-measures-popularity/"><u>[Updated] 2024 Approved  Behind the Numbers  Deciphering How YouTube Measures Popularity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-create-impact-with-intro-excellence-best-free-services-reviewed/"><u>[Updated] 2024 Approved  Create Impact with Intro Excellence  Best Free Services Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortless-earnings-channel-size-no-longer-a-challenge/"><u>[Updated] 2024 Approved  Effortless Earnings  Channel Size No Longer a Challenge</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-adding-visual-time-indicators-to-your-youtube-links-for-2024/"><u>[Updated] Adding Visual Time Indicators to Your YouTube Links for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audience-expansion-strategies-that-honor-youtube-standards-for-2024/"><u>[Updated] Audience Expansion Strategies That Honor YouTube Standards for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-detailed-look-into-youtubes-featured-community-dialogue-for-2024/"><u>[Updated] Detailed Look Into YouTube's Featured Community Dialogue for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-direct-your-media-essential-flv-to-youtube-applications-ranked-for-2024/"><u>[Updated] Direct Your Media  Essential Flv-to-YouTube Applications Ranked for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-high-end-audio-for-youtubes-best-gamers/"><u>[Updated] High-End Audio for YouTube's Best Gamers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-trailblazers-guide-youtube-studio-location-unveiled/"><u>[Updated] In 2024, A Trailblazer’s Guide  YouTube Studio Location Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-engaging-youtube-openings-and-closers-for-free/"><u>[Updated] In 2024, Creating Engaging YouTube Openings & Closers for Free</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-lively-letters-on-screen-bounce-with-ease-and-style/"><u>[Updated] In 2024, Lively Letters on Screen  Bounce with Ease and Style</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-reigniting-the-social-sphere-how-to-amplify-instagram-activity/"><u>[Updated] In 2024, Reigniting the Social Sphere  How to Amplify Instagram Activity</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-scrutinizing-the-core-functions-of-recordcast/"><u>[Updated] In 2024, Scrutinizing the Core Functions of RecordCast</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-sifting-through-the-best-video-hosting-options-with-vimeo-memberships/"><u>[Updated] In 2024, Sifting Through the Best Video Hosting Options with Vimeo Memberships</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-professional-audio-tactics-achieving-excellence-without-a-microphone/"><u>[Updated] Professional Audio Tactics  Achieving Excellence without a Microphone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-faster-youtube-submission-via-smart-rendering-and-uploading/"><u>[Updated] Unlock Faster YouTube Submission via Smart Rendering & Uploading</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>2024 Approved  Youtube Earnings Unveiled  Average AdSense Payments Per Thousand Views</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breaking-down-the-animation-process-a-movie-maker-approach/"><u>Breaking Down the Animation Process  A Movie Maker Approach</u></a></li>
+<li><a href="https://extra-information.techidaily.com/canva-cinematography-perfecting-music-cropping-and-editing-for-2024/"><u>Canva Cinematography  Perfecting Music Cropping and Editing for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/capturing-discords-magic-3-steps-for-ensuring-your-live-stream-stays-alive/"><u>Capturing Discord's Magic  3 Steps for Ensuring Your Live Stream Stays Alive</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/get-noticed-on-youtube-the-ultimate-list-of-freefire-tag-tips-for-2024/"><u>Get Noticed on YouTube  The Ultimate List of FreeFire Tag Tips for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-vivo-g2-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-steps-to-record-voice-memo-on-iphone/"><u>In 2024, Steps to Record Voice Memo on iPhone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/key-methods-from-pin-based-tunes-to-audio-downloads/"><u>Key Methods  From Pin-Based Tunes to Audio Downloads</u></a></li>
+<li><a href="https://video-capture.techidaily.com/navigating-frames-per-second-in-video-recording-the-3060-dilemma/"><u>Navigating Frames Per Second in Video Recording - The 30/60 Dilemma</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-vivo-s17-pro-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Vivo S17 Pro Phone? Unlock It Now</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/smooth-streaming-elite-stabilizers-reviewed-for-2024/"><u>Smooth Streaming  Elite Stabilizers Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-best-3d-software-perfect-for-youtube-openers-for-2024/"><u>The Best 3D Software  Perfect for YouTube Openers for 2024</u></a></li>
+</ul></div>

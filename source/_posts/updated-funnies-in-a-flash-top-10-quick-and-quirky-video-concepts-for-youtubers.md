@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Funnies in a Flash  Top 10 Quick & Quirky Video Concepts for YouTubers\""
-date: 2024-06-05T03:50:52.291Z
-updated: 2024-06-06T03:50:52.291Z
+date: 2024-07-30T22:49:08.142Z
+updated: 2024-07-31T22:49:08.142Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,9 @@ Then the right platform with a plethora of pictures is covered hereunder the fol
 
 Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you have such beautiful dreams that you would like to share with your loved ones. Then YouTube Shorts ideas are the right platform full of views, likes, and lovers from around the world. Just give a thrust to it.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
@@ -48,6 +51,9 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
@@ -64,6 +70,9 @@ Using different online software, you can enhance the pictures or modify the back
 
 Life is indeed full of surprises, events, and glory. Then, why not tailor some of its moments under best YouTube Shorts ideas. These experiences vary from your home, neighbor, society, college, office, or anywhere.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
 
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
@@ -74,6 +83,9 @@ Living every moment creates a wonder. Let others also make a part of this journe
 
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
@@ -90,6 +102,10 @@ Funny competition can vary from a weird hairstyle, odd season festival celebrati
 
 The dripping sound of water, raindrops, flowing trees, and blowing air make some distinct sound. So, look around to find your inspiration to make some quirky sound, whether the musical instrument or can create your kind of instrument such as tumbler, glass, bowl, etc. And see the natural flow of music that resides all around us.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-8.jpg)
 
 Just give it a try and dance with the music you create with all the worldwide listeners of YouTube Shorts Channel with this idea.
@@ -98,6 +114,10 @@ Just give it a try and dance with the music you create with all the worldwide li
 
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
@@ -120,6 +140,9 @@ Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Ch
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
 Creating ideas for YouTube Shorts videos alone is not sufficient to grab more views. Some specific golden rules or tips will leap while catching more views to the YouTube Short Videos while applying the above ideas. Let’s understand them.
@@ -180,3 +203,39 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-20-must-subscribe-music-channels-on-youtube/"><u>[New] 2024 Approved  Discover 20 Must-Subscribe Music Channels on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dominating-viewers-spaces-channel-empire-rules/"><u>[New] 2024 Approved  Dominating Viewers' Spaces  Channel Empire Rules</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earnings-insights-for-video-content-surpassing-1-million-views/"><u>[New] 2024 Approved  Earnings Insights for Video Content Surpassing 1 Million Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-earnings-channel-size-no-longer-a-challenge/"><u>[New] 2024 Approved  Effortless Earnings  Channel Size No Longer a Challenge</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expert-strategies-for-choosing-ideal-youtube-banner-dimensions-for-2024/"><u>[New] Expert Strategies for Choosing Ideal YouTube Banner Dimensions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-practices-in-yt-thumbnail-sizing/"><u>[New] In 2024, Best Practices in YT Thumbnail Sizing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-youtube-videos-with-professional-techniques-using-wmm/"><u>[New] In 2024, Enhancing YouTube Videos with Professional Techniques Using WMM</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-infographics-leveraging-social-media-videos/"><u>[New] Infographics  Leveraging Social Media Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-low-cost-subscriber-strategy-on-youtube-platform/"><u>[New] Low-Cost Subscriber Strategy on YouTube Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-complete-checklist-for-youtube-metrics-mastery-views-and-dollars/"><u>[New] The Complete Checklist for YouTube Metrics Mastery  Views & Dollars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unfolding-wonders-your-practical-guide-to-travel-vlogging/"><u>[New] Unfolding Wonders  Your Practical Guide to Travel Vlogging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-enhancement-for-online-video-creators/"><u>[Updated] 2024 Approved  Audio Enhancement for Online Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-10-youtube-channels-for-industry-insights-for-2024/"><u>[Updated] Best 10 YouTube Channels for Industry Insights for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-success-across-social-networks-youtube-plus-more-for-2024/"><u>[Updated] Channel Success Across Social Networks  YouTube + More for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flawless-online-invitation-crafting-youtube-subscription-buttons-for-2024/"><u>[Updated] Flawless Online Invitation  Crafting YouTube Subscription Buttons for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cut-to-impact-in-depth-youtube-video-editing-mastery/"><u>[Updated] In 2024, Cut to Impact  In-Depth Youtube Video Editing Mastery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ensemble-dynamics-crafting-collaborative-content-for-musicians/"><u>[Updated] In 2024, Ensemble Dynamics  Crafting Collaborative Content for Musicians</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-interactive-elements-crafting-effective-youtube-annotations/"><u>[Updated] Interactive Elements  Crafting Effective YouTube Annotations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-setting-up-your-vlog-fb-preferred-dimensions/"><u>[Updated] Setting Up Your Vlog  FB Preferred Dimensions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleash-creativity-10-must-know-tips-for-cover-art/"><u>[Updated] Unleash Creativity  10 Must-Know Tips for Cover Art</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-6-video-translators-to-translate-video/"><u>2024 Approved  Best 6 Video Translators to Translate Video</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-chuckle-on-the-go-best-comedy-tone-sites/"><u>2024 Approved  Chuckle on the Go  Best Comedy Tone Sites</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-see-who-unfollowed-you-on-instagram/"><u>2024 Approved  How to See Who Unfollowed You On Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-streamlined-approaches-to-documenting-whatsapp-discussions/"><u>2024 Approved  Streamlined Approaches to Documenting WhatsApp Discussions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-wealthiest-web-workshops-hosts/"><u>2024 Approved  Wealthiest Web Workshops Hosts</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-honor-x50iplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/all-about-making-gifs-into-stickers-the-ultimate-guide-for-whatsapp-discord-and-telegram-users/"><u>All About Making GIFs Into Stickers  The Ultimate Guide for WhatsApp, Discord & Telegram Users</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/beat-the-hate-smoothly-add-tracks-into-your-video-on-windows-11-for-2024/"><u>Beat the Hate  Smoothly Add Tracks Into Your Video on Windows 11 for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-honor-90-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Honor 90</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-moto-g24-won-t-play-hevc-h-265-media-how-to-fix-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Motorola Moto G24 won’t play HEVC H.265 media, how to fix? </u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reel-in-viewers-mastery-of-live-360-video-broadcasts-on-youtube-for-2024/"><u>Reel In Viewers  Mastery of Live 360 Video Broadcasts on Youtube for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-realme-v30-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Realme V30 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-journey-through-creative-commons-a-users-guide-for-2024/"><u>The Journey Through Creative Commons  A User's Guide for 2024</u></a></li>
+</ul></div>

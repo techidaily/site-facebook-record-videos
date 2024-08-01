@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Beauty Brilliance  Inside the World of Youtube Cosmetics\""
-date: 2024-06-05T06:35:08.311Z
-updated: 2024-06-06T06:35:08.311Z
+date: 2024-07-31T03:26:19.209Z
+updated: 2024-08-01T03:26:19.209Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/0741b6d6b142e6d035036f6df7e304509ca00be9b
 
 # Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,10 +44,16 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## **Finding Your Niche in Beauty or Lifestyle**
@@ -57,6 +66,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -139,6 +151,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -161,6 +176,9 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -215,6 +233,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -261,6 +282,10 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -275,6 +300,9 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -291,3 +319,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-10-best-text-effects-for-your-video/"><u>[New] 10 Best Text Effects for Your Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-8-best-mirrorless-cameras-vloggers-should-know/"><u>[New] 2024 Approved  8 Best Mirrorless Cameras Vloggers Should Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-animators-playground-building-your-own-visual-treats/"><u>[New] 2024 Approved  Animator’s Playground  Building Your Own Visual Treats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-backwards-viewing-a-new-lens-for-analyzing-youtube-content/"><u>[New] 2024 Approved  Backwards Viewing  A New Lens for Analyzing YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beyond-basic-the-advanced-techniques-of-youtube-counts/"><u>[New] 2024 Approved  Beyond Basic  The Advanced Techniques of YouTube Counts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-audio-blending-into-youtube-clips-using-editors/"><u>[New] 2024 Approved  Effortless Audio Blending Into YouTube Clips Using Editors</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-mastering-aquatic-cinematography-with-these-7-essential-strategies/"><u>[New] 2024 Approved  Mastering Aquatic Cinematography with These 7 Essential Strategies</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-subtitle-converters-win-and-mac-edition-leading-8-sbt-to-srtr-tools/"><u>[New] Best Subtitle Converters  Win & Mac Edition, Leading 8 SBT to SRTR Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-clip-narration-devisee-for-2024/"><u>[New] Clip Narration Devisee for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-gameplay-streaming-mastery-for-youtubers-for-2024/"><u>[New] Elevating Gameplay  Streaming Mastery for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-decoding-unlisted-videos-a-deep-dive-into-youtube-secrecy/"><u>[New] In 2024, Decoding Unlisted Videos  A Deep Dive Into YouTube Secrecy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-decoding-veiled-content-on-youtube/"><u>[New] In 2024, Decoding Veiled Content on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-exploring-nextgen-videostreaming-platforms/"><u>[New] In 2024, Exploring NextGen Videostreaming Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tactical-video-takedown-a-guide-to-judging-ownership-and-opposition/"><u>[New] Tactical Video Takedown  A Guide to Judging Ownership and Opposition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-notch-screen-recorder-pcmacos-edition/"><u>[New] Top-Notch Screen Recorder  PC/macOS Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-the-potential-of-youtube-videos-the-ultimate-chapter-addition-technique/"><u>[New] Unlock the Potential of YouTube Videos  The Ultimate Chapter Addition Technique</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-achieving-youtube-mastery-with-effective-use-of-creator-studio-tools/"><u>[Updated] 2024 Approved  Achieving YouTube Mastery with Effective Use of Creator Studio Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-aspiring-youtubers-guide-to-affiliate-allies/"><u>[Updated] 2024 Approved  Aspiring YouTubers' Guide to Affiliate Allies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[Updated] 2024 Approved  Boosting Channel Profitability  FameBit-Powered Sponsorship Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-building-a-bountiful-beauty-channel-fortune-for-2024/"><u>[Updated] Building a Bountiful Beauty Channel Fortune for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-building-a-channel-team-up-videography-guide-for-2024/"><u>[Updated] Building a Channel  Team-Up Videography Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crystal-clear-capture-amping-up-your-home-studio-recordings-for-2024/"><u>[Updated] Crystal Clear Capture  Amping Up Your Home Studio Recordings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-tips-for-creating-compelling-free-ads-on-youtube-for-2024/"><u>[Updated] Essential Tips for Creating Compelling Free Ads on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-barely-seen-to-highly-engaged-the-journey-of-youtube-short-success/"><u>[Updated] From Barely Seen to Highly Engaged  The Journey of YouTube Short Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-become-a-youtube-partner-you-need-10000-views-now/"><u>[Updated] How to Become a YouTube Partner - You Need 10,000 Views Now</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-make-a-youtube-reaction-video-3-ways/"><u>[Updated] How to Make a YouTube Reaction Video? [3 Ways]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-laughing-along-to-mimicked-melodies/"><u>[Updated] Laughing Along to Mimicked Melodies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-share-smart-optimizing-youtube-videos-on-fb-platform/"><u>[Updated] Share Smart  Optimizing YouTube Videos on FB Platform</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-windows-11-gamers-guide-to-excellent-game-capturing/"><u>[Updated] Windows 11 Gamers' Guide to Excellent Game Capturing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-iphone-video-merging-techniques/"><u>2024 Approved  Mastering iPhone Video Merging Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-windows-11-video-mastery-utilizing-the-movie-maker-interface/"><u>2024 Approved  Windows 11 Video Mastery  Utilizing the Movie Maker Interface</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>2024 Approved  Your Guide to Making Millions on YouTube  From Novice to Big Earnings</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-nokia-g22-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Nokia G22 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/acclaimed-websites-for-google-pixel-tonal-sounds-for-2024/"><u>Acclaimed Websites for Google Pixel Tonal Sounds for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/efficiently-allocating-more-memory-to-minecraft/"><u>Efficiently Allocating More Memory to Minecraft</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/filmora-x-just-got-faster-arm-support-now-available/"><u>Filmora X Just Got Faster ARM Support Now Available</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-nokia-c12-pro-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Nokia C12 Pro Quickly | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-xcover-6-pro-tactical-edition-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-7-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-harnessing-success-with-freefire-hashtag-tips/"><u>In 2024, Harnessing Success with FreeFire Hashtag Tips</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-longer-instagram-videos/"><u>In 2024, The Ultimate Guide to Longer Instagram Videos</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-is-ipogo-not-working-on-vivo-v27e-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Vivo V27e? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubers-ultimate-guide-10-keys-to-unique-short-form-videos/"><u>In 2024, Youtubers' Ultimate Guide  10 Keys to Unique Short-Form Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/precision-and-perfection-a-guide-to-youtube-studio-video-edits-for-2024/"><u>Precision and Perfection  A Guide to YouTube Studio Video Edits for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategies-for-editing-and-elevating-youtube-profiles-for-2024/"><u>Strategies for Editing and Elevating YouTube Profiles for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-artful-swap-from-cold-scenes-to-cozy-vlogs-for-2024/"><u>The Artful Swap From Cold Scenes to Cozy Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-definitive-guide-to-ios-and-android-maker-tools-for-2024/"><u>The Definitive Guide to iOS & Android Maker Tools for 2024</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-vivo-y78plus-t1-edition-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Vivo Y78+ (T1) Edition Reset Code | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-7-dslr-cameras-enhancing-real-time-online-interactions-for-2024/"><u>Top 7 DSLR Cameras Enhancing Real-Time Online Interactions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/visual-branding-in-small-business-marketing-for-2024/"><u>Visual Branding in Small Business Marketing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/voice-modification-gear-top-picks-for-creators-for-2024/"><u>Voice Modification Gear  Top Picks for Creators for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Thumbnails Guide  What Size Yields Success?\""
-date: 2024-06-05T06:51:53.962Z
-updated: 2024-06-06T06:51:53.962Z
+date: 2024-07-31T03:54:49.137Z
+updated: 2024-08-01T03:54:49.137Z
 tags:
   - ai video
   - ai youtube
@@ -11,13 +11,16 @@ categories:
 description: "\"This Article Describes [New] The Ultimate Thumbnails Guide: What Size Yields Success?\""
 excerpt: "\"This Article Describes [New] The Ultimate Thumbnails Guide: What Size Yields Success?\""
 keywords: "Thumbnails Basics,Thumbnail Effectiveness,Image Size for SEO,Optimal Thumbnail Sizes,Max Thumbnail Size,Best Img Sizes Ranking,Successful Thumbsize Guide"
-thumbnail: https://www.lifewire.com/thmb/QdzyneXrDNJP05LF9GWKQLcJKKQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-965113756-764697dfeb544233b50fb9965b244595.jpg
+thumbnail: https://thmb.techidaily.com/cb31b7e1126829f3edd114be49ab32d4b537b8ce3f51566e9db65fcc77abbc00.jpg
 ---
 
 ## The Ultimate Thumbnails Guide: What Size Yields Success?
 
 # Best YouTube Thumbnail Size You Should Know\[The Ultimate Guide\]
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,6 +35,9 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 * [**Part 2:** **Upload and Change a Custom YouTube Thumbnail to Your Video**](#part2)
 * [**Part 3:** **Q&A-- About Creating YouTube Thumbnails**](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
 
 Every content creator needs to select the right youtube thumbnail size for any given video.
@@ -62,6 +68,9 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * Upload your desired video to YouTube in the Upload section.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
@@ -71,6 +80,9 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
@@ -89,6 +101,18 @@ To change the thumbnail on an already uploaded video you need to follow these st
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -98,6 +122,9 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -107,6 +134,10 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 2\. How can I create an attractive youtube thumbnail?
 
 Utilizing online platforms and software tools to make your thumbnail image informative and attractive can potentially increase your views and traffic. You can use any advanced tools like Wondershare Filmora, Wondershare PixStudio, or Canva to create an aspiring and luring image that will get more views on YouTube just because of the thumbnail image. Here we will show you how to do it with Wondershare Filmora, Wondershare PixStudio and Canva:
@@ -151,3 +182,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elite-editing-selection-quality-software-for-youtubers/"><u>[New] 2024 Approved  Elite Editing Selection  Quality Software for YouTubers</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-the-hilarious-side-of-iphones/"><u>[New] 2024 Approved  The Hilarious Side of iPhones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cross-platform-comparison-iphone-vs-android-youtube-viewing-for-2024/"><u>[New] Cross-Platform Comparison  IPhone vs Android YouTube Viewing for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-easy-way-to-edit-youtube-videos-in-imovie/"><u>[New] Easy Way to Edit YouTube Videos in iMovie</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-evaluating-the-financial-returns-for-makers-on-youtube-shorts-for-2024/"><u>[New] Evaluating the Financial Returns for Maker's on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-blueprint-for-buzzing-outro/"><u>[New] In 2024, Blueprint for Buzzing Outro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-boost-traffic-to-your-videos-top-seo-practices-for-youtube-success/"><u>[New] In 2024, Boost Traffic to Your Videos  Top SEO Practices for YouTube Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-downloading-your-youtube-watch-lists-step-by-step/"><u>[New] In 2024, Downloading Your YouTube Watch Lists  Step by Step</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-photoslideshow-pro-on-insta/"><u>[New] In 2024, PhotoSlideshow Pro on Insta</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-redefining-user-engagement-with-top-10-video-editors/"><u>[New] Redefining User Engagement with Top 10 Video Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tips-for-a-swift-checkup-of-your-youtube-sign-in/"><u>[New] Tips for a Swift Checkup of Your YouTube Sign-In</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audiovisual-powerhouses-select-best-laptops-for-editing/"><u>[Updated] 2024 Approved  Audiovisual Powerhouses  Select Best Laptops for Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-chart-your-course-to-youtube-success-with-these-techniques/"><u>[Updated] 2024 Approved  Chart Your Course to YouTube Success with These Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-the-hidden-gems-in-asmr-creation/"><u>[Updated] 2024 Approved  Discovering the Hidden Gems in ASMR Creation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-analytics-unlocked-your-step-by-step-youtube-guide-for-2024/"><u>[Updated] Analytics Unlocked  Your Step-by-Step YouTube Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-digital-deck-of-cards-youtubes-milestone-challenges-for-2024/"><u>[Updated] Digital Deck of Cards  YouTube's Milestone Challenges for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-amassing-audiences-and-assets-launching-a-livestream-business/"><u>[Updated] In 2024, Amassing Audiences and Assets  Launching a Livestream Business</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beauty-brilliance-masterclasses-and-product-explorations/"><u>[Updated] In 2024, Beauty Brilliance  Masterclasses and Product Explorations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-uploads-in-adobe-premiere/"><u>[Updated] Mastering YouTube Uploads in Adobe Premiere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-nurturing-partnerships-with-top-brands-the-famebit-blueprint/"><u>[Updated] Nurturing Partnerships with Top Brands  The FameBit Blueprint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-obs-for-a-clearer-better-live-stream-to-youtube/"><u>[Updated] OBS for a Clearer, Better Live Stream to YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sound-surprises-androidioss-disruptive-selection/"><u>[Updated] Sound Surprises  Android/iOS's Disruptive Selection</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-expand-your-gameplay-leading-xbox-drives-reviewed/"><u>2024 Approved  Expand Your Gameplay  Leading Xbox Drives Reviewed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-samsung-bd-j5900-review-2023-update/"><u>2024 Approved  Samsung BD-J5900 Review - 2023 Update</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-which-is-better-for-streamers-obs-studio-or-fraps/"><u>2024 Approved  Which Is Better for Streamers, OBS Studio or Fraps?</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-realme-c51-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Realme C51 Without Password | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-essential-mac-6-video-grabber-apps/"><u>In 2024, Essential Mac 6 Video Grabber Apps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Meizu 21 Pro? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-revolutionizing-video-recording-insights-on-camstudios-latest-release/"><u>In 2024, Revolutionizing Video Recording - Insights on CamStudio's Latest Release</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/seamless-stream-to-song-transition-with-top-video-mp3-tools-for-2024/"><u>Seamless Stream-to-Song Transition with Top Video-MP3 Tools for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-free-vob-video-editor-roundup-top-5-choices/"><u>Updated In 2024, Free VOB Video Editor Roundup Top 5 Choices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/why-av1-improving-streams-and-videos-on-youtube-for-2024/"><u>Why AV1? – Improving Streams and Videos on YouTube for 2024</u></a></li>
+</ul></div>

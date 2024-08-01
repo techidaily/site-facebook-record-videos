@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Art of Lights for YouTube Vlogging"
-date: 2024-06-05T03:35:27.490Z
-updated: 2024-06-06T03:35:27.490Z
+date: 2024-07-30T22:23:06.365Z
+updated: 2024-07-31T22:23:06.365Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 
 # Lighting Tips for Vlogging: How to Light
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -28,6 +31,9 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
@@ -44,8 +50,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ### Watch Video! Top Lighting Tips for Vlogging
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -70,6 +82,15 @@ This is by far the best option if you want to be in complete control of the ligh
 
 Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -82,6 +103,9 @@ If you are using all of the lighting options available to you and your video sti
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -98,3 +122,51 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-mp4-utilities-choosing-the-right-one-for-mac/"><u>[New] 2024 Approved  Cutting Edge MP4 Utilities  Choosing the Right One for Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-new-heights-top-10-adventure-channels/"><u>[New] 2024 Approved  Discover New Heights  Top 10 Adventure Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-electrical-upgrades/"><u>[New] 2024 Approved  Electrical Upgrades</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exclusive-access-top-8-platforms-for-free-green-screen-scenery-files/"><u>[New] 2024 Approved  Exclusive Access  Top 8 Platforms for Free Green Screen Scenery Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-cinematic-magic-learn-green-screen-wonders-with-youtube-for-2024/"><u>[New] Craft Cinematic Magic  Learn Green Screen Wonders with YouTube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-discover-the-finest-displays-for-photo-editing-2024-edition/"><u>[New] Discover the Finest Displays for Photo Editing, 2024 Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-analyze-youtube-data-efficiently-with-social-blade-tools/"><u>[New] In 2024, Analyze YouTube Data Efficiently with Social Blade Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-brief-but-impactful-which-social-platform-leads-for-short-video-content/"><u>[New] In 2024, Brief but Impactful  Which Social Platform Leads for Short Video Content?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-link-driven-success-a-backlink-blueprint-for-channels/"><u>[New] In 2024, Crafting Link-Driven Success  A Backlink Blueprint for Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-embracing-resilience-against-online-detractors/"><u>[New] In 2024, Embracing Resilience Against Online Detractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-leading-asmr-content-on-the-web/"><u>[New] Leading ASMR Content on the Web</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pinnacle-chroma-modifier/"><u>[New] Pinnacle Chroma Modifier</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-transformative-approaches-to-engaging-with-online-video-reviews-for-2024/"><u>[New] Transformative Approaches to Engaging with Online Video Reviews for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-eradicating-youtube-content-in-a-device-friendly-way/"><u>[Updated] 2024 Approved  Eradicating YouTube Content in a Device-Friendly Way</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audiovisual-innovators-best-portable-devices-for-editors-for-2024/"><u>[Updated] Audiovisual Innovators  Best Portable Devices for Editors for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-beginners-ultimate-list-of-youtube-production-tools-for-2024/"><u>[Updated] Beginner's Ultimate List of YouTube Production Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comic-capers-top-10-hilarious-youtube-short-film-ideas-for-2024/"><u>[Updated] Comic Capers  Top 10 Hilarious YouTube Short Film Ideas for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-finding-peace-in-patience-slowing-down-your-online-video-experience-on-youtube-60-chars-a-bit-long-but-full-of-helpful-info/"><u>[Updated] Finding Peace in Patience  Slowing Down Your Online Video Experience on YouTube (60 Chars, a Bit Long but Full of Helpful Info)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[Updated] From Average to Exceptional  Discover the Finest Free Intra Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-brand-visualization-inserting-watermarks-and-logos-into-youtube-media/"><u>[Updated] In 2024, Brand Visualization  Inserting Watermarks and Logos Into YouTube Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-worldly-stories-startup-guide-for-future-travel-vloggers/"><u>[Updated] In 2024, Crafting Worldly Stories  Startup Guide for Future Travel Vloggers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-perfecting-the-art-of-screen-recording-with-step-by-step-instructions-from-adobe-captivate/"><u>[Updated] In 2024, Perfecting the Art of Screen Recording with Step-by-Step Instructions From Adobe Captivate</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-picks-easy-youtube-template-downloads/"><u>[Updated] Prime Picks  Easy YouTube Template Downloads</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-refinement-of-screen-focus-how-to-zoom-on-microsoft-teams/"><u>[Updated] Refinement of Screen Focus  How to Zoom on Microsoft Teams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tailored-trends-the-pathway-to-a-specialized-youtube-niche/"><u>[Updated] Tailored Trends  The Pathway to a Specialized Youtube Niche</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-video-symbolism-6-websites-where-creativity-thrives/"><u>[Updated] The Art of Video Symbolism  6 Websites Where Creativity Thrives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-thumbnail-insight-top-picks-for-maximizing-video-visibility/"><u>[Updated] Thumbnail Insight  Top Picks for Maximizing Video Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-financial-success-through-youtubes-viewer-count/"><u>[Updated] Unlocking Financial Success Through Youtube's Viewer Count</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtubes-potential-the-25-step-guide/"><u>[Updated] Unlocking YouTube's Potential  The 25-Step Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-advanced-techniques-for-efficient-use-of-luts-in-cs6cc/"><u>2024 Approved  Advanced Techniques for Efficient Use of LUTs in CS6/CC</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-improving-professional-collaboration-with-strategic-office-planning/"><u>2024 Approved  Improving Professional Collaboration with Strategic Office Planning</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-oneplus-11r-unlock-without-password-by-drfone-android/"><u>5 Solutions For OnePlus 11R Unlock Without Password</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-iphone-14-pro-max-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on iPhone 14 Pro Max and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/birdie-ballet-bounce-for-2024/"><u>Birdie Ballet Bounce for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-realme-narzo-60x-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Realme Narzo 60x 5G</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-to-other-iphone-15-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 to other iPhone 15 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-innovative-approaches-to-saving-your-instagram-highlights/"><u>In 2024, Innovative Approaches to Saving Your Instagram Highlights</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagrabs-top-15-videophoto-downloading-tools/"><u>In 2024, InstaGrabs  Top 15 Video/Photo Downloading Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfectly-positioned-cards-youtube-embedding-techniques-for-2024/"><u>Perfectly Positioned Cards  YouTube Embedding Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-creating-popular-youtube-openings-for-2024/"><u>Step-by-Step Guide to Creating Popular YouTube Openings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-complete-reference-for-content-creators-youtube-copyright-for-2024/"><u>The Complete Reference for Content Creators  YouTube Copyright for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-power-of-collaborations-youtube-shorts-edition-for-2024/"><u>The Power of Collaborations  YouTube Shorts Edition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-finding-unique-video-graphics-online-for-2024/"><u>The Ultimate Guide to Finding Unique Video Graphics Online for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/unveiling-the-secret-how-to-disable-youtube-snippet-playback/"><u>Unveiling the Secret  How to Disable YouTube Snippet Playback</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-x-flip-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo X Flip Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+</ul></div>

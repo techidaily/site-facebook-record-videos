@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Unconfident to Impactful  Embracing YouTube Blogging\""
-date: 2024-06-05T04:00:19.944Z
-updated: 2024-06-06T04:00:19.944Z
+date: 2024-07-30T23:05:15.551Z
+updated: 2024-07-31T23:05:15.551Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -78,6 +82,9 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -88,6 +95,10 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -98,6 +109,9 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -120,8 +134,14 @@ Do you have any vlogging tricks of your own? Leave a comment below.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**, which will definitely enhance your productivity and helps you to make money by making videos much easier.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -138,3 +158,60 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-12-simple-tricks-to-make-your-youtube-videos-go-viral/"><u>[New] 2024 Approved  12 Simple Tricks to Make Your YouTube Videos Go Viral</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-channel-success-scaling-for-a-million-viewers/"><u>[New] 2024 Approved  Boosting Channel Success  Scaling for a Million Viewers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-content-strategy-mastery-selecting-top-rank-trackers-uncovered/"><u>[New] 2024 Approved  Content Strategy Mastery - Selecting Top Rank Trackers Uncovered</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-makers-earnings-exploring-youtube-shorts-revenue-structure/"><u>[New] 2024 Approved  Dive Into Maker's Earnings  Exploring YouTube Shorts Revenue Structure</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-epic-viewership-winners-youtubes-ultimate-list/"><u>[New] 2024 Approved  Epic Viewership Winners  YouTube's Ultimate List</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-the-fastest-route-for-srt-to-text-file-conversion/"><u>[New] 2024 Approved  The Fastest Route for SRT to Text File Conversion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-deep-dive-into-the-fundamentals-of-youtube-shorts-for-2024/"><u>[New] A Deep Dive Into The Fundamentals of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-branding-excellence-youtube-naming-masterclass-for-2024/"><u>[New] Branding Excellence  YouTube Naming Masterclass for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-youtube-trademarks-tips-on-logo-and-watermark-addition-for-2024/"><u>[New] Enhance YouTube Trademarks  Tips on Logo and Watermark Addition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-eco-films-learn-and-innovate-with-yts-green-screens-for-2024/"><u>[New] Explore Eco-Films  Learn & Innovate with YT's Green Screens for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dive-into-the-world-of-interactive-video-features-on-youtube/"><u>[New] In 2024, Dive Into the World of Interactive Video Features on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-driving-income-from-views-on-youtube/"><u>[New] In 2024, Driving Income From Views on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-screencast-excellence-the-ultimate-guide-to-best-obs-tools/"><u>[New] In 2024, Screencast Excellence  The Ultimate Guide to Best OBS Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-master-the-art-of-time-stamp-addition-for-better-viewership/"><u>[New] Master the Art of Time Stamp Addition for Better Viewership</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximize-creativity-with-no-investment-explore-these-8-video-editors/"><u>[New] Maximize Creativity with No Investment  Explore These 8 Video Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimize-youtube-submission-swift-rendering-and-uploading-methods/"><u>[New] Optimize YouTube Submission - Swift Rendering and Uploading Methods</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-30-voice-modification-solutions-vtubers-guidebook/"><u>[New] Top 30 Voice Modification Solutions  VTubers Guidebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-asmr-content-creators-on-youtube/"><u>[New] Top ASMR Content Creators on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/our-ultimate-cheat-sheet-for-seamlessly-looping-videos-on-youtube/"><u>[New] Your Ultimate Cheat Sheet for Seamlessly Looping Videos on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-add-a-professional-touch-youtube-video-image-crafting/"><u>[Updated] 2024 Approved  Add a Professional Touch  YouTube Video Image Crafting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-behind-the-scenes-how-to-create-youtube-trailers-in-filmora/"><u>[Updated] 2024 Approved  Behind the Scenes  How-To Create YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[Updated] 2024 Approved  Continuous Streams  Perfect Loops of YouTube Videos for TVs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-efficiently-uploading-youtube-vids-to-insta-profile/"><u>[Updated] 2024 Approved  Efficiently Uploading YouTube Vids to Insta Profile</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-freely-collect-tiktok-masterpieces-no-marks-included/"><u>[Updated] 2024 Approved  Freely Collect TikTok Masterpieces - No Marks Included</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-engagement-with-quick-unique-coverage-options-on-shorts-for-2024/"><u>[Updated] Boost Engagement with Quick, Unique Coverage Options on Shorts for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-elevate-social-media-impact-mastering-snapchats-boomerang-art-for-2024/"><u>[Updated] Elevate Social Media Impact  Mastering Snapchat's Boomerang Art for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-playtime-to-profits-ryan-kajis-youtube-cash-crusade/"><u>[Updated] From Playtime to Profits  Ryan Kaji's YouTube Cash Crusade</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ajeys-youtube-earnings-insight-2023/"><u>[Updated] In 2024, Ajey's YouTube Earnings Insight - 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beginners-companion-to-choosing-youtube-cameras/"><u>[Updated] In 2024, Beginner’s Companion to Choosing YouTube Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>[Updated] In 2024, Boost Your Visual Storytelling  Key Strategies for Solo Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decode-the-digital-dollar-with-youtube-an-effective-triple-step-method-for-income-analysis/"><u>[Updated] In 2024, Decode the Digital Dollar with YouTube  An Effective Triple Step Method for Income Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-evolving-tactics-for-crafting-immersive-mukbang-sessions/"><u>[Updated] In 2024, Evolving Tactics for Crafting Immersive Mukbang Sessions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-jest-journeys-charting-7-comedic-paths-to-viral-videos/"><u>[Updated] Jest Journeys  Charting 7 Comedic Paths to Viral Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-monetization-mastery-unleashing-earnings-from-your-online-content/"><u>[Updated] Monetization Mastery  Unleashing Earnings From Your Online Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pixel-powerhouse-the-ultimate-game-collection/"><u>[Updated] Pixel Powerhouse  The Ultimate Game Collection</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-push-past-filmora-discover-the-best-tablets-for-visual-excellence/"><u>[Updated] Push Past Filmora - Discover the Best Tablets for Visual Excellence</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-streamlined-methods-to-store-mov-on-your-windows-pc-for-2024/"><u>[Updated] Streamlined Methods to Store .mov on Your Windows PC for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-top-techniques-for-silent-film-capturing/"><u>2024 Approved  Top Techniques for Silent Film Capturing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-guide-to-50-creative-free-youtube-advertising-options/"><u>2024 Approved  Your Guide to 50 Creative, Free YouTube Advertising Options</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-11-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme 11 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-handle-error-code-0x80-point-to-point-link-failure-on-windows/"><u>How to Handle Error Code: 0X80 Point-to-Point Link Failure on Windows</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-14-plus-without-passcode-drfone-by-drfone-ios/"><u>How to Unlock iPhone 14 Plus Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-from-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password From Apple iPhone 15 Plus</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-download-premium-video-covers-free-fast-and-easy/"><u>In 2024, Download Premium Video Covers - Free, Fast & Easy!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-apple-iphone-7-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket Apple iPhone 7 for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-shorts-success-top-10-steps-to-stand-out/"><u>In 2024, Youtube Shorts Success - Top 10 Steps to Stand Out</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-infinix-hot-40i-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Infinix Hot 40i and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pro-selections-best-notebook-models-for-editing-professionals-for-2024/"><u>Pro Selections  Best Notebook Models for Editing Professionals for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/redefine-video-downloading-pick-from-these-top-ranked-free-and-on-demand-apps-for-youtube-shorts-for-2024/"><u>Redefine Video Downloading  Pick From These Top-Ranked, Free & On-Demand Apps for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/taking-the-leap-into-live-streamed-online-fame-and-fun-for-2024/"><u>Taking the Leap Into Live-Streamed Online Fame & Fun for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-adding-emojis-to-youtube-comments-for-2024/"><u>The Art of Adding Emojis to YouTube Comments for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-tips-for-shooting-high-quality-youtube-videos-for-2024/"><u>Top Tips for Shooting High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unwind-the-clock-pioneering-techniques-for-youtube-video-reversal-for-2024/"><u>Unwind the Clock  Pioneering Techniques for YouTube Video Reversal for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-shorts-guide-what-is-it-and-how-to-make-shorts-video-in-2024/"><u>YouTube Shorts Guide  What Is It and How To Make Shorts Video, In 2024</u></a></li>
+</ul></div>

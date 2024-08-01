@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Dive Into the World of Interactive Video Features on YouTube"
-date: 2024-06-05T06:09:47.967Z
-updated: 2024-06-06T06:09:47.967Z
+date: 2024-07-31T02:43:08.319Z
+updated: 2024-08-01T02:43:08.319Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,9 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -56,6 +59,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -63,10 +69,16 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -75,6 +87,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -118,6 +134,11 @@ The best outros also include a subscribe button, which can be created using anno
 
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -134,3 +155,52 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[New] 2024 Approved  Capture Your Best Moments  Top 8 Mirrorless Cameras For You</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-clearing-your-browsers-watched-videos/"><u>[New] 2024 Approved  Clearing Your Browser's Watched Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-deciphering-the-coded-language-of-concealed-youtube-movies/"><u>[New] 2024 Approved  Deciphering the Coded Language of Concealed YouTube Movies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-youtube-ad-creators-for-2024/"><u>[New] Best YouTube Ad Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-capture-clarity-high-quality-screen-recordings-for-youtubers-pcmac-for-2024/"><u>[New] Capture Clarity  High-Quality Screen Recordings for YouTubers (PC/Mac) for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fb-slideshow-101-a-beginners-guide/"><u>[New] FB Slideshow 101  A Beginner's Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-binge-worthy-content-crafting-episodes-that-viewers-love/"><u>[New] In 2024, Binge-Worthy Content  Crafting Episodes That Viewers Love</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-skype-audio-archive-mp3-techniques-free-edition/"><u>[New] In 2024, Skype Audio Archive  MP3 Techniques, Free Edition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-streamlined-scheduling-making-the-most-of-zoom-calls/"><u>[New] In 2024, Streamlined Scheduling  Making the Most of Zoom Calls</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-profit-maximizers-playlist-8-tools-and-products-to-elevate-your-business-game-for-2024/"><u>[New] Profit Maximizers Playlist  8 Tools & Products to Elevate Your Business Game for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-sweep-viewers-off-their-feet-templates-that-work-wonders/"><u>[New] Sweep Viewers Off Their Feet  Templates That Work Wonders</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-syncing-vimeo-and-instagram-the-ultimate-guide/"><u>[New] Syncing Vimeo and Instagram  The Ultimate Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-gateway-to-youtube-stardom-via-studio-expertise/"><u>[New] The Gateway to YouTube Stardom via Studio Expertise</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleash-creativity-the-best-9-camera-accessories-for-vloggers-and-more/"><u>[New] Unleash Creativity  The Best 9 Camera Accessories for Vloggers and More</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-the-course-to-youtube-livestream-mastery/"><u>[Updated] 2024 Approved  Charting the Course to YouTube Livestream Mastery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-expert-strategies-to-maximize-income-with-video-ads-on-youtube/"><u>[Updated] 2024 Approved  Expert Strategies to Maximize Income with Video Ads on Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-amp-up-your-media-get-free-soundtracks-for-2024/"><u>[Updated] Amp Up Your Media  Get Free Soundtracks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-design-channels-get-free-visuals-now-for-2024/"><u>[Updated] Design Channels - Get Free Visuals Now for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-zero-to-hero-profit-on-reddit-with-no-experience-top-13/"><u>[Updated] From Zero to Hero  Profit on Reddit with No Experience (Top 13)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-beginners-guide-to-youtube-shorts-nuances/"><u>[Updated] In 2024, A Beginner's Guide to YouTube Shorts Nuances</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-branding-mastery-securing-a-loyal-youtube-subscriber-base/"><u>[Updated] In 2024, Channel Branding Mastery  Securing a Loyal YouTube Subscriber Base</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-convert-and-share-optimal-tools-for-youtube-to-avi-transfers/"><u>[Updated] In 2024, Convert & Share  Optimal Tools for YouTube-to-AVI Transfers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-detailed-insights-into-youtubes-monthly-income-model/"><u>[Updated] In 2024, Detailed Insights Into YouTube's Monthly Income Model</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-digital-dollars-in-motion-a-side-by-side-of-vids-vs-videos/"><u>[Updated] In 2024, Digital Dollars in Motion  A Side-by-Side of Vids Vs. Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-can-you-stream-a-pre-recorded-video-live-on-facebook/"><u>[Updated] In 2024, How Can You Stream A Pre-Recorded Video Live on Facebook?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-to-mp3-conversion-process-walkthrough-for-2024/"><u>[Updated] Instagram to MP3 Conversion Process Walkthrough for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-master-youtube-sound-playback-variations/"><u>[Updated] Master YouTube Sound Playback Variations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-editing-choosing-the-best-for-youtube/"><u>[Updated] Prime Editing  Choosing the Best For YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-novices-route-to-revenue-in-the-youtube-realm/"><u>[Updated] The Novice's Route to Revenue in the YouTube Realm</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-spark-interest-everyones-free-with-our-youtube-banner-samples/"><u>2024 Approved  Spark Interest - Everyone's Free With Our YouTube Banner Samples!</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-virtual-evolution-dichotomy-metaverse-and-omniverse-compared/"><u>2024 Approved  The Virtual Evolution Dichotomy  Metaverse & Omniverse Compared</u></a></li>
+<li><a href="https://win11.techidaily.com/a-new-era-for-windows-users-understanding-copilot-key-impact/"><u>A New Era for Windows Users: Understanding Copilot Key Impact</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/audience-focus-top-webcams-that-bring-life-to-podcasts-for-2024/"><u>Audience Focus  Top Webcams That Bring Life to Podcasts for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/forging-bonds-strategic-partnerships-with-brands-on-youtube/"><u>Forging Bonds  Strategic Partnerships with Brands on YouTube</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-oppo-reno-11-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Oppo Reno 11 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-fixes-for-stuck-instagram-videos-for-2024/"><u>Mastering Fixes for Stuck Instagram Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/open-source-templates-transform-your-youtube-channel-for-2024/"><u>Open-Source Templates Transform Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimal-video-techniques-to-dominate-freefire-vlogs-for-2024/"><u>Optimal Video Techniques to Dominate FreeFire Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/recovering-youtube-gems-2-easy-watch-methods-revealed-for-2024/"><u>Recovering Youtube Gems  2 Easy Watch Methods Revealed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-counter-flow-strategy-reversing-your-youtube-video-sequence-for-2024/"><u>The Counter-Flow Strategy  Reversing Your YouTube Video Sequence for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-roadmap-how-youtube-is-cultivating-a-flourishing-short-form-video-culture-for-2024/"><u>The Roadmap  How YouTube Is Cultivating a Flourishing Short-Form Video Culture for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-creative-storytelling-the-art-of-jump-cutting-for-2024/"><u>Unlock Creative Storytelling  The Art of Jump Cutting for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/virtual-vistas-of-video-select-top-6-apps-for-macos-big-surs-editors/"><u>Virtual Vistas of Video  Select Top 6 Apps for macOS Big Sur's Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-growth-secrets-masterful-narration-techniques-for-2024/"><u>YouTube Growth Secrets  Masterful Narration Techniques for 2024</u></a></li>
+</ul></div>

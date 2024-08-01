@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Exploring the Depths of Video Talks on YouTube"
-date: 2024-06-05T06:23:19.712Z
-updated: 2024-06-06T06:23:19.712Z
+date: 2024-07-31T03:06:16.466Z
+updated: 2024-08-01T03:06:16.466Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/a8faf3762ec0652876e641b0799340042cad57c24
 
 # How to Search Comments on YouTube Quickly?
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,6 +34,9 @@ Are you trying to search for something on a document or a web page? You know how
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -57,6 +63,9 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
@@ -73,6 +82,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -99,6 +112,9 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -138,6 +154,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -154,3 +173,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-guide-to-the-best-bridal-films-8-from-youtube-plus-vimeo/"><u>[New] 2024 Approved  A Guide to the Best Bridal Films (8 From YouTube + Vimeo)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-guide-to-youtube-video-resolutions-and-aspects/"><u>[New] 2024 Approved  Essential Guide to YouTube Video Resolutions & Aspects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cash-rides-high-with-well-crafted-youtube-shorts-for-2024/"><u>[New] Cash Rides High with Well-Crafted YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-dynamic-youtube-content-as-animated-gifs-without-downloads-for-2024/"><u>[New] Crafting Dynamic YouTube Content as Animated GIFs Without Downloads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad-for-2024/"><u>[New] Effortless Offline Viewing  How to Save YouTube Videos for iPhone/iPad for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-harness-the-full-potential-of-your-videos-with-simple-cuts-on-windows/"><u>[New] Harness the Full Potential of Your Videos with Simple Cuts on Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-amplify-your-channel-effortless-tactics-for-more-views/"><u>[New] In 2024, Amplify Your Channel  Effortless Tactics for More Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-create-compelling-animation-subscribe-bars-for-your-youtube-channel-filmora/"><u>[New] In 2024, Create Compelling Animation Subscribe Bars for Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-audio-enhancement-apps-for-youtubers-videos/"><u>[New] In 2024, Essential Audio Enhancement Apps for YouTubers' Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-inside-out-the-realities-of-youtubing-earning/"><u>[New] Inside Out  The Realities of YouTubing Earning</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-jumpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators/"><u>[New] Jumpstart Your Professional Filmmaking  Exclusive, Cost-Free Green Screen Training From Top YouTube Educators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-hash-playbook-for-video-gamers-on-youtube/"><u>[New] The Ultimate Hash Playbook for Video Gamers on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tune-tastic-transfers-find-your-favorite-youtube-songs-with-top-6-free-android-apps/"><u>[New] Tune-Tastic Transfers  Find Your Favorite Youtube Songs with Top 6 Free Android Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-moguls-and-millionaires/"><u>[New] YouTube Moguls and Millionaires</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-quick-guide-to-moving-videos-from-youtube-to-dailymotion/"><u>[Updated] 2024 Approved  A Quick Guide to Moving Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-5-youtube-video-editor-alternatives/"><u>[Updated] 2024 Approved  Best 5 YouTube Video Editor Alternatives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-easy-youtube-animation-subscribe-bars-in-filmora/"><u>[Updated] 2024 Approved  Crafting Easy YouTube Animation Subscribe Bars in Filmora</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-examining-youtubes-copyright-stance-versus-cc-approach/"><u>[Updated] 2024 Approved  Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-acquire-high-quality-sounds-for-media-creators-for-2024/"><u>[Updated] Acquire High-Quality Sounds for Media Creators for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-buzzing-beats-essential-background-scores-for-viral-video-shorts/"><u>[Updated] Buzzing Beats  Essential Background Scores for Viral Video Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-techniques-pushing-boundaries-in-youtube-cinematography-for-2024/"><u>[Updated] Cutting Edge Techniques  Pushing Boundaries in YouTube Cinematography for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-youtube-intros-and-end-cards-free-and-easy/"><u>[Updated] How to Create YouTube Intros & End Cards - Free and Easy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-video-performance-elite-youtube-ranks-tools/"><u>[Updated] Optimize Video Performance  Elite YouTube Ranks Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-perfecting-your-youtube-presence-with-finalcut-pro-proficiency/"><u>[Updated] Perfecting Your YouTube Presence with FinalCut Pro Proficiency</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-settled-evasive-behavior-of-shorts-content/"><u>[Updated] Settled  Evasive Behavior of Shorts Content</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-streamlined-steps-simplifying-fishy-voice-swaps-on-windows-pcs/"><u>[Updated] Streamlined Steps  Simplifying Fishy Voice Swaps on Windows PCs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-swift-sharing-twitter-to-whatsapp-videos-for-2024/"><u>[Updated] Swift Sharing  Twitter to WhatsApp Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-the-best-video-editors-not-on-youtoo/"><u>[Updated] The Ultimate Guide to the Best Video Editors Not on YouToo</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-gif-mastery-your-quick-guide-to-uploads-and-sharing/"><u>2024 Approved  Instagram GIF Mastery  Your Quick Guide to Uploads and Sharing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-visuals-in-ae-selecting-excellent-plugin-choices/"><u>Crafting Visuals in AE  Selecting Excellent Plugin Choices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elite-anonymity-in-story-consumption-top-5-apps-for-2024/"><u>Elite Anonymity in Story Consumption, Top 5 Apps for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-fixed-frames-to-dynamic-circles-in-videos-for-2024/"><u>From Fixed Frames to Dynamic Circles in Videos for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-maze-to-find-your-ideal-4k-screen/"><u>Navigating the Maze to Find Your Ideal 4K Screen</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/screen-replay-masters-leading-browser-capture-solutions-for-2024/"><u>Screen Replay Masters  Leading Browser Capture Solutions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ugly-side-of-digital-video-profits-for-2024/"><u>The Ugly Side of Digital Video Profits for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-guide-to-the-finest-youtube-subtitles-extractor-for-2024/"><u>Your Guide to the Finest YouTube Subtitles Extractor for 2024</u></a></li>
+</ul></div>

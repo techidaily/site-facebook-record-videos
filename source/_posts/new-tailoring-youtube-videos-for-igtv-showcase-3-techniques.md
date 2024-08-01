@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Tailoring YouTube Videos for IGTV Showcase  3 Techniques\""
-date: 2024-06-05T05:26:35.165Z
-updated: 2024-06-06T05:26:35.165Z
+date: 2024-07-31T01:30:12.504Z
+updated: 2024-08-01T01:30:12.504Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,9 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -52,6 +55,9 @@ Go to the **Effects tab** and click on the **Background Blur** submenu if you wa
 
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
 
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
@@ -62,6 +68,9 @@ Latest News: In Filmora V10.5 and later versions, there is a new feature called 
 
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
@@ -74,12 +83,18 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
 Editing videos with professional video editing software products like Final Cut Pro or Premiere Pro requires a certain amount of skill. There is more than just one way to change the aspect ratio of a video in Final Cut Pro, but probably the best one is to **set the project resolution to 2160X3840 or any other lower resolution that matches the 9:16 aspect ratio**. During the video editing process, you will have to **resize all of the footage** you want to include in the final version of the video. Planning your shots and composing them differently than you would compose horizontally oriented shots can potentially save you a little time on resizing and repositioning the video clips you’re working with.
@@ -92,6 +107,9 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -108,3 +126,46 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-vlog-through-proper-lighting/"><u>[New] 2024 Approved  Elevating Your Vlog Through Proper Lighting</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-empowerment-in-entertainment-top-10-inspirational-women/"><u>[New] 2024 Approved  Empowerment in Entertainment  Top 10 Inspirational Women</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-free-resources-for-youtube-intros/"><u>[New] 2024 Approved  Essential Free Resources for YouTube Intros</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unveiling-the-mysteries-of-ig-metrics-an-essential-toolkit-for-marketers/"><u>[New] 2024 Approved  Unveiling the Mysteries of IG Metrics  An Essential Toolkit for Marketers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieving-youtube-live-prominence-with-pro-level-tips-for-2024/"><u>[New] Achieving YouTube Live Prominence with Pro-Level Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content-for-2024/"><u>[New] Become a Freelance Transcriber  Tips and Tricks for YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-curating-best-audio-relaxation-tools-asmr-for-2024/"><u>[New] Curating Best Audio Relaxation Tools (ASMR) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-compelling-proposals-a-famebit-guide-to-channel-ads/"><u>[New] In 2024, Crafting Compelling Proposals  A FameBit Guide to Channel Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-distinguishing-between-youtube-content-control-and-creative-commons-flexibility/"><u>[New] In 2024, Distinguishing Between YouTube Content Control and Creative Commons Flexibility</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-5-minute-timelapse-video-maker/"><u>[New] In 2024, Ultimate 5-Minute Timelapse Video Maker</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-wallet-friendly-microphones-for-social-media-stars/"><u>[New] Wallet-Friendly Microphones for Social Media Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-practices-for-youtube-video-brightness-and-contrast/"><u>[Updated] 2024 Approved  Best Practices for YouTube Video Brightness and Contrast</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brief-but-impactful-which-social-platform-leads-for-short-video-content-in-2024/"><u>[Updated] Brief but Impactful  Which Social Platform Leads for Short Video Content, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-earnings-on-youtube-the-crucial-number-of-video-views-for-money-for-2024/"><u>[Updated] Earnings on YouTube  The Crucial Number of Video Views for Money for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fading-flourishes-invisible-audio-adjustments-in-garageband/"><u>[Updated] Fading Flourishes  Invisible Audio Adjustments in Garageband</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-high-quality-1-ranked-4k-laptops-for-gaming/"><u>[Updated] High-Quality  #1 Ranked 4K Laptops for Gaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-establish-lasting-content-partnerships-with-youtubers/"><u>[Updated] How to Establish Lasting Content Partnerships with YouTubers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-how-to-record-your-desktop-screen-on-windows-for-free-3-methods-for-2024/"><u>[Updated] How to Record Your Desktop Screen on Windows For Free [3 Methods] for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-comprehensive-look-at-youtubes-adsense-mechanisms/"><u>[Updated] In 2024, A Comprehensive Look at YouTube's AdSense Mechanisms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-world-beyond-men-top-10-inspirational-youtube-stars/"><u>[Updated] In 2024, A World Beyond Men  Top 10 Inspirational YouTube Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-compelling-channel-names-simplified/"><u>[Updated] In 2024, Creating Compelling Channel Names Simplified</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-learning-the-pixiz-method-for-photo-based-video-crafting/"><u>[Updated] Learning the Pixiz Method for Photo-Based Video Crafting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-miniature-music-menus-actors-in-audio-world/"><u>[Updated] Miniature Music Menus  Actors in Audio World</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-realities-of-youtube-view-calculation/"><u>[Updated] The Realities of YouTube View Calculation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transform-your-clips-step-by-step-youtube-end-screen-tutorials/"><u>[Updated] Transform Your Clips  Step-by-Step YouTube End Screen Tutorials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-your-vision-establishing-an-entrepreneurial-video-haven-on-phone/"><u>[Updated] Unleash Your Vision  Establishing an Entrepreneurial Video Haven on Phone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-ideas-to-keep-your-snapchat-streak-alive/"><u>2024 Approved  Ideas to Keep Your Snapchat Streak Alive</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-summit-build-lab-examination/"><u>2024 Approved  Summit Build Lab Examination</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-easy-methods-to-unlock-icloud-locked-apple-iphone-se-2020ipadipod-by-drfone-ios/"><u>3 Easy Methods to Unlock iCloud Locked Apple iPhone SE (2020)/iPad/iPod</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-nokia-105-classic-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Nokia 105 Classic</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/harnessing-the-power-of-google-maps-in-your-windows-system/"><u>Harnessing the Power of Google Maps in Your Windows System</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-enhancing-quicktime-videos-with-surround-sound-a-step-by-step-guide/"><u>In 2024, Enhancing QuickTime Videos with Surround Sound A Step-by-Step Guide</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-motorola-moto-g34-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Motorola Moto G34 5G Lock Screen Password?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-apple-iphone-12-mini-for-parents-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Telegram Spy Tools On Apple iPhone 12 mini for Parents | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocketing-traffic-the-ultimate-guide-to-youtube-outros-partnerships-for-2024/"><u>Skyrocketing Traffic  The Ultimate Guide to YouTube Outros Partnerships for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-blueprint-for-designing-eye-catching-thumbnails-for-your-youtube-channel-for-2024/"><u>The Blueprint for Designing Eye-Catching Thumbnails for Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/understanding-a-blue-icons-role-facebooks-communication-tool/"><u>Understanding a Blue Icon’s Role  Facebook's Communication Tool</u></a></li>
+</ul></div>

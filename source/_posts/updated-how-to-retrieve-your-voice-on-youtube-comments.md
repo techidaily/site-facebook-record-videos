@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Retrieve Your Voice on YouTube (Comments)"
-date: 2024-06-05T05:02:56.978Z
-updated: 2024-06-06T05:02:56.978Z
+date: 2024-07-31T00:50:54.598Z
+updated: 2024-08-01T00:50:54.598Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,10 @@ thumbnail: https://thmb.techidaily.com/e788f79a8684ff135a50b06576e0943a8c2779cab
 
 # How to Find Your Comments on YouTube?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,12 +39,24 @@ That said, the following sections teach you how to find your YouTube comments on
 * [Part 5: How to Moderate YouTube Comments?](#part5)
 * [Part 6: Tips for Writing Good YouTube Comments](#part6)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Find All the Comments You’ve Posted on YouTube?
 
 YouTube allows you to post comments on any video only if you are signed in to your Google account while browsing the streaming platform. Because of this, the portal is able to keep a record of your activities, thus enabling you to track all your comments, and take necessary action such as deleting or modifying them as required.
 
 You can learn how to find all the comments you have posted on YouTube while using your preferred device by following the instructions given below:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ### 1\. Find Your YouTube Comments on a Desktop or Laptop Computer
 
 **Step 1: Sign In to Your YouTube Account**
@@ -51,14 +67,24 @@ Launch your favorite web browser, go to the YouTube page, click **SIGN IN** from
 
 Click the **Menu</strong > button from the top-left corner of the page, and then click History from the categories available in the navigation bar in the left.**
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![YouTube History Menu   ](https://images.wondershare.com/filmora/article-images/youtube-history-menu.jpg)
 
 **Step 3: Access/View Your Past Comments**
 
 Click **Comments** from the right of the **History** page to view all the comments that you have posted earlier.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![YouTube History Menu  Comments ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Find Your YouTube Comments on an iPhone
 
 Unfortunately, at the time of this writing, the YouTube app for iOS doesn’t have the feature to view your comments history. However, there is a workaround where you can use a web browser on your smartphone to get this done. The process that is given below explains how to view your past YouTube comments on an iPhone:
@@ -77,6 +103,9 @@ Tap the **More Options** icon from the top-left corner of the browser, and then 
 
 Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **History** from the menu that appears. On the **History** page, tap **Comments** from the right pane to view/access your YouTube comments that you posted in the past.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Access the Desktop Version of YouTube ](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
 ### 3\. Find Your YouTube Comments on an Android Smartphone
@@ -101,6 +130,9 @@ Once you are signed in to your account, tap the **Menu** icon from the top-left 
 
 If you own a YouTube channel and have posted several videos there, it is likely that you also have received a decent number of comments. Usually, these remarks are pretty helpful as they tell you how to improve your production quality, and what your audience prefers to watch in the future. Therefore, it is imperative to learn how to find all the comments that your YouTube channel has received, and the process given below explains exactly that:
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Find Your Channel’s YouTube Comments on a Desktop or Laptop Computer
 
 You can use your favorite web browser on a PC to easily find all the comments that the videos on your YouTube channel have received as long as you are signed in to your Google account. The step-by-step instructions on how this can be done are given below:
@@ -109,6 +141,9 @@ You can use your favorite web browser on a PC to easily find all the comments th
 
 Open your favorite Internet browser, go to <https://www.youtube.com>, and sign in to your YouTube account as explained in the previous sections. Next, click the **Menu** icon from the top-left corner of the YouTube homepage, and click **Your videos** from the menu that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![Access  YouTube Your videos Page ](https://images.wondershare.com/filmora/article-images/youtube-your-videos-menu.jpg)
 
 **Step 2: View the Comments**
@@ -121,6 +156,9 @@ Make sure that the **Uploads** tab is selected on the **Channel content** window
 
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
@@ -145,6 +183,9 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -165,6 +206,9 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![Serach  YouTube Comments of specific users ](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 4: How to Edit and Reply to YouTube Comments?
@@ -235,3 +279,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-blitzing-sharing-easy-youtube-playlist-methods/"><u>[New] 2024 Approved  Blitzing Sharing  Easy YouTube Playlist Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post/"><u>[New] 2024 Approved  Breakdown of Profit  Earning Potential From Each YouTube Sponsored Post?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-8-youtube-thumbnail-generators-online/"><u>[New] 2024 Approved  Discover 8 YouTube Thumbnail Generators Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>[New] 2024 Approved  Effortless Keyword Harvesting  Explore the Best 7 No-Fee Tag Extractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-examining-video-sharing-platforms-the-vimeo-and-youtube-divide/"><u>[New] 2024 Approved  Examining Video Sharing Platforms  The Vimeo & YouTube Divide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-3d-entrance-makers-for-youtube-creators-for-2024/"><u>[New] Best 3D Entrance Makers for YouTube Creators for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-compiling-the-finest-ios-psp-game-tools-1-5/"><u>[New] Compiling the Finest iOS PSP Game Tools #1-5</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-your-youtube-presence-with-ideal-video-formats-for-2024/"><u>[New] Elevating Your YouTube Presence with Ideal Video Formats for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-strategies-for-effective-content-management-in-creator-studio-for-2024/"><u>[New] Essential Strategies for Effective Content Management in Creator Studio for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-creating-costless-webinars-on-youtube-a-handbook/"><u>[New] In 2024, Creating Costless Webinars on YouTube  A Handbook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cut-trim-and-enhance-youtube-editing-tips-for-the-rookie/"><u>[New] In 2024, Cut, Trim & Enhance  YouTube Editing Tips for the Rookie</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-enhanced-window-recording-made-simple-with-spring/"><u>[New] In 2024, Enhanced Window Recording Made Simple with Spring</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-views-with-these-premium-tools-for-youtube-seo/"><u>[New] In 2024, Enhancing Views with These Premium Tools for YouTube SEO</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-turbocharge-your-youtube-videos-swift-render-and-transfer-strategies/"><u>[New] Turbocharge Your YouTube Videos  Swift Render & Transfer Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-uncover-earths-wonders-with-these-top-10-vids/"><u>[New] Uncover Earth's Wonders with These Top 10 Vids</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeos-complimentary-guide-essential-video-editing-skills-for-2024/"><u>[New] Vimeo’s Complimentary Guide  Essential Video Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-5-non-youtube-editing-tools-for-vids/"><u>[Updated] 2024 Approved  Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-converting-youtube-audio-securely-master-3-proven-techniques/"><u>[Updated] 2024 Approved  Converting YouTube Audio Securely  Master 3 Proven Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ad-profits-unveiled-how-much-do-creators-make-on-youtube-in-2024/"><u>[Updated] Ad Profits Unveiled  How Much Do Creators Make on Youtube, In 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevating-video-popularity-on-youtube/"><u>[Updated] Elevating Video Popularity on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-add-youtube-annotations-and-cards-for-2024/"><u>[Updated] How to Add YouTube Annotations and Cards for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-identifying-the-most-versatile-cam-top-12-screen-swivel-gadgets/"><u>[Updated] Identifying the Most Versatile Cam  Top 12 Screen Swivel Gadgets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chuckle-collective-top-15-hilarious-youtubers-for-boredom-beaters/"><u>[Updated] In 2024, Chuckle Collective  Top 15 Hilarious YouTubers for Boredom Beaters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-earning-by-critiquing-goodies-a-youtube-guide/"><u>[Updated] In 2024, Earning by Critiquing Goodies  A YouTube Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-techniques-for-uploading-youtubes-on-dailymotion/"><u>[Updated] In 2024, Expert Techniques for Uploading YouTubes on Dailymotion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-simplified-processes-instantly-clearing-youtube-comments-for-2024/"><u>[Updated] Simplified Processes  Instantly Clearing Youtube Comments for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-iphone-converter-top-6-free-applications-to-use/"><u>[Updated] The Ultimate iPhone Converter  Top 6 Free Applications to Use</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-thrifty-audio-tools-youtubers-economical-options/"><u>[Updated] Thrifty Audio Tools  Youtubers’ Economical Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unraveling-youtubes-viewer-metrics-a-deeper-look/"><u>[Updated] Unraveling YouTube's Viewer Metrics  A Deeper Look</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-video-dimensionssize-guide-for-upload-settings/"><u>[Updated] YouTube Video Dimensions/Size [Guide for Upload Settings]</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-13-ultra-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-flipping-through-frames-instagrams-video-reversal-wizardry/"><u>2024 Approved  Flipping Through Frames  Instagram's Video Reversal Wizardry</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-make-your-own-youtube-opening-and-closing-graphics/"><u>2024 Approved  Make Your Own YouTube Opening & Closing Graphics</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/adventure-awaits-discover-the-best-online-sites-for-boxes/"><u>Adventure Awaits  Discover the Best Online Sites for Boxes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-motorola-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Motorola  support AVCHD video?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-civi-3-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Civi 3</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-everyday-fashion-expert-edits-for-haul-videos/"><u>Elevate Everyday Fashion  Expert Edits for Haul Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-motorola-edge-40-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Motorola Edge 40 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-magic-5-pro-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor Magic 5 Pro Device</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/iphone-video-editing-showdown-cameo-against-filmorago/"><u>IPhone Video Editing Showdown  Cameo Against FilmoraGo</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-the-ultimate-final-cut-pro-hack-flipping-clips-in-4-easy-steps/"><u>New In 2024, The Ultimate Final Cut Pro Hack Flipping Clips in 4 Easy Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-financial-flows-youtube-affiliates-for-modest-channels-for-2024/"><u>Unlocking Financial Flows  YouTube Affiliates for Modest Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/visualconstruct-pro-for-2024/"><u>VisualConstruct Pro for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+</ul></div>

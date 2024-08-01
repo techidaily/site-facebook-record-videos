@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Guide  Screen Capture & Sound From YouTube\""
-date: 2024-06-05T04:15:44.090Z
-updated: 2024-06-06T04:15:44.090Z
+date: 2024-07-30T23:31:05.309Z
+updated: 2024-07-31T23:31:05.309Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/7b4e6458caaa3e9950165c60cd6d036d2d81733c1
 
 # How to Record Audio from YouTube
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -35,6 +38,9 @@ Sometimes, we are interested to play our favorite music during a long hour journ
 
 **Note:** We resolutely oppose all forms of copyright-infringing downloads. This tutorial is only for downloading YouTube videos/audio materials from your own channel.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
 ### The All-in-One Screen Recorder & Video Editor
@@ -52,6 +58,9 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 ## Method 1: Capture Audio from YouTube with Online YouTube2MP3 Converter
@@ -82,12 +91,22 @@ In case if you are interested to record yourself or want to capture just a small
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![Audacity ](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
 * It is time to open your YouTube video and hit the record button. Make sure the connection is fast enough to play video without any interruption, otherwise keep it loaded in advance. Play the video and when done, hit the stop button on Audacity program.
 * This file can be exported and saved to a device with the MP3 file format.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## Method 3: Recording Sound with Streaming Audio Recorder
 
 The third choice for recording YouTube audios is using [Streaming Audio Recorder](https://www.apowersoft.com/streaming-audio-recorder.html). The great news is that this software cannot only record audios for you rather at the same time it is loaded with advanced editor tool that allows easy cutting and splicing of sounds for the creation of customized videos. With Streaming Audio Recorder, you can also convert your videos into various file formats.
@@ -101,6 +120,9 @@ You will be happy to hear that this recorder is not just dedicated to YouTube pl
 * Start playing your desired YouTube video and on recorder, hit the record button instantly.
 * As soon as the recording task is complete, hit the Stop button and your recorded audio will be soon saved to the targeted folder.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Recommended: Record Audio and Save to MP3 Format with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -115,6 +137,9 @@ If you want to edit the record audio further, like adjust the audio pitch, remov
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -131,3 +156,57 @@ Follow @Max Wales
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-churning-charts-todays-1-backdrop-music-for-youtube-shorts/"><u>[New] 2024 Approved  Churning Charts  Today's #1 Backdrop Music for YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-diy-the-beginners-guide-to-eye-catching-mac-videos/"><u>[New] 2024 Approved  Dive Into DIY  The Beginner’s Guide to Eye-Catching Mac Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-engaging-life-journeys-in-video-formats-for-2024/"><u>[New] Crafting Engaging Life Journeys in Video Formats for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-youtube-presence-filmmaking-with-filmora-for-2024/"><u>[New] Elevate Your YouTube Presence  Filmmaking with Filmora for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-fanbase-titans-the-10-most-subscribed-youtube-creators-for-2024/"><u>[New] Fanbase Titans  The 10 Most Subscribed YouTube Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-chuckle-filled-creativity-crafting-7-side-splitting-youtube-sets/"><u>[New] In 2024, Chuckle-Filled Creativity  Crafting 7 Side-Splitting YouTube Sets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-edge-strategies-for-flawless-custom-shorts-coverage/"><u>[New] In 2024, Cutting-Edge Strategies for Flawless Custom Shorts Coverage</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-direct-youtube-video-capture-guide/"><u>[New] In 2024, Direct YouTube Video Capture Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-ensuring-legitimacy-of-your-youtube-sign-in/"><u>[New] In 2024, Ensuring Legitimacy of Your YouTube Sign-In</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-how-to-record-gameplay-and-webcam/"><u>[New] In 2024, How to Record Gameplay and Webcam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-keywords-in-the-world-of-selling-monetized-youtube-channels/"><u>[New] Keywords in the World of Selling Monetized Youtube Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-uncloaked-resolved-youtube-shorts-gone-miss/"><u>[New] Uncloaked  Resolved YouTube Shorts Gone Miss</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlock-humor-potential-with-kapwings-designer/"><u>[New] Unlock Humor Potential with Kapwing’s Designer</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-upgrade-your-sky-faring-with-these-11-essentials-for-2024/"><u>[New] Upgrade Your Sky-Faring with These 11 Essentials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beam-your-content-upward-perfecting-youtube-seo-techniques/"><u>[Updated] 2024 Approved  Beam Your Content Upward  Perfecting YouTube SEO Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-engaging-youtube-threads/"><u>[Updated] 2024 Approved  Discover Engaging YouTube Threads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-easing-into-public-speaking-10-common-video-blogger-fears/"><u>[Updated] 2024 Approved  Easing Into Public Speaking  10 Common Video Blogger Fears</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-efficient-mac-video-resizing-to-fixed-ratio/"><u>[Updated] 2024 Approved  Efficient Mac Video Resizing to Fixed Ratio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-vlogging-mastering-tripod-angles-and-positions/"><u>[Updated] 2024 Approved  Elevate Your Vlogging  Mastering Tripod Angles and Positions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-secure-practices-for-storing-video-conversations/"><u>[Updated] 2024 Approved  Secure Practices for Storing Video Conversations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-live-streaming-software-and-hardware-you-should-know-for-2024/"><u>[Updated] Best YouTube Live Streaming Software and Hardware You Should Know for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploiting-youtubes-creative-commons-in-media-making/"><u>[Updated] Exploiting YouTube's Creative Commons in Media Making</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-8-superior-youtube-to-avi-software-for-2024/"><u>[Updated] Exploring 8 Superior YouTube-to-AVI Software for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-fanbase-titans-the-10-most-subscribed-youtube-creators-for-2024/"><u>[Updated] Fanbase Titans  The 10 Most Subscribed YouTube Creators for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-future-proof-files-top-5-cloud-services-for-peak-performance/"><u>[Updated] Future-Proof Files  Top 5 Cloud Services for Peak Performance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-amplify-audience-connection-best-creative-reacting-techniques/"><u>[Updated] In 2024, Amplify Audience Connection  Best Creative Reacting Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-captivating-viewers-youtubers-guide-to-dynamic-game-sessions/"><u>[Updated] In 2024, Captivating Viewers  YouTubers’ Guide to Dynamic Game Sessions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-digital-detective-finding-and-watching-yt-archives/"><u>[Updated] In 2024, Digital Detective  Finding and Watching YT Archives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-diy-tips-for-affordable-youtube-introend-videos/"><u>[Updated] In 2024, DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-video-production-the-audio-edition-on-youtube/"><u>[Updated] In 2024, Elevate Video Production  The Audio Edition on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-thumbnail-strategies-for-amplifying-viewership-on-youtube/"><u>[Updated] In 2024, Essential Thumbnail Strategies for Amplifying Viewership on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-secure-seamless-youtube-watching-across-devices-and-browsers/"><u>[Updated] Secure Seamless YouTube Watching Across Devices and Browsers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-taking-flight-on-youtube-strategies-to-skyrocket-your-video-rankings/"><u>[Updated] Taking Flight on YouTube  Strategies to Skyrocket Your Video Rankings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-entrepreneurs-guide-to-youtube-earnings-thriving-without-ad-support/"><u>[Updated] The Entrepreneur’s Guide to YouTube Earnings  Thriving Without Ad Support</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-reference-to-youtube-video-aspect-ratios/"><u>[Updated] The Ultimate Reference to YouTube Video Aspect Ratios</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-understanding-the-dynamics-of-ig-reels-vs-ig-stories/"><u>[Updated] Understanding the Dynamics of IG Reels Vs IG Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-viral-video-venues-clash-youtube-shorts-vs-tiktoks-rapid-rise/"><u>[Updated] Viral Video Venues Clash  YouTube Shorts Vs. TikTok's Rapid Rise</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-virtual-studio-compiling-the-best-dj-visuals-for-download/"><u>[Updated] Virtual Studio  Compiling the Best DJ Visuals for Download</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-orchestrating-the-soundscape-finding-perfect-background-tunes/"><u>2024 Approved  Orchestrating the Soundscape  Finding Perfect Background Tunes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/cters-that-convert-ideal-story-strategies/"><u>Characters That Convert  Ideal Story Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/closing-your-vlog-right-top-6-free-youtube-outro-tools-in-2024/"><u>Closing Your Vlog Right  Top 6 Free YouTube Outro Tools, In 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-google-pixel-8-pro-by-drfone-android/"><u>How to Bypass FRP on Google Pixel 8 Pro?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-m34-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Samsung Galaxy M34 5G</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-how-to-make-a-playlist-on-youtube/"><u>In 2024, How to Make a Playlist on YouTube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Oppo A18 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-perfect-portraits-changing-picture-sizes-on-ios/"><u>In 2024, Perfect Portraits  Changing Picture Sizes on iOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/next-generation-youtubers-8-accelerating-growth-for-2024/"><u>Next Generation Youtubers 8  Accelerating Growth for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pioneers-in-the-realm-of-multimedia-synergy-for-2024/"><u>Pioneers in the Realm of Multimedia Synergy for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/samsungs-latest-bd-edition-k850-update-for-2024/"><u>Samsung's Latest BD Edition - K850 Update for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simplify-your-life-with-these-tips-on-free-youtube-transcription-for-2024/"><u>Simplify Your Life with These Tips on Free YouTube Transcription for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/to-network-or-not-a-detailed-guide-for-youtubers-considering-mncs-for-2024/"><u>To Network, Or Not  A Detailed Guide for YouTubers Considering MNCs for 2024</u></a></li>
+</ul></div>

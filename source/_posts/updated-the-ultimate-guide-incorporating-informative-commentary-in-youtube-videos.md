@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-06-05T05:18:16.267Z
-updated: 2024-06-06T05:18:16.267Z
+date: 2024-07-31T01:16:26.059Z
+updated: 2024-08-01T01:16:26.059Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb4
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,6 +35,9 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -51,11 +57,24 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -63,6 +82,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
@@ -80,6 +102,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -134,3 +159,46 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[New] 2024 Approved  Beauty Vlogs From Basics to Brilliance  Launching a YouTube Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-alternatives-to-blockbuster-flicks/"><u>[New] 2024 Approved  Best Alternatives to Blockbuster Flicks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elite-alternative-edits-skip-youtube-not-just-content/"><u>[New] 2024 Approved  Elite Alternative Edits  Skip Youtube, Not Just Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-step-by-step-guide-to-youtube-comms-management-for-2024/"><u>[New] A Step-by-Step Guide to YouTube Comms Management for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-diverse-content-portfolio-on-youtube-shorts/"><u>[New] In 2024, Building a Diverse Content Portfolio on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-captivating-content-the-basics-of-removing-background-from-videos/"><u>[New] In 2024, Captivating Content  The Basics of Removing Background From Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-copycatting-charisma-making-ingenious-parodies/"><u>[New] In 2024, Copycatting Charisma  Making Ingenious Parodies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/1717305967220-new-stylish-profiles-easy-downloads/"><u>[New] Stylish Profiles, Easy Downloads!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-swift-method-image-alchemy-into-engaging-youtube-thumbnail-pics/"><u>[New] Swift Method  Image Alchemy Into Engaging YouTube Thumbnail Pics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-youtube-broadcast-handbook/"><u>[New] The Ultimate YouTube Broadcast Handbook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-viewers-experience-the-impact-of-text-on-youtube-media/"><u>[New] Transforming Viewers' Experience  The Impact of Text on YouTube Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-mic-for-digital-content-makers/"><u>[New] Ultimate Mic for Digital Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-where-custom-visuals-for-youtube-live-and-breathe/"><u>[New] Where Custom Visuals for YouTube Live and Breathe</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-15-indispentic-tools-to-launch-your-youtube-career/"><u>[Updated] 2024 Approved  15 Indispentic Tools to Launch Your YouTube Career</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-8-evidenced-tools-for-video-propagation/"><u>[Updated] 2024 Approved  Best 8 Evidenced Tools for Video Propagation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-your-channels-moniker-youtube-naming-tools-and-tips/"><u>[Updated] 2024 Approved  Craft Your Channel's Moniker  YouTube Naming Tools and Tips</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-a-straightforward-path-learn-how-to-use-ez-grabber-effectively-for-2024/"><u>[Updated] A Straightforward Path  Learn How To Use EZ Grabber Effectively for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brief-video-explanations-all-inclusive-for-2024/"><u>[Updated] Brief Video Explanations, All-Inclusive for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-compreranal-guide-to-best-free-budget-friendly-lut-sources/"><u>[Updated] Compreranal Guide to Best Free, Budget-Friendly LUT Sources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-tips-for-harnessing-the-power-of-top-9-free-youtube-makers-for-2024/"><u>[Updated] Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-disparities-between-youtube-and-dailymention/"><u>[Updated] Exploring the Disparities Between YouTube and DailyMention</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dominate-search-results-essential-tips-for-optimizing-youtube-videos/"><u>[Updated] In 2024, Dominate Search Results  Essential Tips for Optimizing YouTube Videos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-video-narratives-top-5-captioning-approaches-for-tiktok-for-2024/"><u>[Updated] Mastering Video Narratives  Top 5 Captioning Approaches for TikTok for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pro-streamers-compendium-essential-livestream-software-and-hardware-for-success/"><u>[Updated] Pro Streamer's Compendium  Essential Livestream Software and Hardware for Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-guide-to-youtube-trailer-making-with-filmora/"><u>[Updated] Quick Guide to YouTube Trailer Making with Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-process-to-craft-memorable-gifs-from-any-youtube-video-on-devices/"><u>[Updated] Step-by-Step Process to Craft Memorable GIFs From Any YouTube Video on Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-filmmakers-handbook-secrets-to-stellar-youtube-video-production/"><u>[Updated] The Filmmaker's Handbook  Secrets to Stellar YouTube Video Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-your-creativity-anywhere-anyplace-these-6-best-free-online-platforms-for-youtube-short-video-downloading/"><u>[Updated] Unleash Your Creativity Anywhere, Anyplace  These 6 Best Free, Online Platforms for YouTube Short Video Downloading</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-androids-new-frontier-the-impact-of-kinemaster-app/"><u>2024 Approved  Android's New Frontier  The Impact of KineMaster App</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/werful-freegame-hashtags-for-dominating-youtube/"><u>30 Powerful FreeGame Hashtags for Dominating YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/advanced-color-correction-utilizing-luts-in-ae/"><u>Advanced Color Correction  Utilizing LUTs in AE</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-conquering-peaks-and-valleys-comparing-the-mightiest-gopros-b-and-sessions/"><u>In 2024, Conquering Peaks and Valleys  Comparing the Mightiest GoPros, B & Sessions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-effective-ways-to-watch-multiple-youtube-videos-at-one-time/"><u>In 2024, Effective Ways to Watch Multiple YouTube Videos at One Time</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-the-future-of-game-monitoring-advanced-alternatives-to-fbx/"><u>In 2024, The Future of Game Monitoring  Advanced Alternatives to FBX</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-x-audio-studio-pro-for-computer-users/"><u>In 2024, X-Audio Studio Pro for Computer Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-to-webm-the-10-best-youtube-to-webm-converters/"><u>In 2024, YouTube to WebM  The 10 Best YouTube to WebM Converters</u></a></li>
+<li><a href="https://games-able.techidaily.com/size-matters-in-home-computing-choosing-a-small-or-big-pc/"><u>Size Matters in Home Computing: Choosing a Small or Big PC</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tapping-into-youtubes-affiliate-income-streams-for-2024/"><u>Tapping Into YouTube's Affiliate Income Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/turning-time-on-its-ear-unique-approaches-to-reversed-youtube-content-for-2024/"><u>Turning Time on Its Ear  Unique Approaches to Reversed YouTube Content for 2024</u></a></li>
+</ul></div>

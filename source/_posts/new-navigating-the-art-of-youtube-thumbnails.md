@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating the Art of YouTube Thumbnails"
-date: 2024-06-05T04:15:32.245Z
-updated: 2024-06-06T04:15:32.245Z
+date: 2024-07-30T23:30:43.555Z
+updated: 2024-07-31T23:30:43.555Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/895e63c00991de11c3a5bb60d914f7ce63bcb7f1c
 
 # The Ultimate Guide to YouTube Thumbnails that Get Views
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,8 +45,14 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 
 Here are some examples of popular thumbnail styles.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -70,6 +79,9 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
@@ -131,6 +143,10 @@ You can make changes to the colors in your Spark thumbnail easily by selecting a
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
 Here are the top 10 best practices for creating effective YouTube thumbnails:
@@ -181,6 +197,9 @@ Alright, now that you know everything about YouTube thumbnails, go make one! Tel
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -199,3 +218,66 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-analyzing-channels-monetization-status-at-a-glance/"><u>[New] 2024 Approved  Analyzing Channels  Monetization Status at a Glance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audience-retention-the-key-to-a-great-youtube-conclusion/"><u>[New] 2024 Approved  Audience Retention  The Key to a Great YouTube Conclusion</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-create-enhance-and-share-with-top-10-free-drawing-programs-on-mac/"><u>[New] 2024 Approved  Create, Enhance & Share With Top 10 Free Drawing Programs on Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dissecting-youtubes-activities-post-uploading-videos/"><u>[New] 2024 Approved  Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earn-extra-your-guide-to-joining-the-youtube-premium-club/"><u>[New] 2024 Approved  Earn Extra  Your Guide to Joining the YouTube Premium Club</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-videos-innovative-youtube-editing-techniques-revealed/"><u>[New] 2024 Approved  Elevate Videos  Innovative YouTube Editing Techniques Revealed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-webcam-pro-step-by-step-recording-on-macbooks/"><u>[New] 2024 Approved  Webcam Pro  Step-by-Step Recording on MacBooks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-architects-crafting-fantasy-realms-for-marvel-for-2024/"><u>[New] Architects Crafting Fantasy Realms for Marvel for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-clear-shots-for-youtube-filmmakers-for-2024/"><u>[New] Clear Shots for YouTube Filmmakers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cultivating-a-unique-vibe-in-your-own-mukbang-content-for-2024/"><u>[New] Cultivating a Unique Vibe in Your Own Mukbang Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-11-best-free-youtube-name-generators-you-should-know/"><u>[New] In 2024, 11 Best Free YouTube Name Generators You Should Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audio-editing-wonders-for-youtube-filmmakers/"><u>[New] In 2024, Audio Editing Wonders for YouTube Filmmakers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-become-a-youtube-visionary-with-these-production-insights/"><u>[New] In 2024, Become a YouTube Visionary with These Production Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dominate-youtube-traffic-with-proficient-use-of-creator-studio/"><u>[New] In 2024, Dominate YouTube Traffic with Proficient Use of Creator Studio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[New] In 2024, Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-parrot-prowess-in-bebop-an-in-depth-critique/"><u>[New] In 2024, Parrot Prowess in Bebop – An In-Depth Critique</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-stream-friendly-free-tunes-vault-fb/"><u>[New] In 2024, Stream-Friendly Free Tunes Vault (FB)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-monetizing-videos-on-youtube-strategies-success/"><u>[New] Monetizing Videos on YouTube  Strategies Success</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-nvidias-easy-method-for-game-captures-for-2024/"><u>[New] NVIDIA's Easy Method for Game Captures for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-20-best-free-and-paid-gif-software-options/"><u>[New] The 20 Best Free and Paid GIF Software Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-best-youtube-channel-titles-a-must-have-guide-for-vloggers-limit-to-156-characters/"><u>[New] Unveiling the Best Youtube Channel Titles  A Must-Have Guide for Vloggers (Limit to 156 Characters)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-shorts-and-tiktok-choose-the-one-for-your-need/"><u>[New] YouTube Shorts & Tiktok - Choose the One for Your Need</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-youtube-tips-for-teachers-for-2024/"><u>[Updated] 10 YouTube Tips for Teachers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-9-powerful-methods-to-make-money-on-your-youtube-shorts-for-2024/"><u>[Updated] 9 Powerful Methods to Make Money on Your YouTube Shorts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-capture-clarity-top-10-photo-lens-selections/"><u>[Updated] Capture Clarity  Top 10 Photo Lens Selections</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-diving-into-youtube-creation-and-making-it-monetary-for-2024/"><u>[Updated] Diving Into YouTube  Creation & Making It Monetary for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-editing-excellence-the-ultimate-guide-to-top-notebooks-for-2024/"><u>[Updated] Editing Excellence  The Ultimate Guide to Top Notebooks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-beauty-brows-to-perfect-portraits-crafting-your-cosmetic-chanel/"><u>[Updated] From Beauty Brows to Perfect Portraits  Crafting Your Cosmetic Chanel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-1-5-best-url-trimmer-tools-for-youtube-videos/"><u>[Updated] In 2024, 1-5 Best URL Trimmer Tools for YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-eye-catching-youtube-most-followed-channels/"><u>[Updated] In 2024, Eye-Catching YouTube  Most Followed Channels</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-key-insights-on-market-research-for-effective-business-decisions/"><u>[Updated] Key Insights on Market Research for Effective Business Decisions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-make-every-sound-count-comprehensive-guide-to-free-youtube-video-transcriptions/"><u>[Updated] Make Every Sound Count  Comprehensive Guide to Free YouTube Video Transcriptions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-multi-platform-mastery-delivering-content-to-youtube-and-others/"><u>[Updated] Multi-Platform Mastery  Delivering Content to YouTube & Others</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pursuing-popularity-on-platforms-elevating-your-youtube-profile/"><u>[Updated] Pursuing Popularity on Platforms  Elevating Your Youtube Profile</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rectified-invisible-shortcut-on-youtube/"><u>[Updated] Rectified  Invisible Shortcut on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-shoot-cool-vids-from-scratch-with-your-mac-newcomers-guide/"><u>[Updated] Shoot Cool Vids From Scratch with Your Mac, Newcomers Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sonic-journey-top-pick-free-apps-downloading-youtube-tunes-to-mobile/"><u>[Updated] Sonic Journey  Top Pick Free Apps Downloading YouTube Tunes to Mobile</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-income-impact-of-sharing-on-youtube-shorts/"><u>[Updated] The Income Impact of Sharing on YouTube Shorts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-platform-prowess-twitch-vs-youtube-comparison/"><u>[Updated] The Platform Prowess  Twitch vs YouTube Comparison</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-toolbox-what-every-youtube-newbie-needs/"><u>[Updated] The Ultimate Toolbox  What Every YouTube Newbie Needs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleashing-creativity-secrets-of-unique-yt-short-content/"><u>[Updated] Unleashing Creativity  Secrets of Unique YT Short Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-essential-methods-streaming-audio-recording-made-easy-online/"><u>2024 Approved  Essential Methods  Streaming Audio Recording Made Easy Online</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-the-most-attractive-game-ready-gaming-equipment-for-under-100/"><u>2024 Approved  The Most Attractive Game-Ready Gaming Equipment for Under $100</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-overview-of-the-quickest-chroma-key-tricks-for-2024/"><u>Brief Overview of the Quickest Chroma Key Tricks for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-honor-x50i-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Honor X50i</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-a-step-into-tomorrow-installation-guide-for-windows-11/"><u>In 2024, A Step Into Tomorrow  Installation Guide for Windows 11</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expertly-tailored-shots-with-10-initial-free-customizable-lut-packages/"><u>In 2024, Expertly Tailored Shots with 10 Initial Free, Customizable LUT Packages</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-top-5-best-mac-screen-seize-tips-char-limit-156/"><u>In 2024, Top 5 Best Mac Screen Seize Tips (Char Limit  156)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-creators-guide-15-unrestricted-music-archives/"><u>In 2024, YouTube Creators' Guide  15 Unrestricted Music Archives</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-fcp-hall-of-fame-10-iconic-films-edited-with-final-cut-pro/"><u>New 2024 Approved FCP Hall of Fame 10 Iconic Films Edited with Final Cut Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-blueprint-for-channel-empowerment-via-studio-mastery-for-2024/"><u>The Blueprint for Channel Empowerment via Studio Mastery for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-essential-guide-to-win10s-video-grabbing-software/"><u>The Essential Guide to Win10's Video Grabbing Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-creativity-on-screen-discover-the-best-reactions-for-2024/"><u>Unleash Creativity on Screen  Discover the Best Reactions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unmasking-youtubes-covert-video-collections-for-2024/"><u>Unmasking YouTube’s Covert Video Collections for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-editing-mastery-leveraging-youtube-then-expanding-beyond-for-2024/"><u>Video Editing Mastery  Leveraging YouTube, Then Expanding Beyond for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-realme-c51-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Realme C51? | Dr.fone</u></a></li>
+</ul></div>

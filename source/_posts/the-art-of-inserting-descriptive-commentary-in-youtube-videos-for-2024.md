@@ -1,7 +1,7 @@
 ---
 title: "The Art of Inserting Descriptive Commentary in YouTube Videos for 2024"
-date: 2024-06-05T05:11:16.042Z
-updated: 2024-06-06T05:11:16.042Z
+date: 2024-07-31T01:04:50.439Z
+updated: 2024-08-01T01:04:50.439Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
 # How to Add YouTube Annotations and Cards?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,17 +48,32 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
 * Click on the "Video Manager" tab
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -67,6 +85,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -75,6 +96,9 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -134,3 +158,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-identity-made-simple-with-these-top-11-zero-cost-tools/"><u>[New] 2024 Approved  Channel Identity Made Simple with These Top 11 Zero-Cost Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enthralling-epics-essential-channel-building-tactics/"><u>[New] 2024 Approved  Enthralling Epics  Essential Channel-Building Tactics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-boosting-visuals-mastering-youtubes-video-enhancement-tools/"><u>[New] Boosting Visuals  Mastering YouTube's Video Enhancement Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-haptic-realities-now/"><u>[New] Haptic Realities Now</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-ideal-tools-for-group-online-communication/"><u>[New] Ideal Tools for Group Online Communication</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-15plus-best-iphoneipad-video-editing-tools-in-free-market/"><u>[New] In 2024, 15+ Best iPhone/iPad Video Editing Tools in Free Market</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-beautys-buzz-youtube-gurus-predicted/"><u>[New] In 2024, Beauty's Buzz  YouTube Gurus Predicted</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>[New] In 2024, Crafting a Music Career  15 Essential Video Tutorials for Artists</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-sonicarchive-pro-downloads-and-analysis/"><u>[New] In 2024, SonicArchive Pro Downloads & Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-understanding-fair-use-and-infringement-on-youtube/"><u>[New] Understanding Fair Use and Infringement on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-potential-mastering-advertising-partnerships-with-famebit/"><u>[New] Unleashing Potential  Mastering Advertising Partnerships with FameBit</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-budget-friendly-video-stock-sites/"><u>[Updated] 2024 Approved  Best Budget-Friendly Video Stock Sites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-your-visual-storytelling-key-strategies-for-solo-videos/"><u>[Updated] 2024 Approved  Boost Your Visual Storytelling  Key Strategies for Solo Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails/"><u>[Updated] 2024 Approved  Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-sophisticated-screenshot-options-for-gamers/"><u>[Updated] 2024 Approved  Sophisticated Screenshot Options for Gamers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-cyber-self-portraiture-creating-a-caricatured-emblem-for-2024/"><u>[Updated] Cyber Self-Portraiture  Creating a Caricatured Emblem for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-editors-workshop-enhancing-your-youtube-video-visibility-for-2024/"><u>[Updated] Editor's Workshop  Enhancing Your Youtube Video Visibility for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-immediate-youtube-audience-insights/"><u>[Updated] Immediate YouTube Audience Insights</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-hash-tags-that-catapult-you-to-6k-views-on-youtube/"><u>[Updated] In 2024, Hash Tags That Catapult You to 6K Views on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-mastering-youtube-pace-control-top-tips-for-slower-views-48-chars/"><u>[Updated] In 2024, Mastering YouTube Pace Control  Top Tips for Slower Views (48 Chars)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-inalterable-action-plan-to-expunge-youtube-shorts/"><u>[Updated] Inalterable Action Plan to Expunge YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-reverse-viewing-crafts-creative-youtube-video-methods/"><u>[Updated] Reverse Viewing Crafts  Creative Youtube Video Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-your-creativity-with-youtubes-green-screens/"><u>[Updated] Unleash Your Creativity with YouTube's Green Screens</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-worth-of-instagram-video-selfie-authenticity/"><u>2024 Approved  The Worth of Instagram Video Selfie Authenticity</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-iphone-15-activation-lock-without-apple-id-by-drfone-ios-unlock-ios-unlock/"><u>Bypass iPhone 15 activation lock without Apple ID</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/camstudio-live-streaming-and-screen-capturing-review-for-2024/"><u>CamStudio Live Streaming & Screen Capturing Review for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-htc-u23-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on HTC U23 Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-honor-100-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Honor 100 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-changing-voices-technology-for-youtube-artists-for-2024/"><u>Premium Changing Voices Technology for YouTube Artists for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/rotating-videos-made-simple-with-vlc-player-tricks-for-2024/"><u>Rotating Videos Made Simple with VLC Player Tricks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/smart-strategies-to-enhance-your-video-with-customized-end-screen-cards-for-2024/"><u>Smart Strategies to Enhance Your Video with Customized End Screen Cards for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tactics-to-increase-youtube-video-engagement-and-views-for-2024/"><u>Tactics to Increase YouTube Video Engagement and Views for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-dimensions-decoded-a-comprehensive-ratio-handbook-for-2024/"><u>YouTube's Dimensions Decoded  A Comprehensive Ratio Handbook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/zero-cost-techniques-for-video-and-text-combination-for-2024/"><u>Zero-Cost Techniques for Video and Text Combination for 2024</u></a></li>
+</ul></div>

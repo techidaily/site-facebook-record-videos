@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Quick Cover Art Crafting for Fighting Games"
-date: 2024-06-05T03:39:09.408Z
-updated: 2024-06-06T03:39:09.408Z
+date: 2024-07-30T22:29:25.418Z
+updated: 2024-07-31T22:29:25.418Z
 tags:
   - ai video
   - ai youtube
@@ -32,18 +32,30 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 **Step 05:** Drag and drop the screenshot into the timeline.
@@ -56,10 +68,16 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 **Step 08:** It will remove the background of the screenshot.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
@@ -68,6 +86,9 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
@@ -102,3 +123,39 @@ Follow @Ollie Mattison
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-comprehensive-list-of-8-prime-youtube-to-avi-tools/"><u>[New] 2024 Approved  Comprehensive List of 8 Prime YouTube-to-AVI Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-tech-meets-creativity-top-12-camera-picks-for-vloggers/"><u>[New] 2024 Approved  Cutting-Edge Tech Meets Creativity  Top 12 Camera Picks for Vloggers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-asmr-production-101-essential-strategies-for-cutting-edge-video-making-for-2024/"><u>[New] ASMR Production 101  Essential Strategies for Cutting-Edge Video Making for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-viewer-engagement-with-smart-end-screen-techniques-for-2024/"><u>[New] Enhancing Viewer Engagement with Smart End Screen Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tools-for-youtube-live-broadcasting-reveal-the-7-key-apps-for-2024/"><u>[New] Essential Tools for YouTube LIVE Broadcasting  Reveal the 7 Key Apps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-deciphering-the-world-of-youtube-media-conglomerates/"><u>[New] In 2024, Deciphering the World of YouTube Media Conglomerates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissecting-digital-dynamics-comparative-channel-analysis/"><u>[New] In 2024, Dissecting Digital Dynamics  Comparative Channel Analysis</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-zoom-meetings-for-beginners-a-comprehensive-introduction-guide/"><u>[New] In 2024, Zoom Meetings for Beginners  A Comprehensive Introduction Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-business-of-blogging-and-earning-on-youtube-platform/"><u>[New] The Business of Blogging and Earning on YouTube Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-pathway-to-lyrical-masterpieces-via-lyric-video-maker-software/"><u>[New] The Pathway to Lyrical Masterpieces via Lyric Video Maker Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-charm-personalized-youtube-channel-url-essentials/"><u>[New] Unlock Your Charm  Personalized YouTube Channel URL Essentials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-1-choice-transcribe-youtube-videos-in-a-flash-for-2024/"><u>[Updated] 1 Choice  Transcribe YouTube Videos in a Flash for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-from-mundane-to-marvelous-proven-methods-to-record-everyday-life-and-adventures-in-sims-4/"><u>[Updated] 2024 Approved  From Mundane to Marvelous  Proven Methods to Record Everyday Life and Adventures in Sims 4</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-template-wizardry-a-blueprint-for-creating-viral-tiktoks/"><u>[Updated] 2024 Approved  Template Wizardry  A Blueprint for Creating Viral TikToks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cross-media-content-flow-from-youtube-to-thirtyplus-others-for-2024/"><u>[Updated] Cross-Media Content Flow From YouTube to Thirty+ Others for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-does-rapid-subscription-improve-video-watching-in-2024/"><u>[Updated] Does Rapid Subscription Improve Video Watching, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cut-buffering-time-turn-on-av1-in-youtube-settings/"><u>[Updated] In 2024, Cut Buffering Time – Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-audience-excitement-with-top-ideas/"><u>[Updated] In 2024, Elevating Audience Excitement with Top Ideas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pair-off-in-perfection-7-stunning-wedding-films-from-youtube-plus-vimeo/"><u>[Updated] Pair Off in Perfection  7 Stunning Wedding Films From Youtube + Vimeo</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-safeguarding-against-scams-as-you-seek-to-amass-one-million-youtube-watches/"><u>[Updated] Safeguarding Against Scams as You Seek to Amass One Million YouTube Watches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-social-media-live-war-fb-live-and-yt-live-vs-twitter-spaces/"><u>[Updated] Social Media Live War  FB LIVE & YT Live Vs. Twitter Spaces</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-yoga-youtube-channel-to-help-you-stay-fit/"><u>[Updated] Top 10 Yoga YouTube Channel to Help You Stay Fit</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harnessing-the-power-of-metaverse-humor-creation/"><u>2024 Approved  Harnessing the Power of Metaverse Humor Creation</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Realme Narzo N53 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/discover-variety-50-complimentary-youtube-banners-available-in-2024/"><u>Discover Variety – 50 Complimentary YouTube Banners Available, In 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gif-mastery-10-key-elements-to-perfect-creation-for-2024/"><u>GIF Mastery  10 Key Elements to Perfect Creation for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-poco-c50-by-drfone-android/"><u>How to Show Wi-Fi Password on Poco C50</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-advanced-techniques-for-iphone-hdr-captures/"><u>In 2024, Advanced Techniques for iPhone HDR Captures</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-from-twitter-video-snippets-to-lively-animated-gifs/"><u>In 2024, From Twitter Video Snippets to Lively Animated GIFs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vlogging-hurdles-how-to-triumph-over-ten-common-obstacles/"><u>In 2024, Vlogging Hurdles  How to Triumph Over Ten Common Obstacles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premier-8-edits-suites-for-linux-buffs-for-2024/"><u>Premier 8 Edits Suites for Linux Buffs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/sportscasting-your-pathway-to-highlight-videos-for-2024/"><u>Sportscasting  Your Pathway to Highlight Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-ultimate-list-youtubes-premier-mp3-extractors-for-2024/"><u>Unveiling the Ultimate List  YouTube's Premier MP3 Extractors for 2024</u></a></li>
+</ul></div>

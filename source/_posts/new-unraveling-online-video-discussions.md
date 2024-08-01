@@ -1,7 +1,7 @@
 ---
 title: "[New] Unraveling Online Video Discussions"
-date: 2024-06-05T06:52:24.814Z
-updated: 2024-06-06T06:52:24.814Z
+date: 2024-07-31T03:55:43.348Z
+updated: 2024-08-01T03:55:43.348Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/6b81d20b1d6e26d0457009bbfe739603019d02e6b
 
 # How to Search Comments on YouTube Quickly?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,6 +34,9 @@ Are you trying to search for something on a document or a web page? You know how
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -57,10 +63,17 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -99,6 +112,9 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -138,6 +154,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -154,3 +173,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-affordable-methods-for-video-and-text-synergy-for-2024/"><u>[New] Affordable Methods for Video and Text Synergy for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-agricultural-bliss-the-10-perfect-gaming-friends-for-farmers-for-2024/"><u>[New] Agricultural Bliss  The 10 Perfect Gaming Friends for Farmers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-contrasting-youtubes-ownership-norms-with-cc-ideals-for-2024/"><u>[New] Contrasting YouTube's Ownership Norms with CC Ideals for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-video-visibility-using-creator-studio-wisdom-for-2024/"><u>[New] Enhance Video Visibility Using Creator Studio Wisdom for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-grasp-free-to-use-vimeo-editing-techniques/"><u>[New] Grasp Free-to-Use Vimeo Editing Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-adapting-your-favorite-songs-from-spotify-to-youtube-music-service/"><u>[New] In 2024, Adapting Your Favorite Songs From Spotify to YouTube Music Service</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-upgrade-made-simple-embrace-tubebuddy-techniques/"><u>[New] In 2024, Channel Upgrade Made Simple - Embrace TubeBuddy Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-cool-youtube-previews-in-imovie-easily/"><u>[New] In 2024, Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-effortless-shuffle-of-your-youtube-playlists/"><u>[New] In 2024, Effortless Shuffle of Your YouTube Playlists</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-top-techniques-for-captivating-instagram-image-highlights/"><u>[New] In 2024, Top Techniques for Captivating Instagram Image Highlights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-master-the-map-locating-youtube-studio-content-architects-toolbox/"><u>[New] Master the Map  Locating YouTube Studio, Content Architect’s Toolbox</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-shorts-for-profit-essential-requirements-and-potential-earnings/"><u>[New] Mastering Youtube Shorts for Profit  Essential Requirements and Potential Earnings</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mixed-reality-shopping-showcase/"><u>[New] Mixed Reality Shopping Showcase</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-streamline-your-gaming-memories-easy-minecraft-recordings-on-macs-for-2024/"><u>[New] Streamline Your Gaming Memories  Easy Minecraft Recordings on Macs for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-10-essential-free-photo-layering-tools-on-iosandroid/"><u>[New] Top 10 Essential Free Photo Layering Tools on iOS/Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-potential-the-art-of-youtube-seo-keywords/"><u>[New] Unleashing Potential  The Art of YouTube SEO Keywords</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-views-with-optimal-thumbnail-design/"><u>[New] Unlocking Views with Optimal Thumbnail Design</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-virtual-captures-unlocked-for-2024/"><u>[New] Virtual Captures Unlocked for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-5-top-3d-design-apps-for-engaging-youtube-beginnings/"><u>[Updated] 2024 Approved  5 Top 3D Design Apps for Engaging YouTube Beginnings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-achieve-seamless-transitions-premiere-videos-on-youtube/"><u>[Updated] 2024 Approved  Achieve Seamless Transitions  Premiere Videos on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-convert-and-share-with-ease-selecting-the-top-flv-to-youtube-applications/"><u>[Updated] 2024 Approved  Convert & Share with Ease  Selecting the Top FLV-to-YouTube Applications</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-cost-effective-youtube-closure-elements/"><u>[Updated] 2024 Approved  Creating Cost-Effective YouTube Closure Elements</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-delving-into-the-world-of-mukbang-videos/"><u>[Updated] 2024 Approved  Delving Into the World of Mukbang Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-effortless-device-integration-with-obs-for-streaming-on-pcmac/"><u>[Updated] 2024 Approved  Effortless Device Integration with OBS for Streaming on PC/Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-7-apps-for-high-quality-youtube-live-streaming-on-iphones-and-android/"><u>[Updated] 2024 Approved  Essential 7 Apps for High-Quality YouTube Live Streaming on iPhones & Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-counteract-vibration-for-clear-captures-for-2024/"><u>[Updated] Counteract Vibration for Clear Captures for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-eternal-banishment-of-youtubes-quick-clips-for-2024/"><u>[Updated] Eternal Banishment of YouTube's Quick Clips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-comic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>[Updated] In 2024, Comic Capers  Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-customizing-your-channel-icon-banner-and-thumbnail-ideas/"><u>[Updated] In 2024, Customizing Your Channel  Icon, Banner & Thumbnail Ideas</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-inverted-video-playback-on-android-made-simple/"><u>[Updated] Inverted Video Playback on Android Made Simple</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-link-up-titles-video-upload-to-twittertumblr-for-2024/"><u>[Updated] Link-Up Titles  Video Upload to Twitter/Tumblr for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-creation-of-fortnite-visuals/"><u>[Updated] Quick Creation of Fortnite Visuals</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-newbies-guide-to-av1-codec/"><u>[Updated] The Newbie's Guide to AV1 Codec</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtubes-inner-workings-your-path-to-success/"><u>[Updated] Unlocking YouTube's Inner Workings  Your Path to Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unveiling-the-secrets-of-successful-youtube-videos/"><u>[Updated] Unveiling the Secrets of Successful YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-uploading-finesse-imovie-videos-meeting-youtube-standards/"><u>[Updated] Uploading Finesse  IMovie Videos Meeting YouTube Standards</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-short-film-script-example/"><u>2024 Approved  Short Film Script Example</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-top-rated-best-webcam-mounting-solutions/"><u>2024 Approved  Top-Rated  Best Webcam Mounting Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-visual-storytelling-at-its-finest-youtube-trailers-through-filmoras-lens/"><u>2024 Approved  Visual Storytelling at Its Finest  YouTube Trailers Through Filmora's Lens</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/blending-harmonies-in-a-social-media-slot-for-2024/"><u>Blending Harmonies in a Social Media Slot for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/essential-tips-for-modernizing-msi-boards-on-legacy-windows/"><u>Essential Tips for Modernizing MSI Boards on Legacy Windows</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-disabled-apple-iphone-6-how-to-unlock-a-disabled-apple-iphone-6-by-drfone-ios/"><u>In 2024, Disabled Apple iPhone 6 How to Unlock a Disabled Apple iPhone 6?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-full-spectrum-review-exploring-digital-performances-evolution/"><u>In 2024, Full Spectrum Review  Exploring Digital Performance's Evolution</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-innovating-your-image-tips-for-crafting-irresistible-youtube-live-graphics/"><u>In 2024, Innovating Your Image  Tips for Crafting Irresistible YouTube Live Graphics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-linking-youtubes-harmony-to-imovie-clips-effortlessly/"><u>In 2024, Linking Youtube's Harmony to iMovie Clips Effortlessly</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-free-game-downloads-the-top-10-websites-you-need-to-know/"><u>New Free Game Downloads The Top 10 Websites You Need to Know</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reclaiming-bygone-broadcast-materials/"><u>Reclaiming Bygone Broadcast Materials</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-vivo-s17e-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Vivo S17e</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-tecno-spark-20-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/visionedit-ace-for-2024/"><u>VisionEdit Ace for 2024</u></a></li>
+</ul></div>

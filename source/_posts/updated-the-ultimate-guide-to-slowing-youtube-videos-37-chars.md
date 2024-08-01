@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Guide to Slowing YouTube Videos (37 Chars)"
-date: 2024-06-05T04:32:56.391Z
-updated: 2024-06-06T04:32:56.391Z
+date: 2024-07-31T00:00:16.215Z
+updated: 2024-08-01T00:00:16.215Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,9 @@ Have you ever wanted to learn something from a YouTube video, but found that the
 * [Part 2: Add Slow Motion with Wondershare Filmora (originally Wondershare Video Editor)](#part2)
 * [Part 3: Add Slow Motion with YouTube Video Editor](#part1)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## Part 1: YouTube Slow Down: How to Play YouTube Videos in Slow Motion
 
 While, you can now change the speed of any YouTube videos easily and watch YouTube videos in slow motion in a few steps. Below is how to slow down YouTube Videos:
@@ -37,6 +40,9 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 * Open the video in YouTube
 * Click the **Settings icon** on the bottom right and then you will see Autoplay, Annotations, Speed, Subtitles, and Quality options. By default, the speed is set to Normal. Click **Speed** and open the speed change options. The speed options are in multiples.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ change youtube speed ](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
 
 * Choose the target video speed from 0.25x, 0.5x, 0.75x to slow down the play back speed of the YouTube video. You can also select 1.25x, 1.5x, 1.75x or 2x to fast forward this YouTube video depending on how fast or slow you want the playback of the YouTube video to be.
@@ -64,6 +70,9 @@ After downloading YouTube videos on hard disk, you can now import it to this You
 
 On the Timeline, click on the added YouTube video and select   **Speed and Duration** to open up the video custom speed window. You will see the Speed option, Duration, Reverse Speed and Ripple Edit options. and the speed number indicates fast or slow motion. To slow down the YouTube video, drag the speed slider to left and you get a slow down version of the YouTube video. You can slow down the YouTube video in 0.01x. Click the OK button to save the slow motion settings and then click the Play button in the preview windows to have a look at the new YouTube slow down video. You can also change the duration of the YouTube video to change the YouTube video speed. For example, if you want to slow down a 30-second YouTube video to half speed, you can just enter the duration to 60 seconds to get a slow down motion effect.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ YouTube Video slow down ](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
 
 With Filmora youtube video editor, you can also add the slow motion effects to some certain clips of the video footage. What you need to do is use the split feature to split the video first. Learn more details about [How to Cut / Split / Trim Videos without Quality Loss](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -72,14 +81,23 @@ With Filmora youtube video editor, you can also add the slow motion effects to s
 
 You could continue editing YouTube videos. When all done, click "Export" to save the result. You can save YouTube video in any popular formats on the computer by clicking "Format". If you want to play YouTube video on iPod, iPhone, iPad, click "Device" and select your device. You can also share the YouTube video up to YouTube or Vimeo directly or burn YouTube video to DVD.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Export](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 See, with Filmora video editor you can slow down YouTube videos with ease, what’s more, you can also apply reverse effects to play Youtube videos backwards. Download and try this YouTube Slow motion effect and you will master how to slow down YouTube videos.
 
 **Related:**[How to Make Slow/Fast Motion Videos](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Slow down YouTube videos with Slow Motion in YouTube Video Editor
 
 **Updated:** From 20th September 2017 users will no longer be able to use the complimentary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide.
@@ -118,3 +136,49 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-filmmakers-companion-the-journey-from-capturing-to-post-production-of-360-videos/"><u>[New] 2024 Approved  A Filmmaker's Companion  The Journey From Capturing to Post-Production of 360 Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-angles-of-perspective-youtubes-path-to-dynamic-video-editing/"><u>[New] 2024 Approved  Angles of Perspective  YouTube's Path to Dynamic Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-briefvideo-creator/"><u>[New] 2024 Approved  BriefVideo Creator</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-celebratory-moments-captured-a-list-of-the-most-beautiful-wedding-videos-8/"><u>[New] 2024 Approved  Celebratory Moments Captured  A List of the Most Beautiful Wedding Videos (8)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decrypting-youtube-live-thumbnails-for-success/"><u>[New] 2024 Approved  Decrypting YouTube Live Thumbnails for Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-eye-opening-list-of-the-top-12-yt-gamers-intros-freepaid-sessions-for-2024/"><u>[New] Eye-Opening List of the Top 12 YT Gamers' Intros (Free/Paid Sessions) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software/"><u>[New] In 2024, Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-battle-of-broadcads-vimeo-and-youtubes-face-off/"><u>[New] The Battle of Broadcads  Vimeo & YouTube's Face-Off</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-easy-path-to-professional-looking-youtube-shorts/"><u>[New] The Easy Path to Professional-Looking YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-triumph-in-the-digital-arena-discovering-youtubes-top-five-tactics/"><u>[New] Triumph in the Digital Arena - Discovering YouTube’s Top Five Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-top-15-no-cost-audio-archives-for-content-makers/"><u>[New] Unveiling the Top 15 No-Cost Audio Archives for Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-professional-guide-to-youtube-editing/"><u>[Updated] 2024 Approved  Cutting Edge  Professional Guide to YouTube Editing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-techniques-for-swiftly-finding-deleted-reddit-contributions/"><u>[Updated] 2024 Approved  Techniques for Swiftly Finding Deleted Reddit Contributions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-delightful-no-cost-access-to-youtubes-nine-full-length-yule-celebrations-for-2024/"><u>[Updated] Delightful, No-Cost Access to YouTube's Nine Full-Length Yule Celebrations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters-for-2024/"><u>[Updated] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-7-ultimate-live-streaming-apps-for-iphone-and-android-users-on-youtube/"><u>[Updated] In 2024, 7 Ultimate Live Streaming Apps for iPhone and Android Users on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-mobile-film-and-picture-capture-tools-for-iphones-and-androids/"><u>[Updated] In 2024, Best Mobile Film & Picture Capture Tools for iPhones & Androids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-choosing-your-go-to-youtube-video-downloaders-on-android-platform/"><u>[Updated] In 2024, Choosing Your Go-To YouTube Video Downloaders on Android Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income/"><u>[Updated] In 2024, Creating Cash Flow on YouTube  An Ad-Free Blueprint for Income</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-video-pace-youtube-via-desktops-and-phones/"><u>[Updated] In 2024, Enhance Video Pace - YouTube via Desktops & Phones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-templates-and-makers-insights-for-end-credits/"><u>[Updated] In 2024, Essential Templates & Makers' Insights for End Credits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-tips-for-crafting-top-notch-video-hashtags/"><u>[Updated] In 2024, Expert Tips for Crafting Top-Notch Video Hashtags</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-social-snapshot-an-all-encompassing-2023-vlog-collection/"><u>[Updated] In 2024, Social Snapshot  An All-Encompassing 2023 Vlog Collection</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unleashing-widespread-engagement-on-facebook/"><u>[Updated] In 2024, Unleashing Widespread Engagement on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-income-in-the-cloud-making-money-on-youtube-without-relying-on-ads/"><u>[Updated] Income in the Cloud  Making Money on YouTube Without Relying on Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximize-views-with-these-top-rated-keyword-analysis-tools/"><u>[Updated] Maximize Views with These Top-Rated Keyword Analysis Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-optimal-viewing-and-audio-top-webcams-for-podcast-creators-for-2024/"><u>[Updated] Optimal Viewing & Audio  Top Webcams for Podcast Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-perfect-timekeeping-a-guide-to-adding-timestamps-in-youtube-links/"><u>[Updated] Perfect Timekeeping  A Guide to Adding Timestamps in YouTube Links</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-regular-payment-structures-in-youtuber-economics/"><u>[Updated] Regular Payment Structures in YouTuber Economics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sparking-your-content-strategy-crafting-a-youtube-channel-from-scratch/"><u>[Updated] Sparking Your Content Strategy  Crafting a YouTube Channel From Scratch</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-audience-engagement-emulate-your-idols-online/"><u>[Updated] The Art of Audience Engagement  Emulate Your Idols Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-utilizing-free-clip-art-for-graphic-designs/"><u>[Updated] Utilizing Free Clip Art for Graphic Designs</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-empower-your-journey-through-cinemas-best-10-titles/"><u>2024 Approved  Empower Your Journey Through Cinema's Best 10 Titles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essentials-navigating-whatsapp-call-functionality/"><u>2024 Approved  The Essentials  Navigating WhatsApp Call Functionality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-tiny-snippets-deciphered-important-facts/"><u>2024 Approved  Tiny Snippets Deciphered  Important Facts!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cross-social-smiles-top-meme-picks-on-reddit-and-twitter-for-2024/"><u>Cross-Social Smiles  Top Meme Picks on Reddit & Twitter for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-amass-a-million-in-moments-join-instagrams-elite/"><u>In 2024, Amass a Million in Moments  Join Instagram's Elite</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reconstructing-compromised-avi-mov-and-mp4-with-qt/"><u>Reconstructing Compromised AVI, MOV & MP4 with QT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-building-a-youtube-empire-from-scratch-for-2024/"><u>Step by Step  Building a YouTube Empire From Scratch for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-self-recording-improving-your-youtube-presence-for-2024/"><u>The Art of Self-Recording  Improving Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/under-1k-discover-best-4k-mirrorless-choices/"><u>Under $1K? Discover Best 4K Mirrorless Choices</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-6s-plus-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From iPhone 6s Plus?</u></a></li>
+</ul></div>

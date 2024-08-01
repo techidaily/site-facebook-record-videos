@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Comment Management  Turn It On or Off\""
-date: 2024-06-05T04:55:39.629Z
-updated: 2024-06-06T04:55:39.629Z
+date: 2024-07-31T00:38:35.906Z
+updated: 2024-08-01T00:38:35.906Z
 tags:
   - ai video
   - ai youtube
@@ -38,12 +38,18 @@ If you don’t want any comments on any of the videos that you publish, you must
 
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 #### Step 3: Turn Off Comments
@@ -62,6 +68,9 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 #### 3\. Set Comment Allowance for Videos
@@ -90,6 +99,18 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -108,6 +129,9 @@ Hover the mouse over the target video in the right window, and click the **Detai
 
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
@@ -140,6 +164,9 @@ That depends on the nature of the comments. For instance, if you modify the sett
 
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -156,3 +183,41 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-tutorial-for-adding-vintage-touches-instagram-filters-on-existing-media/"><u>[New] A Tutorial for Adding Vintage Touches  Instagram Filters on Existing Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieving-prominence-in-online-gaming-content-for-2024/"><u>[New] Achieving Prominence in Online Gaming Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-proficient-content-for-short-form-video-best-edits-reviewed-for-2024/"><u>[New] Craft Proficient Content for Short-Form Video  Best Edits Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-creating-engaging-and-memorable-youtube-channel-graphics-for-2024/"><u>[New] Creating Engaging and Memorable YouTube Channel Graphics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-defeat-synthetic-followers-for-true-popularity-peak-for-2024/"><u>[New] Defeat Synthetic Followers for True Popularity Peak for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-facesavedownloader-suite-mobile-pc-for-2024/"><u>[New] FaceSaveDownloader Suite (Mobile, PC) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-diy-youtube-intros-and-ends-without-breaking-the-bank/"><u>[New] In 2024, DIY YouTube Intros & Ends Without Breaking the Bank</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easily-download-specific-youtube-sections/"><u>[New] In 2024, Easily Download Specific YouTube Sections</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-effortless-downloads-at-zero-cost-find-the-top-20-tools-for-youtube-sound-ripping/"><u>[New] In 2024, Effortless Downloads at Zero Cost  Find the Top 20 Tools for YouTube Sound Ripping</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-post-a-vimeo-video-on-instagram/"><u>[New] In 2024, How to Post a Vimeo Video on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-influence-unleashed-instas-most-stellar-personalities-ranked/"><u>[New] In 2024, Influence Unleashed  Insta’s Most Stellar Personalities Ranked</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-masterclass-youtube-music-arrangement/"><u>[New] Masterclass  YouTube Music Arrangement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>[New] Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-perfect-your-video-edits-step-by-step-on-youtube-cutting/"><u>[New] Perfect Your Video Edits  Step-by-Step on YouTube Cutting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-years-biggest-beauty-influencers-on-youtube/"><u>[New] Year's Biggest Beauty Influencers on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-elites-creator-conclave/"><u>[New] YouTube Elites  Creator Conclave</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-bandicam-reconnaissance-a-comprehensive-review-of-its-features/"><u>[Updated] 2024 Approved  Bandicam Reconnaissance  A Comprehensive Review of Its Features</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-practices-for-youtube-card-implementation/"><u>[Updated] 2024 Approved  Best Practices for YouTube Card Implementation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-breakthrough-youtube-success-essential-tips-from-creator-studio-guide/"><u>[Updated] 2024 Approved  Breakthrough YouTube Success  Essential Tips From Creator Studio Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-mastering-tweeted-videos-on-facebooks-networks/"><u>[Updated] 2024 Approved  Mastering Tweeted Videos on Facebooks Networks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-capture-tips-for-professional-sound-recording-for-2024/"><u>[Updated] Cutting Edge Capture  Tips for Professional Sound Recording for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-step-by-step-approach-to-ad-revenue-in-youtube-videos/"><u>[Updated] In 2024, A Step-by-Step Approach to Ad Revenue in YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-effortless-mp3-conversion-from-youtube-for-mac-users/"><u>[Updated] In 2024, Effortless MP3 Conversion From YouTube for Mac Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-asmr-channels-for-auditory-delight/"><u>[Updated] Prime ASMR Channels for Auditory Delight</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-mediameld-mixer/"><u>2024 Approved  MediaMeld Mixer</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-unique-360-degree-videos-on-an-iphone/"><u>Crafting Unique 360-Degree Videos on an iPhone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/create-dramatic-videos-a-beginners-guide-to-slow-motion-in-windows-live-movie-maker-for-2024/"><u>Create Dramatic Videos A Beginners Guide to Slow Motion in Windows Live Movie Maker for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-rewind-to-save-incorporating-80s-vhs-in-todays-cinematic-edits/"><u>From Rewind to Save  Incorporating 80S VHS in Today's Cinematic Edits</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-motorola-edge-40-pro-by-drfone-android/"><u>How to Bypass FRP from Motorola Edge 40 Pro?</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/how-to-react-printer-disconnects-during-print-job/"><u>How To React: Printer Disconnects During Print Job</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-distinctive-fb-video-aspects/"><u>In 2024, Distinctive FB Video Aspects</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-the-digital-universe-the-present-and-future-landscape/"><u>In 2024, Pioneering the Digital Universe  The Present & Future Landscape</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-your-pathway-to-a-clutter-free-device-with-video-deletion-tips/"><u>In 2024, Your Pathway to a Clutter-Free Device with Video Deletion Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/prime-editing-choosing-the-best-for-youtube-for-2024/"><u>Prime Editing  Choosing the Best For YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-how-t-series-earnings-growth-on-youtube-works-for-2024/"><u>Unveiling How T-Series Earnings Growth on YouTube Works for 2024</u></a></li>
+</ul></div>

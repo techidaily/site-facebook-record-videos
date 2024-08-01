@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlimited Christmas Classics  9 Films Available for No Charge!\""
-date: 2024-06-05T06:43:01.758Z
-updated: 2024-06-06T06:43:01.758Z
+date: 2024-07-31T03:39:42.028Z
+updated: 2024-08-01T03:39:42.028Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/1f521609b1c133bd14e0ec883446171896f3c613d
 
 # Watch 9 Free Full Length Christmas Movies On Youtube
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -34,6 +37,9 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
@@ -46,6 +52,9 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
@@ -54,14 +63,24 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -78,3 +97,63 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-designing-an-editorial-epilogue/"><u>[New] 2024 Approved  Designing an Editorial Epilogue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exclusive-hd-benefits-turn-on-av1-in-youtube-settings/"><u>[New] 2024 Approved  Exclusive HD Benefits  Turn On AV1 in YouTube Settings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-innovative-approaches-to-console-playback-on-pc-hardware/"><u>[New] 2024 Approved  Innovative Approaches to Console Playback on PC Hardware</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-insights-on-how-youtube-handles-uploaded-videos/"><u>[New] 2024 Approved  Insights on How YouTube Handles Uploaded Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-beginner-friendly-approach-embracing-video-chats-on-insta/"><u>[New] Beginner-Friendly Approach  Embracing Video Chats on Insta</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-delving-into-the-world-of-mukbang-videos-for-2024/"><u>[New] Delving Into the World of Mukbang Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-budget-friendly-video-stock-sites/"><u>[New] In 2024, Best Budget-Friendly Video Stock Sites</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-conquer-audience-engagement-top-20-viral-tiktok-caption-approaches/"><u>[New] In 2024, Conquer Audience Engagement  Top 20 Viral TikTok Caption Approaches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-techniques-for-sports-entertainment-films/"><u>[New] In 2024, Cutting Techniques for Sports Entertainment Films</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-distinctive-digital-monikers-for-video-creators/"><u>[New] In 2024, Distinctive Digital Monikers for Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhance-engagement-with-these-essential-freegame-hashtags-for-youtube/"><u>[New] In 2024, Enhance Engagement with These Essential FreeGame Hashtags for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-for-crafting-immersive-soundscapes-in-youtube/"><u>[New] In 2024, Expert Tips for Crafting Immersive Soundscapes in YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-promotion-26-effective-techniques/"><u>[New] Mastering YouTube Promotion  26 Effective Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-your-footage-the-importance-of-correct-tripod-placement-in-vlogging/"><u>[New] Maximizing Your Footage  The Importance of Correct Tripod Placement in Vlogging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-inspirational-hr-journeys-unveiled/"><u>[New] Top 10 Inspirational HR Journeys Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-perfect-youtube-thumbnails-on-macos/"><u>[Updated] 2024 Approved  Crafting Perfect YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-demystifying-payment-systems-in-shortform-creator-ecosystem/"><u>[Updated] 2024 Approved  Demystifying Payment Systems in Shortform Creator Ecosystem</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-artistic-expression-top-film-tips-on-youtube/"><u>[Updated] 2024 Approved  Discovering Artistic Expression  Top Film Tips on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-video-content-with-desktopmobile-timestamps/"><u>[Updated] 2024 Approved  Elevate Your Video Content with Desktop/Mobile Timestamps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-amplifying-audio-and-visual-quality-in-your-youtube-videos-for-2024/"><u>[Updated] Amplifying Audio and Visual Quality in Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-bursting-laughter-crafting-engaging-reaction-videos-on-youtube-3-methods-for-2024/"><u>[Updated] Bursting Laughter  Crafting Engaging Reaction Videos on YouTube (3 Methods) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-professional-content-on-youtube-via-enhancements-for-2024/"><u>[Updated] Crafting Professional Content on YouTube via Enhancements for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos-for-2024/"><u>[Updated] Enhance Brand Recognition  Inserting Watermark/Logo in Youtube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-advice-for-staying-copyright-compliant-online/"><u>[Updated] Expert Advice for Staying Copyright Compliant Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-design-mastery-selecting-the-right-yt-banner-and-art-sizes/"><u>[Updated] In 2024, Channel Design Mastery  Selecting the Right YT Banner & Art Sizes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-your-youtube-presence-with-split-screen-techniques/"><u>[Updated] In 2024, Enhancing Your YouTube Presence with Split-Screen Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-instantly-professional-rapidly-crafting-valorant-game-imagery/"><u>[Updated] Instantly Professional  Rapidly Crafting Valorant Game Imagery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-updated-earnings-policies-for-streamers/"><u>[Updated] Navigating Updated Earnings Policies for Streamers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-revolutionize-your-videos-top-10-mobile-editing-apps-on-iosandroid/"><u>[Updated] Revolutionize Your Videos  Top 10 Mobile Editing Apps on iOS/Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-selecting-androids-best-youtube-video-extractors/"><u>[Updated] Selecting Android's Best YouTube Video Extractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-ad-driven-earnings-ajays-youtube-strategy/"><u>[Updated] The Art of Ad-Driven Earnings  Ajay's YouTube Strategy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-to-click-through-success-top-thumbnail-size-recommendations/"><u>[Updated] The Key to Click-Through Success  Top Thumbnail Size Recommendations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-gaming-pc-graphics-for-ultimate-youtube-viewing-experience/"><u>[Updated] Top 10 Gaming PC Graphics  For Ultimate YouTube Viewing Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-upgrade-your-channel-description-with-ease-and-flair/"><u>[Updated] Upgrade Your Channel Description with Ease and Flair</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-aural-elegance-selecting-high-quality-ringtones-online/"><u>2024 Approved  Aural Elegance  Selecting High-Quality Ringtones Online</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-infinite-visual-fidelity-premium-hdmi-21-gaming-displays-ps5/"><u>2024 Approved  Infinite Visual Fidelity  Premium HDMI 2.1 Gaming Displays (PS5)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-srs-tuning-methods-for-macwin-users/"><u>2024 Approved  Leading SRS Tuning Methods for Mac/Win Users</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-learn-to-craft-eye-catching-youtube-thumbnails-using-your-phone/"><u>2024 Approved  Learn to Craft Eye-Catching YouTube Thumbnails Using Your Phone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-lilliputian-storyboard-outline/"><u>2024 Approved  Lilliputian Storyboard Outline</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-studio-editors-pathway-to-professional-filmmaking/"><u>2024 Approved  YouTube Studio Editor's Pathway to Professional Filmmaking</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-style-essentials-download-for-free/"><u>2024 Approved  YouTube Style Essentials - Download for FREE</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubing-into-visual-wonders-learn-from-greenscreen-pros/"><u>2024 Approved  Youtubing Into Visual Wonders – Learn From Greenscreen Pros</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/2024-approved-top-8-live-selling-platforms-beginners-tool-tip/"><u>2024 Approved Top 8 Live Selling Platforms Beginners Tool Tip</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/free-youtube-channel-art-templates-for-2024/"><u>Free YouTube Channel Art Templates for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-14-plus-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 14 Plus to Android? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-methods-for-rolling-macos-sierra-back-to-el-capitan/"><u>In 2024, Methods for Rolling MacOS Sierra Back to El Capitan</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-snowboard-cross-triumphs-olympic-highlights/"><u>In 2024, Snowboard Cross Triumphs - Olympic Highlights</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/ps5-expansion-leading-external-drives-unveiled/"><u>Ps5 Expansion  Leading External Drives Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-resize-youtube-videos-to-right-aspect-ratio-on-mac-for-2024/"><u>Quick Resize YouTube Videos to Right Aspect Ratio on Mac for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/techniques-for-successfully-incorporating-a-streaming-youtube-playlist-for-2024/"><u>Techniques for Successfully Incorporating a Streaming YouTube Playlist for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-mobile-asmr-tools-essential-downloads-for-2024/"><u>Top Mobile ASMR Tools  Essential Downloads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-tips-how-to-avoid-the-8-deadliest-youtube-dos-and-donts-for-newbies-for-2024/"><u>Top Tips  How to Avoid the 8 Deadliest YouTube Dos and Don'ts for Newbies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/triple-points-tracker-the-effective-pathway-to-analyzing-youtube-profitability-for-2024/"><u>Triple Points Tracker  The Effective Pathway to Analyzing YouTube Profitability for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/understanding-video-duration-20mb-example-for-2024/"><u>Understanding Video Duration  20MB Example for 2024</u></a></li>
+</ul></div>

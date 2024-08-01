@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lively Letters on Screen  Bounce with Ease and Style\""
-date: 2024-06-05T04:08:52.743Z
-updated: 2024-06-06T04:08:52.743Z
+date: 2024-07-30T23:19:29.253Z
+updated: 2024-07-31T23:19:29.253Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/df6d6f7af97a6f2a263dcbc0519760a864ba0996c
 
 # How to Create Animated Bouncing Text
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -50,16 +53,25 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -106,6 +118,9 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -120,6 +135,9 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -136,3 +154,47 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-ideal-mics-for-bloggers-educators-and-entertainment-clips/"><u>[New] 2024 Approved  Ideal Mics for Bloggers, Educators, & Entertainment Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-building-captivating-online-media-summaries-for-2024/"><u>[New] Building Captivating Online Media Summaries for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-deciphering-absent-messages-on-snapmap-for-2024/"><u>[New] Deciphering Absent Messages on Snapmap for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-presence-the-best-5-practices-for-max-viewers-for-2024/"><u>[New] Elevate Your Presence  The Best 5 Practices for Max Viewers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elite-10-audio-amplifiers-desktops-to-smartphones-for-2024/"><u>[New] Elite 10 Audio Amplifiers  Desktops to Smartphones for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-does-the-sub4sub-strategy-improve-content-consumption/"><u>[New] In 2024, Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-oral-outputs-the-ultimate-list-for-offline-transcription-apps/"><u>[New] Oral Outputs  The Ultimate List for Offline Transcription Apps</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-targeted-ads-spreading-awareness-in-the-medical-sphere/"><u>[New] Targeted Ads  Spreading Awareness in the Medical Sphere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>[Updated] 2024 Approved  Boost Your Channels  A Guide to Best YouTube SEO Resources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-convert-your-youtube-files-effortlessly-to-webm/"><u>[Updated] 2024 Approved  Convert Your YouTube Files Effortlessly to WebM</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-your-artistry-in-lyric-videos-through-lyric-video-maker-mastery/"><u>[Updated] 2024 Approved  Elevating Your Artistry in Lyric Videos Through Lyric Video Maker Mastery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-erasing-the-spotlight-hide-visuals-in-shared-media/"><u>[Updated] 2024 Approved  Erasing the Spotlight  Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-fourfold-guide-to-podcasting-in-education-via-mac/"><u>[Updated] 2024 Approved  Fourfold Guide to Podcasting in Education via Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-10-subtitle-converters-no-cost-for-srt-files/"><u>[Updated] 2024 Approved  Top 10 Subtitle Converters, No Cost for SRT Files</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-a-collection-of-the-most-engrossing-amusing-ig-accounts-for-2024/"><u>[Updated] A Collection of The Most Engrossing, Amusing IG Accounts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comedy-in-a-click-best-funny-short-video-suggestions-for-youtubers-for-2024/"><u>[Updated] Comedy in a Click  Best Funny Short Video Suggestions for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-green-tactics-for-easy-youtube-cta-conversions/"><u>[Updated] Green Tactics for Easy YouTube CTA Conversions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-much-do-youtube-clips-pay-per-view/"><u>[Updated] How Much Do YouTube Clips Pay Per View?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-captivate-audiences-techniques-for-livestreaming-video-in-spherical-views-on-youtube/"><u>[Updated] In 2024, Captivate Audiences  Techniques for Livestreaming Video in Spherical Views on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-tips-for-crafting-immersive-soundscapes-in-youtube/"><u>[Updated] In 2024, Expert Tips for Crafting Immersive Soundscapes in YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-superior-web-based-recording-tools-the-leaders-2023/"><u>[Updated] In 2024, Superior Web-Based Recording Tools - The Leaders 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-media-meld-space/"><u>[Updated] Media Meld Space</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-color-in-online-beauty-content/"><u>[Updated] The Art of Color in Online Beauty Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-youtube-success-subscriber-boosts-at-a-bargain/"><u>[Updated] Unlock YouTube Success - Subscriber Boosts at a Bargain</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-broadcasts-made-simple-an-easy-to-follow-obs-guide/"><u>[Updated] Youtube Broadcasts Made Simple  An Easy-to-Follow OBS Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-novel-set-of-pertinent-probing-for-podcast-participants/"><u>2024 Approved  Novel Set of Pertinent Probing for Podcast Participants</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-stepwise-guide-to-documenting-team-sessions-desktopmobile/"><u>2024 Approved  Stepwise Guide to Documenting Team Sessions (Desktop/Mobile)</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/best-practices-for-archiving-youtube-livestream-content/"><u>Best Practices for Archiving Youtube Livestream Content</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/button-pressing-on-keyboards-the-uk-us-disparity/"><u>Button Pressing on Keyboards: The UK-US Disparity</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-samsung-galaxy-a54-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Samsung Galaxy A54 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-xiaomi-civi-3-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Xiaomi Civi 3 Phone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-your-iphone-13-pro-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From your iPhone 13 Pro</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-detailed-analysis-and-overview-of-du-recorders-capabilities/"><u>In 2024, Detailed Analysis and Overview of Du Recorder’s Capabilities</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Samsung Galaxy S23+? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-step-by-written-by-a-language-model-ai-i-can-help-rewrite-the-paragraph-into-an-academic-style-but-please-note-that-my-responses-may-not-have-the-sa/"><u>In 2024, Step-By Written by a Language Model AI. I Can Help Rewrite the Paragraph Into an Academic Style, but Please Note that My Responses May Not Have the Same Depth as Those Written by Subject Matter Experts. Here Is a Revised Version </u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-watch-without-limits-15plus-free-apps-to-save-your-favorite-content/"><u>In 2024, Watch Without Limits  15+ Free Apps to Save Your Favorite Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-virality-secrets-effective-hashtag-strategies/"><u>In 2024, YouTube's Virality Secrets  Effective Hashtag Strategies</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-the-needle-speed-of-videos-in-snapchat-for-2024/"><u>Navigating the Needle-Speed of Videos in Snapchat for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-samsung-galaxy-s24-ultra-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-video-quality-on-youtube-top-formats-revealed-for-2024/"><u>Streamlining Video Quality on YouTube – Top Formats Revealed for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For OnePlus Nord N30 5G | Dr.fone</u></a></li>
+</ul></div>

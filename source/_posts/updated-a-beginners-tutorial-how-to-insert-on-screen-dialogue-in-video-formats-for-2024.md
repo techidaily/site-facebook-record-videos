@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Beginner's Tutorial  How to Insert On-Screen Dialogue in Video Formats for 2024\""
-date: 2024-06-05T03:43:10.917Z
-updated: 2024-06-06T03:43:10.917Z
+date: 2024-07-30T22:36:17.532Z
+updated: 2024-07-31T22:36:17.532Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/3f0dd2ba23afb65e6bd0d3f90edabc5ca5d9604be
 
 # How to Add Text to YouTube Video Before or After Uploading
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -38,6 +41,9 @@ Before uploading the video to YouTube, it is recommended to add text to the vide
 
 There are plenty of Text effects built in Filmora, you can apply motions and animation to texts, titles, subtitles, end credits and openers as well. Each title preset will present different effects. You can add multiple text boxes and place the text to any position in need. Besides writing texts to video, you can select the target font, size and color and customize the text effect in detail as well. To add text to a video in Filmora is easy, just follow the steps below:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
@@ -46,6 +52,9 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 * To change the color of your text, go into the **Customize**  menu. You will find it near the top left of your screen. While you are in **Customize** there will be a section called **Fill**. This is where you select the color of your text. You can even change the fill type to ‘gradient fill’ and have your text transition between two colors.
 * All of Filmora’s text options are animated – they fade, move around the screen, or perform some other type of action as they appear and disappear. To change the animation of your text select **Animation** next to **Customize**. A selection of different animations will appear. Double click on the one you want to apply to your text.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -96,12 +105,27 @@ Of course, you can only add and edit texts and captions to the video under your 
 * Click the **Video Manager** tab and in Videos section you will see all your videos uploaded to YouTube. Select the video that you want to add captions to and then select **Subtitles/CC** after clicking Edit button.
 * Add Captions/Subtitles
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
 
 **Upload a file:** upload a text transcript or timed subtitles file.
@@ -142,6 +166,9 @@ Try to use text to emphasize only the most important things you say.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -158,3 +185,39 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-best-8-websites-where-you-can-download-free-3d-text-psdfiles/"><u>[New] Best 8 Websites Where You Can Download Free 3D Text PSDFiles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-charting-the-peak-1-shorter-videos-downloader-hub-for-2024/"><u>[New] Charting the Peak  #1 Shorter Videos Downloader Hub for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-end-scene-excellence-your-guide-to-yt-outro-mastery-for-2024/"><u>[New] End Scene Excellence  Your Guide to YT Outro Mastery for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-reputed-tiktok-follower-brokering-services-for-2024/"><u>[New] Reputed TikTok Follower Brokering Services for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-online-potential-mastering-the-art-of-thumbnail-sizing/"><u>[New] Unlocking Online Potential  Mastering the Art of Thumbnail Sizing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>[Updated] 2024 Approved  Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-cameras-to-amplify-your-yt-presence/"><u>[Updated] 2024 Approved  Best Cameras to Amplify Your YT Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-bypass-software-for-youtube-downloads/"><u>[Updated] 2024 Approved  Bypass Software for YouTube Downloads</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-demystifying-instagrams-videography-cap-constraint/"><u>[Updated] 2024 Approved  Demystifying Instagram’s Videography Cap Constraint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-everyday-epics-in-a-lens-tips-to-avoid-common-mistakes/"><u>[Updated] 2024 Approved  Everyday Epics in a Lens  Tips to Avoid Common Mistakes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-affordable-video-editors-in-the-market-2023-edition-for-2024/"><u>[Updated] Best Affordable Video Editors in the Market - 2023 Edition for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-discover-10-amazing-world-wanderlust-channels-for-2024/"><u>[Updated] Discover 10 Amazing World Wanderlust Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-list-7-cost-free-video-tags-extractors-on-youtube-for-2024/"><u>[Updated] Essential List  7 Cost-Free Video Tags Extractors on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-chill-out-guide-selecting-inviting-winter-backgrounds/"><u>[Updated] In 2024, A Chill-Out Guide  Selecting Inviting Winter Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-free-services-for-designing-impactful-youtube-intros/"><u>[Updated] In 2024, Essential Free Services for Designing Impactful YouTube Intros</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unlock-new-creative-potential-on-tiktok-with-easy-background-swaps/"><u>[Updated] In 2024, Unlock New Creative Potential on TikTok with Easy Background Swaps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-green-screen-integration-in-post-production/"><u>[Updated] Navigating Green Screen Integration in Post-Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-shield-against-random-youtube-video-plays/"><u>[Updated] Shield Against Random YouTube Video Plays</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-steps-to-restore-visual-clarity-to-youtube-videos/"><u>[Updated] Steps to Restore Visual Clarity to YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-definitive-guide-to-proportion-perfection-in-youtube/"><u>[Updated] The Definitive Guide to Proportion Perfection in YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-youtube-editing-guide-for-content-creators-of-all-levels/"><u>[Updated] The Ultimate Youtube Editing Guide for Content Creators of All Levels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-revenue-the-unfavorable-guidelines/"><u>[Updated] YouTube Revenue  The Unfavorable Guidelines</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-bring-your-vision-online-mobilizing-content-creation-with-ease-and-simplicity/"><u>2024 Approved  Bring Your Vision Online  Mobilizing Content Creation with Ease and Simplicity</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-411-on-navigating-youtube-shorts/"><u>2024 Approved  The 411 on Navigating YouTube Shorts</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-se-2022-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone SE (2022) Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-elevate-your-marketing-game-free-50-youtube-adornments-here/"><u>In 2024, Elevate Your Marketing Game - Free 50 YouTube Adornments Here!</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/iphone-mastery-complete-guide-to-capturing-podcasts-for-2024/"><u>IPhone Mastery  Complete Guide to Capturing Podcasts for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-y27-5g-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo Y27 5G and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/speed-tutorial-changing-photos-into-engaging-youtube-thumbnails-for-2024/"><u>Speed Tutorial  Changing Photos Into Engaging YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-key-to-flawless-shots-using-a-tripod-correctly-in-video-blogging-for-2024/"><u>The Key to Flawless Shots  Using a Tripod Correctly in Video Blogging for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10-student-friendly-history-yt-series-for-2024/"><u>Top 10 Student-Friendly History YT Series for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-adsense-potential-in-youtube-content-creation-for-2024/"><u>Unlocking AdSense Potential in YouTube Content Creation for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-voyage-to-victory-secrets-from-youtube-stars-for-2024/"><u>Video Voyage to Victory  Secrets From YouTube Stars for 2024</u></a></li>
+</ul></div>

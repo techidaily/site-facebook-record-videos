@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Step-by-Step Approach to Mastering Free YouTube Video Transcription\""
-date: 2024-06-05T03:46:48.025Z
-updated: 2024-06-06T03:46:48.025Z
+date: 2024-07-30T22:42:18.172Z
+updated: 2024-07-31T22:42:18.172Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/d1af8070250ed0fc44c0eb3bb732f040d9be0391d
 
 # How to Transcribe a YouTube Video for FREE
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,6 +34,9 @@ If you want to transcribe your videos to make the dialogs and speeches available
 * [Part 3: Benefits of Transcribing YouTube Videos](#part3)
 * [Part 4: YouTube Video Transcription FAQs](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## Part 1: How to Transcribe YouTube Video Automatically for Free \[2 Ways\]
 
 Besides the [basic video editing features on the YouTube](https://tools.techidaily.com/wondershare/filmora/download/) platform, you can now quickly **transcribe YouTube videos to the text** as well. The good thing is, you can either use the automatic transcription feature that YouTube offers, or upload it manually while adjusting the timing as you go further.
@@ -51,6 +57,9 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
 
 #### Step 3  Publish the Video
@@ -69,12 +78,18 @@ While on the **YouTube Studio** page, click **Subtitles** from the left pane to 
 
 In the video subtitle page of the target video, hover mouse on the **Published Automatic** status under the **Subtitles** column, click the **Options** icon (with three vertical dots) that appears, and click **Edit on Classic Studio**.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
 
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
 
 ### Method 2: Get YouTube Transcription when Watching
@@ -107,6 +122,9 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
@@ -135,6 +153,9 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 **Step 3: Download the Transcription File**
@@ -194,6 +215,9 @@ If you made any modifications to the transcript that was automatically generated
 * Click **Edit on Classic Studio**
 * On the next page, click **Edit** from the top-right corner
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
 
 * Click to open the **Actions** drop-down list from the upper-left corner
@@ -221,3 +245,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-guide-to-youtube-comms-management/"><u>[New] 2024 Approved  A Step-by-Step Guide to YouTube Comms Management</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>[New] 2024 Approved  Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-champion-of-cinematography-audio-visual-artistry/"><u>[New] 2024 Approved  Champion of Cinematography  Audio-Visual Artistry</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dispelling-dark-pixels-youtube-solution-guide/"><u>[New] 2024 Approved  Dispelling Dark Pixels  YouTube Solution Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-advanced-techniques-using-jump-cuts-effectively-for-2024/"><u>[New] Advanced Techniques  Using Jump Cuts Effectively for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-balancing-acts-the-power-of-alternate-perspectives-in-crafting-engaging-reaction-videos-on-youtube-2-pov-method-for-2024/"><u>[New] Balancing Acts  The Power of Alternate Perspectives in Crafting Engaging Reaction Videos on YouTube (2 POV Method) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-content-makers-compensation-breakdown-for-youtube-shorts-for-2024/"><u>[New] Content Makers' Compensation Breakdown for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-download-free-mcb-logo-templates-for-2024/"><u>[New] Download Free MCB Logo Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-quick-guide-to-chroma-key-background/"><u>[New] In 2024, A Quick Guide to Chroma Key Background</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-editorprime-design/"><u>[New] In 2024, EditorPrime Design</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-key-audio-equipment-for-content-creators/"><u>[New] Key Audio Equipment for Content Creators</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-the-basics-motion-graphics-framework/"><u>[New] Mastering the Basics  Motion Graphics Framework</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-outsmarting-online-advertising-on-social-network-sites-for-2024/"><u>[New] Outsmarting Online Advertising on Social Network Sites for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators/"><u>[New] The Art of Ad-Free Earning on YouTube  Strategies for Self-Reliance Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-best-5-tools-for-youtube-video-url-shortening/"><u>[New] Unveiling the Best 5 Tools for YouTube Video URL Shortening</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beginners-blueprint-for-online-content-simple-straightforward-video-projects/"><u>[Updated] 2024 Approved  Beginner's Blueprint for Online Content  Simple, Straightforward Video Projects</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-broadcasting-facebook-videos-whats-the-future-like/"><u>[Updated] 2024 Approved  Broadcasting Facebook Videos  What's the Future Like?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-a-sustainable-income-via-youtube-and-adsense/"><u>[Updated] 2024 Approved  Building a Sustainable Income via YouTube and AdSense</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-captivating-thumbnails-a-digital-marketers-guidebook/"><u>[Updated] 2024 Approved  Crafting Captivating Thumbnails  A Digital Marketer's Guidebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-diy-templates-for-affordable-youtube-intros/"><u>[Updated] 2024 Approved  DIY Templates for Affordable YouTube Intros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-beginning-a-blogging-journey-profit-from-your-passion-for-2024/"><u>[Updated] Beginning a Blogging Journey  Profit From Your Passion for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-clear-cinematic-vision-top-camera-stabilizers-reviewed-for-2024/"><u>[Updated] Clear Cinematic Vision - Top Camera Stabilizers Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-diy-video-setups-perfect-self-portraits-for-youtubers-for-2024/"><u>[Updated] DIY Video Setups  Perfect Self-Portraits for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieve-seamless-transitions-premiere-videos-on-youtube/"><u>[Updated] In 2024, Achieve Seamless Transitions  Premiere Videos on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-affordable-tutorial-on-professional-looking-youtube-introsends/"><u>[Updated] In 2024, Affordable Tutorial on Professional Looking YouTube Intros/Ends</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-comparing-digital-platform-profits-dailymovement-to-youtube-revenue/"><u>[Updated] In 2024, Comparing Digital Platform Profits  DailyMovement to YouTube Revenue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-perfect-youtube-introend-videos-at-no-cost/"><u>[Updated] In 2024, Crafting Perfect YouTube Intro/End Videos at No Cost</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snap-into-action-efficient-office-photography-tips/"><u>[Updated] In 2024, Snap Into Action  Efficient Office Photography Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-master-the-art-of-repeating-iphones-videos/"><u>[Updated] Master the Art of Repeating iPhones Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-miniature-marketers-guide-to-video-promos-infographic/"><u>[Updated] Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneers-in-the-realm-of-multimedia-synergy/"><u>[Updated] Pioneers in the Realm of Multimedia Synergy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-silly-suggestions-10-hilarious-concepts-for-quick-quirky-videos/"><u>[Updated] Silly Suggestions  10 Hilarious Concepts for Quick, Quirky Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sourav-joshis-income-tactics-the-future-of-monetizing-content/"><u>[Updated] Sourav Joshi's Income Tactics  The Future of Monetizing Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-steps-to-manage-video-watcher-restrictions-on-youtube/"><u>[Updated] Steps to Manage Video Watcher Restrictions on Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-synergistic-videos-to-skyrocket-your-follower-count/"><u>[Updated] Synergistic Videos to Skyrocket Your Follower Count</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-potential-with-facebooks-live-a-comprehensive-guide-for-creators-for-2024/"><u>[Updated] Unlocking Potential with Facebook’s LIVE  A Comprehensive Guide for Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>[Updated] Your Treasure Trove of Free Marketing  50+ YouTube Ads Ready to Go</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-elevating-your-shopping-vlogs-advanced-editing-techniques/"><u>2024 Approved  Elevating Your Shopping Vlogs  Advanced Editing Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-endless-memories-free-saving-on-instagram-stories/"><u>2024 Approved  Endless Memories  FREE Saving on Instagram Stories</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-the-secrets-to-producing-popular-youtube-shorts/"><u>2024 Approved  Unveiling the Secrets to Producing Popular YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-virtual-victory-youtubes-female-elite-ten/"><u>2024 Approved  Virtual Victory  YouTube’s Female Elite Ten</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/enshrine-your-elite-playthroughs-in-galaxy-cases/"><u>Enshrine Your Elite Playthroughs in Galaxy Cases</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-top-rated-frame-rate-choices-for-cinema-slow-motion/"><u>Exploring Top-Rated Frame Rate Choices for Cinema Slow-Motion</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-vivo-y27-5g-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Vivo Y27 5G Phone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-x9b-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor X9b Phone FRP Lock</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/key-elements-for-compelling-facebook-ad-textual-content-for-2024/"><u>Key Elements for Compelling Facebook Ad Textual Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/rhythms-companion-finding-premium-club-vids-for-2024/"><u>Rhythm's Companion  Finding Premium Club Vids for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-creating-free-youtube-outros-1-6-for-2024/"><u>The Ultimate Guide to Creating FREE YouTube Outros #1-6 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/uncover-11-free-effective-youtube-naming-solutions-for-2024/"><u>Uncover 11 Free, Effective YouTube Naming Solutions for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-infinix-zero-30-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Infinix Zero 30 5G? Here is How | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11-changing-picture-preview-size/"><u>Windows 11: Changing Picture Preview Size</u></a></li>
+</ul></div>

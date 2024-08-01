@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Photography Support Systems for 2024"
-date: 2024-06-05T05:07:47.320Z
-updated: 2024-06-06T05:07:47.320Z
+date: 2024-07-31T00:58:56.939Z
+updated: 2024-08-01T00:58:56.939Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
@@ -48,16 +51,44 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 And here it is with hair clips:
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -75,12 +106,18 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -119,3 +156,50 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-dizzy-with-design-mastering-upside-down-imagery/"><u>[New] 2024 Approved  Dizzy with Design  Mastering Upside Down Imagery</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-expert-tips-to-enhance-your-live-fb-broadcast-quality-pcmac/"><u>[New] 2024 Approved  Expert Tips to Enhance Your Live FB Broadcast Quality (PC/Mac)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-stop-stalled-profile-visits-on-facebook/"><u>[New] 2024 Approved  Stop Stalled Profile Visits on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-accelerating-engagement-with-optimized-youtube-video-speeds-for-2024/"><u>[New] Accelerating Engagement with Optimized YouTube Video Speeds for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-core-ethos-universal-youtube-guidelines-for-2024/"><u>[New] Core Ethos  Universal YouTube Guidelines for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tips-for-youtube-edits-with-sony-vegas-for-2024/"><u>[New] Essential Tips for YouTube Edits with Sony Vegas for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discovering-income-monetization-through-youtube-sponsored-videos/"><u>[New] In 2024, Discovering Income  Monetization Through YouTube Sponsored Videos?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-eye-catching-youtube-most-followed-channels/"><u>[New] In 2024, Eye-Catching YouTube  Most Followed Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-subscribe-to-boost-eco-friendly-ads/"><u>[New] Subscribe to Boost Eco-Friendly Ads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-power-of-listening-understanding-your-youtube-audience/"><u>[New] The Power of Listening  Understanding Your YouTube Audience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-turning-tides-in-visuals-mastering-the-art-of-angles-and-rotations-on-insta-for-2024/"><u>[New] Turning Tides in Visuals  Mastering the Art of Angles and Rotations on Insta for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-the-power-8-best-no-cost-software-for-videographers-and-editors/"><u>[New] Unlock the Power  8 Best No-Cost Software for Videographers & Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comedy-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>[Updated] 2024 Approved  Comedy in a Click  Best Funny Short Video Suggestions for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-captivating-thumbnails-for-youtube/"><u>[Updated] 2024 Approved  Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-text-generator-for-videos/"><u>[Updated] 2024 Approved  Digital Text Generator for Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enjoy-premium-video-artwork-download-at-no-cost-today/"><u>[Updated] 2024 Approved  Enjoy Premium Video Artwork - Download at No Cost Today</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-asmr-content-deep-dive-101-for-2024/"><u>[Updated] ASMR Content Deep Dive 101 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-techniques-for-powerful-youtube-thumbnail-designs-for-2024/"><u>[Updated] Cutting-Edge Techniques for Powerful YouTube Thumbnail Designs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style-for-2024/"><u>[Updated] Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-amplify-content-reach-essential-strategies-to-skyrocket-views/"><u>[Updated] In 2024, Amplify Content Reach  Essential Strategies to Skyrocket Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-android-audio-archive-a-curated-list-of-top-6-free-music-downloading-apps/"><u>[Updated] In 2024, Android Audio Archive  A Curated List of Top 6 Free Music Downloading Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-social-media-trends-with-data-graphics/"><u>[Updated] In 2024, Charting Social Media Trends with Data Graphics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-cutting-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>[Updated] In 2024, Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-double-your-watch-time-on-youtube-with-these-tips/"><u>[Updated] In 2024, Double Your Watch Time on YouTube with These Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-ultimate-conversion-of-tiktok-to-facebook/"><u>[Updated] In 2024, The Ultimate Conversion of TikTok to Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-away-from-youtube-penalties/"><u>[Updated] Navigating Away From YouTube Penalties</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-speedy-tactics-for-disorganized-youtube-song-listings/"><u>[Updated] Speedy Tactics for Disorganized YouTube Song Listings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-elements-in-transforming-your-youtube-channels-visibility/"><u>[Updated] The Key Elements in Transforming Your YouTube Channels' Visibility</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-ultimate-hunt-cut-to-7-fps-giants/"><u>[Updated] The Ultimate Hunt  Cut to 7 FPS Giants</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>[Updated] What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-where-the-magic-of-video-editing-begins-on-youtube/"><u>[Updated] Where the Magic of Video Editing Begins on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovation-in-visuals-a-guide-to-the-leading-5-monitors/"><u>2024 Approved  Innovation in Visuals  A Guide to the Leading 5 Monitors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-maximizing-roi-adopting-the-power-of-triple-strategies-in-copywriting-for-facebook-advertising/"><u>2024 Approved  Maximizing ROI  Adopting the Power of Triple Strategies in Copywriting for Facebook Advertising</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-web-enhancer-facebook-story-keeper/"><u>2024 Approved  Web Enhancer  Facebook Story Keeper</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-oppo-a18-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Oppo A18</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-itel-s23plus-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Itel S23+ to iPod | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-online-tv-downloading-a-complete-recording-blueprint/"><u>In 2024, Online TV Downloading  A Complete Recording Blueprint</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-top-budget-friendly-gaming-capture-software-revealed/"><u>In 2024, Top Budget-Friendly Gaming Capture Software Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-years-biggest-beauty-influencers-on-youtube/"><u>In 2024, Year's Biggest Beauty Influencers on YouTube</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mp3-mastery-in-motion-prime-10-youtube-to-mp3-transformers-for-2024/"><u>MP3 Mastery in Motion  Prime 10 YouTube to Mp3 Transformers for 2024</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-free-msnbc-live-online-stream-for-the-latest-shows-for-all-devices-for-2024/"><u>New Free MSNBC Live Online Stream for the Latest Shows for All Devices for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-apple-iphone-14-pro-max-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your Apple iPhone 14 Pro Max Is Unlocked</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-infinix-smart-8-hd-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Infinix Smart 8 HD Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+</ul></div>

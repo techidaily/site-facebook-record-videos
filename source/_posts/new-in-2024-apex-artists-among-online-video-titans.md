@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Apex Artists Among Online Video Titans"
-date: 2024-06-05T06:38:50.231Z
-updated: 2024-06-06T06:38:50.231Z
+date: 2024-07-31T03:32:33.446Z
+updated: 2024-08-01T03:32:33.446Z
 tags:
   - ai video
   - ai youtube
@@ -50,8 +50,14 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\.  PewDiePie
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
@@ -60,6 +66,9 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ###  2\.  HolaSoyGerman
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
@@ -68,6 +77,9 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ###  3\.  ElrubiusOMG
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
@@ -86,6 +98,9 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ### 5\.  Fernanfloo
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -96,8 +111,14 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -116,3 +137,40 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-elite-cameras-for-windows-11-pro-review-of-the-latest-gear/"><u>[New] 2024 Approved  Elite Cameras for Windows 11 - Pro Review of the Latest Gear</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-7-easy-steps-for-a-subscriber-surge-on-youtube-for-2024/"><u>[New] 7 Easy Steps for a Subscriber Surge on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-compreranzo-il-background-ottenere-video-piu-chiaro-su-youtube-for-2024/"><u>[New] Compreranzo Il Background  Ottenere Video Più Chiaro Su YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-download-free-sound-effects-for-youtubers/"><u>[New] Download Free Sound Effects for YouTubers!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enjoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors-for-2024/"><u>[New] Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-guide-top-10-online-video-to-mp3-apps-for-2024/"><u>[New] Essential Guide  Top 10 Online Video to MP3 Apps for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-an-in-depth-look-at-time-lapse-photography-using-ipad/"><u>[New] In 2024, An In-Depth Look at Time-Lapse Photography Using iPad</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-boosting-views-with-analytics-in-youtube-strategy/"><u>[New] In 2024, Boosting Views with Analytics in YouTube Strategy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dynamic-lighting-elevating-video-aesthetics/"><u>[New] In 2024, Dynamic Lighting  Elevating Video Aesthetics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-narrating-your-journey-channeling-authenticity-online/"><u>[New] Narrating Your Journey  Channeling Authenticity Online.</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>[Updated] 2024 Approved  A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-capture-the-season-wardrobe-top-5-winter-yt-scenes/"><u>[Updated] 2024 Approved  Capture the Season' Wardrobe  Top 5 Winter YT Scenes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-curating-tunes-a-comprehensive-guide-to-youtube-lists/"><u>[Updated] 2024 Approved  Curating Tunes  A Comprehensive Guide to YouTube Lists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>[Updated] 2024 Approved  Embrace Cold  Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-in-the-halls-boosting-youtube-traffic-for-2024/"><u>[Updated] Ace in the Halls  Boosting YouTube Traffic for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-conceptualization-to-production-a-guide-to-making-mukbang/"><u>[Updated] From Conceptualization to Production  A Guide to Making Mukbang</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-blueprint-for-broadcasting-breaks/"><u>[Updated] In 2024, Blueprint for Broadcasting Breaks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>[Updated] In 2024, Digital Makeup  Mastering Youtube's Chromatic Alignment</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exclusive-guide-to-affordable-premium-video-editors/"><u>[Updated] In 2024, Exclusive Guide to Affordable, Premium Video Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-procedure-for-removing-stashed-videos-from-watch-later/"><u>[Updated] Procedure for Removing Stashed Videos From Watch Later</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-steady-your-screen-the-key-to-slowdown-in-youtube-videos-48-chars/"><u>[Updated] Steady Your Screen  The Key to Slowdown in YouTube Videos (48 Chars)</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-iphone-14-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock iPhone 14 without Passcode or Face ID</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>iPogo will be the new iSpoofer On Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/pace-upplayers-swift-sharing-of-youtube-plays/"><u>Pace Upplayers  Swift Sharing of YouTube Plays</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/prime-sound-alteration-apps-for-vloggers-for-2024/"><u>Prime Sound Alteration Apps for Vloggers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-ways-to-reshuffle-youtube-tracks-on-pcphonetv-for-2024/"><u>Quick Ways to Reshuffle YouTube Tracks on PC/Phone/TV for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oneplus-ace-2-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your OnePlus Ace 2 Screen | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/restore-windows-photo-viewer-quick-effective-ways-for-win10-for-2024/"><u>Restore Windows Photo Viewer  Quick, Effective Ways for Win10 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/savor-the-spectacle-best-practices-for-cooking-channel-titling-for-2024/"><u>Savor the Spectacle  Best Practices for Cooking Channel Titling for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-future-of-content-creation-profitability-on-youtube-for-2024/"><u>The Future of Content Creation  Profitability on YouTube for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-nokia-c02-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Nokia C02 Phone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/winter-olympics-2022-highlights/"><u>Winter Olympics 2022 Highlights</u></a></li>
+</ul></div>

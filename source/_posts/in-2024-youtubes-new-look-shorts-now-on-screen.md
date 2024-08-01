@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, YouTube's New Look - Shorts Now on Screen\""
-date: 2024-06-05T05:11:04.202Z
-updated: 2024-06-06T05:11:04.202Z
+date: 2024-07-31T01:04:29.917Z
+updated: 2024-08-01T01:04:29.917Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/09131504d6b18963281f522bba9f2baa6f9c4f1ee
 
 # How to Fix the YouTube Shorts Not Showing Up Issue?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -71,8 +74,14 @@ As we've already discussed above, check if your YouTube mobile app has the lates
 
 Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap on the **+** icon and hit the **Create a Short** option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
@@ -83,6 +92,10 @@ As of now, YouTube Shorts is only available on a smartphone because it's still i
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ### Common Fixes to YouTube Shorts Not Working
 
 1. Update the YouTube App to the latest version.
@@ -115,6 +128,9 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 
 **Step 3.** You'll see shorts videos under the "videos" section. Click that, and the videos you have which are tagged in with #shorts in the title or description will automatically display here.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
@@ -145,6 +161,9 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
       * **Way 1:** Once you open Filmora, the main interface will display the **Auto Reframe** tab on the right-hand panel. Click it to open directly
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
@@ -161,6 +180,9 @@ A separate dialog box will display once you have selected the **Auto Reframe** o
 
 There are multiple aspect ratio templates available such as square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). As you are making YouTube Shorts, so you need to select **9:16**.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
 
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
@@ -173,6 +195,9 @@ Once you finish the above adjustments, hit the **Analysis** tab. Filmora will ta
 
 Then the video will be automatically and quickly reframed to your specified speed and aspect ratio. You can modify these aspect ratios and speed options by hitting the **Restart** option as well.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
 **Step 4\. Preview the Reframed Video and Check**
@@ -183,8 +208,14 @@ Lastly, you can preview your final video. If the video needs more work, you can 
 
 Finally, after all the final adjustments, you can hit the **Export** tab, name your file and choose the destination folder.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/9-export-reframed-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: FAQs about YouTube Shorts
 
 **1\. Where to download the YouTube Shorts app?**
@@ -239,3 +270,43 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-access-top-shorter-video-downloads-for-free-online/"><u>[New] 2024 Approved  Access Top Shorter Video Downloads for FREE Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-capture-stillness-on-the-go-without-tripods/"><u>[New] 2024 Approved  Capture Stillness on the Go without Tripods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discovering-your-youtube-comments-on-various-devices/"><u>[New] In 2024, Discovering Your YouTube Comments on Various Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earnings-expansion-the-significance-of-500-subs-club/"><u>[New] In 2024, Earnings Expansion  The Significance of 500 Subs Club</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-is-your-content-flourishing-consider-an-mcn-partnership/"><u>[New] Is Your Content Flourishing? Consider an MCN Partnership</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-cyber-companion-tone-downloads-guide/"><u>[New] Ultimate Cyber Companion  Tone Downloads Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-guide-to-video-tweaking-on-youtube-studio/"><u>[New] Ultimate Guide to Video Tweaking on YouTube Studio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-youtube-star-status-becoming-a-self-assured-vlogger/"><u>[New] Unlock YouTube Star Status  Becoming a Self-Assured Vlogger</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-unlocking-vimeo-mastery-of-tools-software-and-skillful-techniques/"><u>[New] Unlocking Vimeo  Mastery of Tools, Software & Skillful Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-artistry-designing-channels-visual-assets-bannersicons/"><u>[New] YouTube Artistry  Designing Channels' Visual Assets (Banners/Icons)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-expert-guide-to-creating-compact-engaging-youtube-content/"><u>[Updated] 2024 Approved  Expert Guide to Creating Compact, Engaging YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-how-to-add-youtube-annotations-and-cards/"><u>[Updated] 2024 Approved  How to Add YouTube Annotations and Cards?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-video-reverser-online-plushowtos/"><u>[Updated] Best YouTube Video Reverser Online [+Howtos]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-youtube-monetization-success-codes-for-2024/"><u>[Updated] Deciphering YouTube Monetization Success Codes for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-decoding-instagrams-best-timing-practices/"><u>[Updated] Decoding Instagram's Best Timing Practices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-engagement-enhancing-videos-with-pro-editing-skills-for-2024/"><u>[Updated] Elevate Engagement  Enhancing Videos with Pro Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expertise-in-edits-selecting-premier-video-tools-for-2024/"><u>[Updated] Expertise in Edits  Selecting Premier Video Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-best-pairing-practices-in-the-youtube-space-for-2024/"><u>[Updated] Exploring Best Pairing Practices in the YouTube Space for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-audience-appreciation-assessment-self-and-seekers-vs-rival-repertoires/"><u>[Updated] In 2024, Audience Appreciation Assessment  Self and Seekers Vs. Rival Repertoires</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevate-your-posts-with-these-instagram-filters-hacks/"><u>[Updated] In 2024, Elevate Your Posts with These Instagram Filters Hacks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-overcoming-shyness-in-the-spotlight-top-video-blogger-fears/"><u>[Updated] Overcoming Shyness in the Spotlight  Top Video Blogger Fears</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-professional-thumbnail-tactics-dos-and-donts-guidebook/"><u>[Updated] Professional Thumbnail Tactics  Do's and Don'ts Guidebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streaming-success-gamers-software/"><u>[Updated] Streaming Success  Gamers' Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-vlog-with-video-length-optimization/"><u>[Updated] Streamline Your Vlog with Video Length Optimization</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unveiling-12-superior-cameras-for-exceptional-vlogging/"><u>[Updated] Unveiling 12 Superior Cameras for Exceptional Vlogging</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleashing-creativity-with-pro-gopro-guidance/"><u>2024 Approved  Unleashing Creativity with Pro-GoPro Guidance</u></a></li>
+<li><a href="https://extra-information.techidaily.com/audio-visual-symphony-crafting-music-infused-instagram-videos-for-2024/"><u>Audio-Visual Symphony  Crafting Music-Infused Instagram Videos for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Change/Add Location Filters on Snapchat For your Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-iphone-14-plus-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on iPhone 14 Plus and iPad Securely</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a24-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A24 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-vivo-v29-pro-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Vivo V29 Pro Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-get-ready-to-play-top-10-free-game-download-sites-for-pc-and-android/"><u>New 2024 Approved Get Ready to Play Top 10 Free Game Download Sites for PC and Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10-tools-for-youtube-to-webm-conversion-for-2024/"><u>Top 10 Tools for YouTube to WebM Conversion for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transforming-shorts-from-youtube-to-mp4-format-for-2024/"><u>Transforming Shorts  From YouTube to MP4 Format for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-list-freely-accessible-editing-software-for-2024/"><u>Ultimate List  Freely Accessible Editing Software for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Building Confidence Against YouTube Critiques"
-date: 2024-06-05T06:13:23.389Z
-updated: 2024-06-06T06:13:23.389Z
+date: 2024-07-31T02:49:15.718Z
+updated: 2024-08-01T02:49:15.718Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 
 # How To Deal with YouTube Trolls and Negative Comments
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -26,6 +29,9 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -52,6 +58,9 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -68,3 +77,52 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-guide-for-youtube-video-clips/"><u>[New] 2024 Approved  Essential Guide for YouTube Video Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-7-uncomplicated-steps-for-skyrocketing-subscribers-for-2024/"><u>[New] 7 Uncomplicated Steps for Skyrocketing Subscribers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-bringing-bygone-era-filmmaking-to-life-today-for-2024/"><u>[New] Bringing Bygone Era Filmmaking to Life Today for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-capture-the-essence-extracting-youtube-audio-directly-for-2024/"><u>[New] Capture the Essence  Extracting YouTube Audio Directly for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cashing-in-on-content-the-carminati-effect-ajay/"><u>[New] Cashing In on Content  The Carminati Effect (AJay)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-7-uncomplicated-steps-for-skyrocketing-subscribers/"><u>[New] In 2024, 7 Uncomplicated Steps for Skyrocketing Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-upgrade-smartphone-techniques-for-professional-videos/"><u>[New] In 2024, Channel Upgrade  Smartphone Techniques for Professional Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion/"><u>[New] In 2024, Digital Content Contenders  Compare & Contrast Vimeo, YouTube + Dailymotion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-youtube-creation-by-merging-media-and-music/"><u>[New] In 2024, Elevate Your YouTube Creation by Merging Media and Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-choices-top-10-best-video-editing-software-free-2023/"><u>[New] In 2024, Essential Choices  Top 10 Best Video Editing Software (Free, 2023)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-keep-watching-youtube-in-the-background-with-ease/"><u>[New] Keep Watching YouTube in the Background with Ease</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-laughter-lane-top-7-comedy-content-concepts-for-vloggers/"><u>[New] Laughter Lane  Top 7 Comedy Content Concepts for Vloggers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailor-made-video-cuts-macs-top-mp4-slicers-revealed/"><u>[New] Tailor-Made Video Cuts  Mac's Top MP4 Slicers Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-template-mastery-a-step-by-step-to-epic-gamers-logos/"><u>[New] Template Mastery  A Step-by-Step to Epic Gamers' Logos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-peak-of-youtubes-monetization-wonders/"><u>[New] The Peak of YouTube's Monetization Wonders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-amplify-your-voice-on-youtube-mastery-through-tubebuddy/"><u>[Updated] 2024 Approved  Amplify Your Voice on YouTube - Mastery Through TubeBuddy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-the-course-with-youtubes-top-makeup-influencers/"><u>[Updated] 2024 Approved  Charting the Course with YouTube's Top Makeup Influencers</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-a-complete-tutorial-for-professional-gopro-vlogs/"><u>[Updated] A Complete Tutorial for Professional GoPro Vlogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos/"><u>[Updated] In 2024, Ace Your Edits  In-Depth Guide to High-Quality YouTube Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-boost-instagram-growth-with-advanced-analysis-platforms/"><u>[Updated] In 2024, Boost Instagram Growth with Advanced Analysis Platforms</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-high-end-gamers-guide-to-switch-recordings/"><u>[Updated] In 2024, High-End Gamers' Guide to Switch Recordings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-vlogging-with-top-12-innovative-screen-swivel-cams/"><u>[Updated] Mastering Vlogging with Top 12 Innovative Screen Swivel Cams</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-unveiling-the-most-effective-zoom-recording-tools/"><u>[Updated] Unveiling the Most Effective Zoom Recording Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-velocity-in-virtue-share-your-youtube-lists-fast/"><u>[Updated] Velocity in Virtue  Share Your YouTube Lists Fast</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-motorola-moto-g34-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Motorola Moto G34 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastering-youtube-titulos-con-algoritmos/"><u>2024 Approved  Mastering YouTube Títulos Con Algoritmos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-top-10-youtube-shorts-video-editing-apps-for-ios-and-android/"><u>2024 Approved  Top 10 YouTube Shorts Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-tune-into-trends-integrating-songs-with-reels/"><u>2024 Approved  Tune Into Trends  Integrating Songs with Reels</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unlicensed-music-for-games-top-10-online-hits/"><u>2024 Approved  Unlicensed Music for Games - Top 10 Online Hits</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-zooms-best-alternatives-on-laptops-and-tablets/"><u>2024 Approved  Zoom's Best Alternatives on Laptops & Tablets</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-to-get-more-followers-on-igtv-5-ways-for-2024/"><u>How to Get More Followers on IGTV [5 Ways] for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-f14-5g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Samsung Galaxy F14 5G Phone with Broken Screen</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-copyright-guide-for-instagram-music/"><u>In 2024, Copyright Guide for Instagram Music</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-discover-free-high-quality-facebook-image-and-vfx-makers/"><u>In 2024, Discover Free, High-Quality Facebook Image & VFX Makers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-oneplus-nord-3-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from OnePlus Nord 3 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-realme-c51-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Realme C51 FRP Without Computer</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-realme-10t-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Realme 10T 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-online-streams-convert-youtube-to-mp3-instantly-in-2024/"><u>Premium Online Streams  Convert YouTube to MP3 Instantly, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/self-filmed-flair-tips-for-captivating-solo-videos-for-2024/"><u>Self-Filmed Flair  Tips for Captivating Solo Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-digital-dimension-state-of-the-art-vr/"><u>The Digital Dimension  State-of-the-Art VR</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-quick-clip-quandary-youtube-shorts-advantage-over-tiktok-for-2024/"><u>The Quick-Clip Quandary  YouTube Shorts' Advantage Over TikTok for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-top-8-yt-thumbnails-that-increase-watch-time-and-interests-for-2024/"><u>The Top 8 YT Thumbnails that Increase Watch Time and Interests for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/tips-for-dimming-windows-and-mac-music-volume-for-2024/"><u>Tips for Dimming Windows & Mac Music Volume for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/uncover-the-hidden-gems-of-the-youtube-tv-experience-for-2024/"><u>Uncover the Hidden Gems of the YouTube TV Experience for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Comprehensive Strategies for Swiftly Clearing Feedback"
-date: 2024-06-05T04:27:01.031Z
-updated: 2024-06-06T04:27:01.031Z
+date: 2024-07-30T23:50:14.112Z
+updated: 2024-07-31T23:50:14.112Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/058506d9dfd3499ce050a0189a74f361c7f5cd9f1
 
 # Deleting YouTube Comments
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,6 +39,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -47,6 +54,9 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -69,6 +79,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -114,10 +127,16 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -142,3 +161,53 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>[New] 2024 Approved  Boost Your Channels  A Guide to Best YouTube SEO Resources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-concluding-coverage-craftsmanship/"><u>[New] 2024 Approved  Concluding Coverage Craftsmanship</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-top-8-trending-ae-templates-on-instagram/"><u>[New] 2024 Approved  Top 8 Trending AE Templates on Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boost-your-game-presence-a-comprehensible-guide-to-freegame-hashtags-for-2024/"><u>[New] Boost Your Game Presence  A Comprehensible Guide to FreeGame Hashtags for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-born-to-create-video-magic-mac-basics-for-beginners-on-youtube-for-2024/"><u>[New] Born to Create Video Magic  Mac Basics for Beginners on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-captivating-startups-discovering-the-best-15-video-intros/"><u>[New] In 2024, Captivating Startups  Discovering the Best 15 Video Intros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-brand-explore-these-10-essential-youtube-creators/"><u>[New] In 2024, Elevate Your Brand  Explore These 10 Essential YouTube Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-leverage-youtube-metrics-for-enhanced-visibility/"><u>[New] Leverage YouTube Metrics for Enhanced Visibility</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-seamless-media-consumption-enable-automatic-playback-of-youtube-content-on-fb-for-2024/"><u>[New] Seamless Media Consumption  Enable Automatic Playback of YouTube Content on FB for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-8-access-free-eco-friendly-vfx-backdrops-online/"><u>[New] Top 8  Access Free Eco-Friendly VFX Backdrops Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-9-camera-extras-for-professional-level-vlogging-on-smartphones/"><u>[New] Top 9 Camera Extras for Professional-Level Vlogging on Smartphones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-high-view-counts-using-savvy-hashtag-use/"><u>[New] Unlock High View Counts Using Savvy #Hashtag Use</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-erased-memories-how-to-revisit-them-online/"><u>[New] Youtube's Erased Memories  How to Revisit Them Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-zero-cost-frame-perfection-on-youtube-video-viewing/"><u>[New] Zero-Cost Frame Perfection on YouTube Video Viewing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-15-best-sites-to-find-and-download-royalty-free-music-for-youtube/"><u>[Updated] 2024 Approved  15 Best Sites to Find & Download Royalty-Free Music for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-successful-youtube-collaborations-step-by-step/"><u>[Updated] 2024 Approved  Building Successful YouTube Collaborations Step by Step</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-diy-photography-support-systems/"><u>[Updated] 2024 Approved  DIY Photography Support Systems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-engagement-discover-these-top-12-techniques-for-video-success/"><u>[Updated] 2024 Approved  Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-essential-tools-for-perfect-images/"><u>[Updated] 2024 Approved  Essential Tools for Perfect Images</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-streamline-your-recordings-fix-frames-out-of-sync-in-obs/"><u>[Updated] 2024 Approved  Streamline Your Recordings  Fix Frames Out of Sync in OBS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brand-battlegrounds-mastery-of-marketing-metrics-on-youtube-for-2024/"><u>[Updated] Brand Battlegrounds  Mastery of Marketing Metrics on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-easy-steps-to-save-youtube-videos-for-2024/"><u>[Updated] Easy Steps to Save YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-guide-to-top-youtube-to-webm-conversion-software-for-2024/"><u>[Updated] Exclusive Guide to Top YouTube-to-WebM Conversion Software for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-choreographing-narrative-news-wrappers/"><u>[Updated] In 2024, Choreographing Narrative News Wrappers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easy-to-use-free-youtube-downloader-with-mp3-support/"><u>[Updated] In 2024, Easy-to-Use Free YouTube Downloader with MP3 Support</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-content-categorization-top-picks-for-the-7-cheapest-youtube-taggification-apps/"><u>[Updated] In 2024, Enhance Content Categorization  Top Picks for the 7 Cheapest Youtube Taggification Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-free-mcb-theme-templates/"><u>[Updated] In 2024, Essential Free MCB Theme Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-speedy-setup-procedures-for-personalized-youtube-shorts-images/"><u>[Updated] In 2024, Speedy Setup Procedures for Personalized YouTube Shorts Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-youtube-closings-inclusive-guide/"><u>[Updated] Mastering the Art of YouTube Closings [Inclusive Guide]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-through-youtubes-content-id-system-issues/"><u>[Updated] Navigating Through YouTube's Content ID System Issues</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-precision-guide-for-webp-to-jpg-conversion/"><u>[Updated] Precision Guide for WebP to JPG Conversion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-cutting-edge-without-costs-navigating-through-these-8-tools/"><u>[Updated] The Cutting Edge Without Costs - Navigating Through These 8 Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-list-of-beautiful-wedding-clips-youtube-and-vimeo/"><u>[Updated] The Ultimate List of Beautiful Wedding Clips - Youtube & Vimeo</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-the-role-of-dimensions-in-youtubes-viewer-engagement/"><u>[Updated] Understanding the Role of Dimensions in YOUTUBE's Viewer Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-vocal-variations-a-curated-list-of-the-best-15-youtube-vocals-tutorials/"><u>[Updated] Vocal Variations  A Curated List of the Best 15 YouTube Vocals Tutorials</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-best-websites-to-download-a-youtube-ringtone/"><u>2024 Approved  Best Websites To Download A YouTube Ringtone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-captioning-for-success-instagram-videos-edition/"><u>2024 Approved  Captioning for Success  Instagram Videos Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-20-no-rights-pubg-visual-arrays/"><u>2024 Approved  Innovative 20 No-Rights PUBG Visual Arrays</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-marketing-edge-with-video-based-client-advocacy/"><u>2024 Approved  Marketing Edge with Video-Based Client Advocacy</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi A2? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Vivo X Fold 2? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-samsung-galaxy-a14-5g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Samsung Galaxy A14 5G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-when-apple-account-locked-on-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Fix when Apple Account Locked On iPhone SE (2022)?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-tutorial-download-youtube-videos-in-pieces-for-2024/"><u>Step-by-Step Tutorial  Download YouTube Videos in Pieces for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategic-approaches-for-creating-impactful-youtubes-finality-for-2024/"><u>Strategic Approaches for Creating Impactful Youtubes' Finality for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-camera-picks-for-aspiring-youtubers-for-2024/"><u>Ultimate Camera Picks for Aspiring YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unique-identification-making-your-youtube-url-stand-out-for-2024/"><u>Unique Identification  Making Your YouTube URL Stand Out for 2024</u></a></li>
+</ul></div>

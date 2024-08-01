@@ -1,7 +1,7 @@
 ---
 title: "\"The Artisan's Almanac  Makeup, Tools & More on Youtube for 2024\""
-date: 2024-06-05T03:39:29.999Z
-updated: 2024-06-06T03:39:29.999Z
+date: 2024-07-30T22:30:00.912Z
+updated: 2024-07-31T22:30:00.912Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/a1f466c594234ad34f641e87364869a2929ae1aee
 
 # Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,10 +44,16 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## **Finding Your Niche in Beauty or Lifestyle**
@@ -116,6 +125,9 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -139,6 +151,13 @@ You might want to experiment with sitting at different distances to see how the 
 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
@@ -197,6 +216,11 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -205,6 +229,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 One cool feature of the Neewer Ring Light is that you can choose between daylight and a more orange-tinted light depending on which of the included filters you use. In almost all situations you’ll want to use white light/daylight because the orange light will make you look orange, but if you ever wanted to create a warmer image to achieve a particular effect you’d have that option with this light.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
@@ -242,6 +270,9 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -252,6 +283,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -291,3 +325,52 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-affordable-android-calls-10-best-selection/"><u>[New] 2024 Approved  Affordable Android Calls, 10 Best Selection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-freefire-youtube-hashtags-and-tips-for-youtube-gaming-videos/"><u>[New] 2024 Approved  Best FreeFire YouTube Hashtags and Tips For YouTube Gaming Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>[New] 2024 Approved  Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-digital-recorder-snap-your-screen-upload-to-youtube-onlinepcmac/"><u>[New] 2024 Approved  Digital Recorder  Snap Your Screen, Upload to YouTube Online/PC/Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-deep-into-youtube-shorts-essentials/"><u>[New] 2024 Approved  Dive Deep Into YouTube Shorts Essentials</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-expert-tips-to-enhance-your-adobe-presentation-videos/"><u>[New] 2024 Approved  Expert Tips to Enhance Your Adobe Presentation Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-avoid-commonplace-channel-titles-finding-uniqueness-with-filmora-for-2024/"><u>[New] Avoid Commonplace Channel Titles  Finding Uniqueness with Filmora for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-compreenhensive-guide-for-youtube-short-video-creators-for-2024/"><u>[New] Compreenhensive Guide for YouTube Short Video Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-copycat-cinema-steps-for-satirical-video-making-for-2024/"><u>[New] Copycat Cinema  Steps for Satirical Video Making for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-youtube-gaming-content-with-key-freefire-hashtags-for-2024/"><u>[New] Elevate Your YouTube Gaming Content With Key FreeFire Hashtags for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audiovisual-interpretation-engine/"><u>[New] In 2024, Audiovisual Interpretation Engine</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-early-stage-youtube-wisdom-sidestep-these-8-common-mistakes/"><u>[New] In 2024, Early-Stage YouTube Wisdom  Sidestep These 8 Common Mistakes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-game-with-immediate-skilled-valorant-thumbnails/"><u>[New] In 2024, Elevate Your Game with Immediate, Skilled Valorant Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-the-neuroscience-of-decision-making-and-its-implications-for-leadership/"><u>[New] In 2024, Exploring the Neuroscience of Decision-Making and Its Implications for Leadership</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-quickly-master-time-lapse-techniques-for-samsung-phones/"><u>[New] Quickly Master Time Lapse  Techniques for Samsung Phones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-stepwise-journey-becoming-a-pro-with-audacity-for-recording-for-2024/"><u>[New] Stepwise Journey  Becoming a Pro with Audacity for Recording for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-integration-a-beginners-guide-to-google-meet/"><u>[New] YouTube Integration  A Beginner's Guide to Google Meet</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-monetization-milestone-500-subscribers-achieved/"><u>[New] YouTube's Monetization Milestone  500 Subscribers Achieved</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivating-viewers-top-10-creative-yt-reaction-tactics/"><u>[Updated] 2024 Approved  Captivating Viewers  Top 10 Creative YT Reaction Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-decoding-youtube-exchange-threads/"><u>[Updated] 2024 Approved  Decoding YouTube Exchange Threads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-dollars-in-motion-a-side-by-side-of-vids-vs-videos/"><u>[Updated] 2024 Approved  Digital Dollars in Motion  A Side-by-Side of Vids Vs. Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-effective-color-difference-filters-in-film-making/"><u>[Updated] 2024 Approved  Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-crafting-captivating-chronicles-a-guide-to-storytelling-schools-1-8-for-2024/"><u>[Updated] Crafting Captivating Chronicles  A Guide to Storytelling Schools (#1-#8) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dissecting-the-income-from-a-million-on-youtube-for-2024/"><u>[Updated] Dissecting the Income From a Million on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-engagement-youtube-seo-must-haves-for-2024/"><u>[Updated] Elevate Engagement - YouTube SEO Must-Haves for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-engaging-emojis-boost-your-videos-appeal-without-payments-for-2024/"><u>[Updated] Engaging Emojis  Boost Your Video's Appeal Without Payments for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhancing-facebooks-reflective-feature-editing-techniques-for-2024/"><u>[Updated] Enhancing Facebook's Reflective Feature  Editing Techniques for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-expert-advice-on-quick-and-clean-ppt-captures-for-2024/"><u>[Updated] Expert Advice on Quick and Clean PPT Captures for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-become-a-travel-vlogger-guide-of-travel-vlogging/"><u>[Updated] How To Become A Travel Vlogger | Guide of Travel Vlogging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-clearing-up-confusion-understanding-digital-rights-management-drm/"><u>[Updated] In 2024, Clearing Up Confusion  Understanding Digital Rights Management (DRM)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easy-and-fast-convert-youtube-music-into-mp3-mac-version/"><u>[Updated] In 2024, Easy & Fast  Convert YouTube Music Into MP3, Mac Version</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-professional-approaches-to-preserving-ps3-games-on-screen/"><u>[Updated] In 2024, Professional Approaches to Preserving PS3 Games On Screen</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-long-videos-on-youtube-through-effective-chapter-management/"><u>[Updated] Streamlining Long Videos on YouTube Through Effective Chapter Management</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tactics-to-expose-youtubes-well-guarded-videotapes/"><u>[Updated] Tactics to Expose YouTube's Well-Guarded Videotapes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-guide-to-purchasing-asmr-microphones/"><u>[Updated] Ultimate Guide to Purchasing ASMR Microphones</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-5-microphones-compatible-with-macos/"><u>2024 Approved  Top 5 Microphones Compatible with MacOS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/effortless-itunes-for-podcast-enthusiasts/"><u>Effortless iTunes for Podcast Enthusiasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/freepaid-audio-cleanup-tools-for-higher-video-quality/"><u>Free/Paid Audio-Cleanup Tools for Higher Video Quality</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-samsung-galaxy-s23-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Samsung Galaxy S23? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/seamless-integration-turning-audio-into-written-format-in-ms-word/"><u>Seamless Integration  Turning Audio Into Written Format in MS Word</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/tackle-civ-5-errors-on-computer/"><u>Tackle Civ 5 Errors on Computer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-epic-creators-colloquium-for-2024/"><u>The Epic Creator's Colloquium for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-essential-sports-highlight-film-manual-for-2024/"><u>The Essential Sports Highlight Film Manual for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/visual-humor-for-iphones-enthusiasts/"><u>Visual Humor for iPhones Enthusiasts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-samsung-galaxy-s23-ultra-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Samsung Galaxy S23 Ultra? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>

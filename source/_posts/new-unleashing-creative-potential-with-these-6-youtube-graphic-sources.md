@@ -1,7 +1,7 @@
 ---
 title: "[New] Unleashing Creative Potential with These 6 YouTube Graphic Sources"
-date: 2024-06-05T06:44:27.097Z
-updated: 2024-06-06T06:44:27.097Z
+date: 2024-07-31T03:42:04.107Z
+updated: 2024-08-01T03:42:04.107Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
 
 # 6 Completely Different Places to Get Icons and Logos for YouTube Videos
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -50,12 +53,18 @@ I’m putting Flaticon.com right at the top of this list because it has somethin
 
 You start out on Flaticon by searching for a theme like beauty, gaming, flowers, or emojis. I searched for ‘birds’ and found these cuties.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon Download Site Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon.jpg)
 
 _These aren’t all the birds on Flaticon, just a few._ _They had a huge selection in all the different searches I tried._
 
 I clicked on the brown bird to open up the download screen, and then clicked into ‘Edit icon’. There may be a pop up that tells you editing tools are only available to registered users, but it’s wrong. Just close it and keep going, unless you want to register.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![  Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon-example-1.jpg)
 
 You can edit the colors in your icon just by clicking on the color you want to replace, and then clicking on the color in the color selector you want to replace it with. I made my birdie FLY.
@@ -92,6 +101,9 @@ You can’t edit on freepik, and in order to download for free you need to inclu
 
 You do not choose what format to download your images in on freepik. When you hit ‘Free Download’ it will automatically download a zip file which will contain both a .jpg and a .eps. The EPS is editable in any ‘vector graphics editor’, like Adobe Illustrator, and YouTube supports .jpg files.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. [Seeklogo.net](https://www.seeklogo.net/)
 
 **Key Points:**
@@ -118,6 +130,9 @@ Although the site does not advertise PNG in the list of formats on their front p
 
 IconArchive has a huge selection of icons with somewhat of an office/business slant. I searched for ‘flower’ and half the results were of file-folders with flowers on them.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
 
 _Could be cool for a lifestyle video about school or work?_
@@ -150,10 +165,16 @@ When you arrive on Logaster there’s a button right on their home page that say
 
 In Step 1 it’ll ask for your company name and an activity type. You just need to put in your channel name and choose something from the activity drop down that you focus on in your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
 
 _There are 10 pages of suggestions!_
@@ -164,6 +185,9 @@ After you click ‘save’ in the last step you’ll be prompted to provide an e
 
 I personally wouldn’t recommend buying an image from here unless your channel is for your small business and you need things like branded business cards and letterhead. This site might be better for gathering inspiration than actually downloading a logo from.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. [Icons8.com](https://icons8.com/)
 
 **Key Points:**
@@ -184,6 +208,9 @@ _Lower down in the results there were different kinds of sports balls, hand-held
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
 
 You can give your icon a pretty different look from its default. Check this out:
@@ -192,16 +219,26 @@ You can give your icon a pretty different look from its default. Check this out:
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
 
 I downloaded my image and tried to see how it would look as an icon/profile picture. As you can see, it was pretty blurry in the preview:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![ Add Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/add-gaming-icons-logos-made-with-icons8.jpg)
 
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
 
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
@@ -226,3 +263,42 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-2023-update-sony-bdp-s3700-in-depth-analysis/"><u>[New] 2023 Update  Sony BDP-S3700 in Depth Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cut-the-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt/"><u>[New] 2024 Approved  Cut the Clutter, Convert Videos  Discover the Best Alternatives for Flv to YT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-the-depths-of-asmr-audio-magic/"><u>[New] 2024 Approved  Exploring the Depths of ASMR Audio Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elite-screening-pacts-how-to-choose-a-cms-for-2024/"><u>[New] Elite Screening Pacts  How to Choose a CMS for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-flawless-image-reader-with-quick-access/"><u>[New] Flawless Image Reader with Quick Access</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-immersive-illusions-how-vr-transforms-media-consumption/"><u>[New] Immersive Illusions  How VR Transforms Media Consumption</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-integrate-spotify-and-youtube-top-5-playlist-to-channel-converters-available/"><u>[New] Integrate Spotify and YouTube  Top 5 Playlist-to-Channel Converters Available</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-next-generation-of-video-communities-post-youtube/"><u>[New] The Next Generation of Video Communities Post-YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-skills-essential-insights-unveiled/"><u>[New] YouTube Skills  Essential Insights Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>[Updated] 2024 Approved  Choosing the Best Camera for Filming  Mirrorless or DSLR</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-directing-content-destination-from-imovie-files-to-youtube-platform/"><u>[Updated] 2024 Approved  Directing Content Destination  From iMovie Files To YouTube Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-escaping-a-stroke-on-your-youtube-channel/"><u>[Updated] 2024 Approved  Escaping a Stroke on Your YouTube Channel</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-premium-tools-for-tag-analysis-across-fb-twitter-and-instagram/"><u>[Updated] 2024 Approved  Premium Tools for Tag Analysis Across FB, Twitter and Instagram</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-uncomplicated-techniques-for-keeping-a-transcript-of-google-voice-calls/"><u>[Updated] 2024 Approved  Uncomplicated Techniques for Keeping a Transcript of Google Voice Calls</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-easy-steps-for-recording-video-from-your-switch/"><u>[Updated] Easy Steps for Recording Video From Your Switch</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-deleted-and-found-again-streaming-yts-forgotten-videos/"><u>[Updated] In 2024, Deleted and Found Again  Streaming YT’s Forgotten Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-does-quick-subscribe-strategy-boost-audience-growth/"><u>[Updated] In 2024, Does Quick-Subscribe Strategy Boost Audience Growth?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-remove-inconvenient-black-edges-from-youtube-videos/"><u>[Updated] Remove Inconvenient Black Edges From YouTube Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-streamers-in-a-dilemma-obs-or-twitch-space-in-2024/"><u>[Updated] Streamers in a Dilemma  OBS or Twitch Space, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-yt-loop-technique-for-the-digital-content-wanderer/"><u>[Updated] YT Loop Technique for the Digital Content Wanderer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/6-proven-ways-to-unlock-xiaomi-redmi-note-12-pro-4g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Xiaomi Redmi Note 12 Pro 4G Phone When You Forget the Password</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-essentials-freeze-frames-slow-mo-and-more-for-2024/"><u>FCPX Essentials Freeze Frames, Slow-Mo, and More for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-samsung-galaxy-a54-5g-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-samsung-galaxy-m34-5g-frp-bypass-by-drfone-android/"><u>In 2024, About Samsung Galaxy M34 5G FRP Bypass</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-can-you-unlock-iphone-6-plus-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>In 2024, Can You Unlock iPhone 6 Plus After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-infinix-note-30-vip-racing-editions-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Infinix Note 30 VIP Racing Editions Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-easy-guide-to-exceptional-thumbnails/"><u>In 2024, YouTube's Easy Guide to Exceptional Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pantheon-of-youtubes-all-time-highest-views-for-2024/"><u>Pantheon of YouTube's All-Time Highest Views for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-compilation-of-15-most-engaging-youtube-themes-for-2024/"><u>The Ultimate Compilation of 15 Most Engaging YouTube Themes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-unlisted-conundrum-dissecting-non-indexed-youtube-videos-for-2024/"><u>The Unlisted Conundrum  Dissecting Non-Indexed YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tips-for-effective-tripod-usage-in-video-blogging-for-2024/"><u>Tips for Effective Tripod Usage in Video Blogging for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/0-asmr-apps-on-smart-devices/"><u>Top 10 ASMR Apps on Smart Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transformative-tips-making-an-indelible-mark-in-the-digital-world-for-2024/"><u>Transformative Tips  Making an Indelible Mark in the Digital World for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unlocking-audible-content-from-twitter-videos-for-2024/"><u>Unlocking Audible Content From Twitter Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/upgrade-your-channels-visual-appeal-for-2024/"><u>Upgrade Your Channel's Visual Appeal for 2024</u></a></li>
+</ul></div>

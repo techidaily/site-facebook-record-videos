@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Squashing Social Media Smears with Grace"
-date: 2024-06-05T03:42:11.429Z
-updated: 2024-06-06T03:42:11.429Z
+date: 2024-07-30T22:34:36.415Z
+updated: 2024-07-31T22:34:36.415Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 
 # How To Deal with YouTube Trolls and Negative Comments
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -26,6 +29,9 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -52,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/e937c769751b4b8235d825da190a8de514c18ce6c
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -68,3 +78,39 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-endless-viewing-with-iphone-writes-of-video/"><u>[New] 2024 Approved  Endless Viewing with iPhone' Writes of Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-create-standout-videos-with-these-top-7-free-thumbnail-builders-for-2024/"><u>[New] Create Standout Videos with These Top 7 Free Thumbnail Builders for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-quality-without-the-mic-a-practical-guide-for-2024/"><u>[New] Enhancing Quality without the Mic  A Practical Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tools-top-8-mirrorless-cams-for-professional-filmmakers-for-2024/"><u>[New] Essential Tools  Top 8 Mirrorless Cams For Professional Filmmakers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earnings-explosion-boosting-your-youtube-channels-income-via-mobile/"><u>[New] In 2024, Earnings Explosion  Boosting Your YouTube Channel's Income via Mobile</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-echoes-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger/"><u>[New] In 2024, Echoes of Exploration  Your Step-by-Step Blueprint to Becoming a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-trailblazer-in-photo-music-fusion-crafting/"><u>[New] In 2024, Trailblazer in Photo-Music Fusion Crafting</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-methods-for-enhancing-testimonial-video-authenticity/"><u>[New] Innovative Methods for Enhancing Testimonial Video Authenticity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-making-an-impact-on-youtube-tips-on-banners-and-art-dimensions/"><u>[New] Making an Impact on YouTube  Tips on Banners and Art Dimensions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-team-ups-finding-perfect-co-stars/"><u>[New] Mastering YouTube Team-Ups  Finding Perfect Co-Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-doubt-into-action-channeling-vlogger-excellence/"><u>[New] Transforming Doubt Into Action  Channeling Vlogger Excellence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-writers-guide-embedding-images-in-articles-without-spending/"><u>[New] Writers' Guide  Embedding Images in Articles Without Spending</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-assessing-your-video-streaming-needs-to-subscribe-or-not-to-subscribe-in-2024/"><u>[Updated] Assessing Your Video Streaming Needs  To Subscribe or Not to Subscribe, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-boost-video-and-image-quality-on-the-go-naturally/"><u>[Updated] Boost Video & Image Quality on the Go, Naturally</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-demystifying-the-process-of-submitting-videos-on-youtube-for-2024/"><u>[Updated] Demystifying the Process of Submitting Videos on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-end-game-for-youtube-content-pros-secrets-and-templates-for-2024/"><u>[Updated] End Game for YouTube Content  Pros' Secrets & Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-behind-the-scenes-how-to-create-youtube-trailers-in-filmora/"><u>[Updated] In 2024, Behind the Scenes  How-To Create YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cooking-chronicles-video-production-insights/"><u>[Updated] In 2024, Cooking Chronicles  Video Production Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discover-the-top-7-free-youtube-tag-extractor-vendors/"><u>[Updated] In 2024, Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-how-to-feature-music-on-instant-stories/"><u>[Updated] In 2024, How to Feature Music on Instant Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-20-essential-youtube-tips-for-optimal-engagement/"><u>[Updated] Top 20 Essential YouTube Tips for Optimal Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unveiling-how-t-series-earnings-growth-on-youtube-works/"><u>[Updated] Unveiling How T-Series Earnings Growth on YouTube Works</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secrets-to-prolonging-gopros-energy-capacity/"><u>2024 Approved  Secrets to Prolonging GoPro's Energy Capacity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-wit-waves-the-top-10-jokes/"><u>2024 Approved  Wit Waves  The Top 10 Jokes</u></a></li>
+<li><a href="https://driver-install.techidaily.com/free-tp-link-drivers-for-wireless-pcs-secure-downloads/"><u>Free TP Link Drivers for Wireless PCs - Secure Downloads!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-tecno-spark-20c-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Tecno Spark 20C to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oppo-find-x7-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Oppo Find X7 Device</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-f54-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy F54 5G Device</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/music-matters-imovie-editing-tips-for-2024/"><u>Music Matters  IMovie Editing Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-auditory-alteration-aids-for-streamers-and-clips-for-2024/"><u>Top Auditory Alteration Aids for Streamers and Clips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-full-potential-of-youtubes-adsense-features-for-2024/"><u>Unlocking the Full Potential of YouTube's AdSense Features for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-oppo-a78-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Oppo A78? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-conversion-guide-top-8-picks-for-avi-enthusiasts-for-2024/"><u>YouTube Conversion Guide  Top 8 Picks for AVI Enthusiasts for 2024</u></a></li>
+</ul></div>

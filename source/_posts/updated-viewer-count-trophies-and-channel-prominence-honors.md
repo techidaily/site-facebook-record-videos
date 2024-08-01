@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Viewer Count Trophies & Channel Prominence Honors"
-date: 2024-06-05T03:15:43.009Z
-updated: 2024-06-06T03:15:43.009Z
+date: 2024-07-30T21:49:45.736Z
+updated: 2024-07-31T21:49:45.736Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,9 @@ Here are all of YouTube's levels, from small to big:
 
 [6\. The Diamond Creator Award](#The Diamond Creator Award)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Super High Level
 
 [7\. The Custom Creator Award](#The Custom Creator Award)
@@ -62,12 +65,18 @@ YouTube won't award the YouTubers of these levels with physical plaque but will 
 
 ### **#1: Graphite Level (0-1000 subscribers)**
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![play-btn-awards-graphite-level](https://images.wondershare.com/filmora/article-images/play-btn-awards-graphite-level.jpg)
 
 Graphite is the starter level. As soon as you start a YouTube channel, you will already be on this level until you get up to 1K subscribers. During this time, you should focus on learning how YouTube works and perfecting your video production and editing skills. If your YouTube Channel subscriber is over 100, then you will be allowed to custom the URL of your channel. For more information about Custom Channel URL, please read: [How to Find and Change Your YouTube Channel URL – Super Easy! >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### **#2: Opal Level (1000-10K subscribers)**
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![play-btn-awards-opal-level](https://images.wondershare.com/filmora/article-images/YouTube-Creator-Award.jpg)
 
 After you get your first thousand subscribers on your YouTube channel, you will be on the Opal Level. This is one of the three requirements for getting access to the [Partner Program for monetization](https://tools.techidaily.com/wondershare/filmora/download/). By this point, you'll have started to develop your own style and build a personal brand. This is the time to start networking with other YouTubers and trying to find collaboration partners.
@@ -76,16 +85,29 @@ After you get your first thousand subscribers on your YouTube channel, you will 
 
 Getting ten thousand subscribers is a big deal. By this point, you have enough of a following that they could be called a fanbase, and you can start leveraging your platform to make money through AdSense. Once you pass 10K subscribers, it starts to become easier to find brand deals and sponsorships too. YouTube will offer an additional option of Teespring for the monetized channel at this level.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Awards Level
 
 When a verified YouTube channel reaches a specific milestone and is deemed eligible for a creator award, they are awarded a relatively flat trophy in a metal casing with a YouTube play button symbol.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### **#4: The Silver Creator Award (100K-1 million subscribers)**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 **![silver creator award](https://images.wondershare.com/filmora/article-images/silver-creator-award.jpg)**
 
 This is the first level that comes with a trophy. YouTubers with a Silver Play Button probably won't be earning enough money from YouTube to support themselves, but they're in a good position to start going after more lucrative brand deals. Creators at this level may be earning enough to invest in some better camera gear. Channels at this level are also eligible to apply for a digital verification badge.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **#5: The Gold Creator Award (1 million-10 million subscribers)**
 
 **![play-btn-awards-gold-level](https://images.wondershare.com/filmora/article-images/youtube-creator-award-gold-plaque.jpg)**
@@ -94,8 +116,14 @@ _If people mean graphite when they say 'lead,' and alchemists turn lead into gol
 
 At this level, you're making money. When you first reach 1 million, it may still not be enough to live off of, but you're getting close to being able to make YouTube your job (which you will probably be able to do before leaving the Gold Level). Things like your own makeup line or a book deal are not out of the question at this point.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### **#6: The Diamond Creator Award (10 million-50 million subscribers)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![play-btn-awards-diamond-level](https://images.wondershare.com/filmora/article-images/youtube-creator-awards-diamond.jpg)
 
 You're a YouTube star. You've made it. You're making enough money that YouTube/projects spawned from your YouTube channel support you completely, and you've probably got a team of helpers. Expect to be going on tours to meet and perform for your fans' live. Also, if you didn't have a book deal before, you almost definitely have one now.
@@ -104,6 +132,9 @@ You're a YouTube star. You've made it. You're making enough money that YouTube/p
 
 The awards in these levels are absent from the Creator Awards page. Only a handful of channels achieved these levels.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **#7: The Custom Creator Award (50 million subscribers)**
 
 **![play-btn-awards-diamond-level](https://images.wondershare.com/filmora/article-images/pewdiepie-custom-creator-award.jpg)**
@@ -112,6 +143,9 @@ For channels whose subscribers are over 50 million, PewDiePie is the first perso
 
 ### **#8: The Red Diamond Creator Award (100 million subscribers)**
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **![red diamond creator award](https://images.wondershare.com/filmora/article-images/red-diamond-creator-award.jpg)**
 
 The play button at this level features a play button triangle with a large dark red crystal. If you are able to obtain the award at this level, monetization should never be for you to worry about. One hundred million subscribers mean that 1.3% of the people on this planet are watching you. You'd be a legend if you made it. As of August 2020, only PewDiePie and T-series have obtained this award.
@@ -124,6 +158,9 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -140,3 +177,35 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-visual-appeal-youtube-images-in-presentations-for-2024/"><u>[New] Enhancing Visual Appeal  YouTube Images in Presentations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-engagement-through-thoughtful-youtube-tags/"><u>[New] In 2024, Enhancing Engagement Through Thoughtful YouTube Tags</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-the-art-of-youtube-thumbnails-on-macos/"><u>[New] Mastering the Art of YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtubes-creative-commons-licensing-guide/"><u>[New] Mastering YouTube’s Creative Commons Licensing Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revealing-veiled-youtube-reviewers-opinions/"><u>[New] Revealing Veiled YouTube Reviewers' Opinions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-subscribe-bonanza-thousands-acquired-for-just-5/"><u>[New] Subscribe Bonanza  Thousands Acquired for Just $5</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-filmmakers-guide-to-avoiding-overused-channel-labels/"><u>[New] The Filmmaker's Guide to Avoiding Overused Channel Labels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tips-to-enhance-screen-brightness-of-youtube-videos/"><u>[New] Tips to Enhance Screen Brightness of YouTube Videos</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-trending-tutorial-tracker/"><u>[New] Trending Tutorial Tracker</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-the-power-of-youtube-frames-without-financial-cost/"><u>[New] Unlock the Power of YouTube Frames Without Financial Cost</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capture-the-thrill-essential-recording-tips-for-overwatch/"><u>[Updated] 2024 Approved  Capture the Thrill  Essential Recording Tips for Overwatch</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-revenue-in-20-second-chunks-youtube-shorts-magic/"><u>[Updated] 2024 Approved  Crafting Revenue in 20-Second Chunks  YouTube Shorts Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-video-game-with-these-5-youtube-thumbnail-builders/"><u>[Updated] 2024 Approved  Elevate Your Video Game with These 5 YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-your-youtube-live-with-these-7-powerful-live-streaming-apps-iosandroid-os-for-2024/"><u>[Updated] Ace Your YouTube LIVE with These 7 Powerful Live Streaming Apps (iOS/Android OS) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-behind-the-scenes-insights-deciphering-what-unlisted-means-for-youtube-users-for-2024/"><u>[Updated] Behind-the-Scenes Insights  Deciphering What 'Unlisted' Means for YouTube Users for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-bits-of-bulb-tech-top-17-choices-for-2024/"><u>[Updated] Best Bits of Bulb Tech - Top 17 Choices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cognitive-cornerstones-essential-educational-content-yt-for-2024/"><u>[Updated] Cognitive Cornerstones  Essential Educational Content YT for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-breaking-into-the-digital-realm-the-wirecast-approach-for-youtube-streamers/"><u>[Updated] In 2024, Breaking Into the Digital Realm  The WireCast Approach for YouTube Streamers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essential-guide-to-embedding-youtube-into-gslides/"><u>[Updated] The Essential Guide to Embedding YouTube Into GSlides</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/explore-fb-moments-privately-for-2024/"><u>Explore FB Moments Privately for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-samsung-galaxy-a05s-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Samsung Galaxy A05s Quickly? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-quick-and-clean-method-to-live-podcast/"><u>In 2024, Quick & Clean Method to Live Podcast</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-gradual-audio-silence-with-audacity-for-2024/"><u>Mastering Gradual Audio Silence with Audacity for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-the-ultimate-guide-to-premier-android-daw-software/"><u>New 2024 Approved The Ultimate Guide to Premier Android DAW Software</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-the-art-of-diminishing-sound-effects-fading-out-audio-in-imovie-projects/"><u>New In 2024, The Art of Diminishing Sound Effects Fading Out Audio in iMovie Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pro-grade-streaming-tools-best-software-and-hardware-reviewed-for-2024/"><u>Pro-Grade Streaming Tools  Best Software & Hardware Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-youtube-video-mastery-through-finalcut-pro-methods-for-2024/"><u>Unveiling YouTube Video Mastery Through FinalCut Pro Methods for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-biggest-beauty-influencers-on-youtube/"><u>Year's Biggest Beauty Influencers on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-richest-content-creator-ever-for-2024/"><u>YouTube's Richest Content Creator Ever for 2024</u></a></li>
+</ul></div>

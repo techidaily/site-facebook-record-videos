@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How Often Can Creators Expect to Be Paid by YouTube?"
-date: 2024-06-05T03:46:22.485Z
-updated: 2024-06-06T03:46:22.485Z
+date: 2024-07-30T22:41:35.946Z
+updated: 2024-07-31T22:41:35.946Z
 tags:
   - ai video
   - ai youtube
@@ -26,18 +26,28 @@ For anyone looking to start earning passive income via YouTube, but have the que
 
 * [More FAQs About How Much YouTubers Make](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How Often Does YouTube Pay
 
 As mentioned earlier, YouTube pays monthly. It’s usually within the first 10-14 days of a new month (10th day or 14th day of a new month). However, to be able to receive your funds, you must reach the minimum threshold of your local currency as required by YouTube. For example, $100 for content creators within the United States.
 
 Also, you must comply with the YouTube monetization policies and not be suspended by YouTube in the past month.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## Part 2: How Does YouTube Pay – Typical Methods Used
 
 Research shows that YouTube’s average pay rate is within the range of $0.01 to $0.03 per ad view. This means for every 1,000 ad views, a YouTuber could earn $18, while for every 1,000 video views, you could earn $3 to $5\. You might ask “Does YouTube pay creators per view?’ Well, the answer is NO, YouTube doesn’t pay creators per view. They pay per monetized view.
 
 However, to get started making money per monetized views, you need to join the YouTube Partnership Program. As mentioned earlier, YouTube Partner Program (YPP) gives creators access to start generating revenue with their channel once they reach a minimum of 1,000 YouTube subscribers and 4,000 watch ours in the last twelve months. It gives creators access to different monetization features like advertising, merchandise sales, fan funding, and lots more.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### ● Earn Money Through Ad Views
 
 Advertisers pay for YouTube ads based on clicks and impressions, and YouTube monetizes creators' videos by displaying these ads in different advertising formats like pre-roll, display, etc. So, once these ads display in your video and your subscribers click on them, you get paid.
@@ -54,6 +64,9 @@ The image below displays the requirement to start displaying ads on your YouTube
 
 Besides ads, there are other ways to monetize your YouTube channel. You could also earn through a corporate sponsorship from brands, selling your products, etc. Keep reading to find out more ways to earn money from YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Affiliate Marketing
 
 ![youtube affilate marketing](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-2.jpg)
@@ -76,12 +89,18 @@ Also, your YouTube channel data statistics such as total subscribers, average vi
 
 ### 3\. Selling Own Products or Services
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![sell products on youtube](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-4.jpg)
 
 Selling your products or services is another great way to monetize your YouTube channel. You could sell your merch, gaming tools, and other things related to the theme of the content you create for your loyal fans to purchase.
 
 If you don’t have a product, you could charge your viewers for exclusive content, sell online courses for dropshipping, sell cryptocurrency trading e-books, etc. The only thing is you need to have a large following to earn well from this YouTube monetization option.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: More FAQs About How Much YouTubers Make
 
 At this point, you should already have a brief idea of how YouTube monetization works. However, if you still want to discover more information, keep reading to check out more FAQs on how much YouTubers make.
@@ -128,6 +147,9 @@ With Ads, you can earn money based on every 1,000 views get from your video and 
 
 The image below displays the requirement to start displaying ads on your YouTube videos;
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![youtube partnership program](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-1.jpg)
 
 ## Part 3: More Opportunities To Earn More Money From YouTube
@@ -136,6 +158,9 @@ Besides ads, there are other ways to monetize your YouTube channel. You could al
 
 ### 1\. Affiliate Marketing
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube affilate marketing](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-2.jpg)
 
 You might have come across YouTube videos where the creators talk about their favorite brands and add links to the platform for the brand. Well, that’s a form of affiliate marketing.
@@ -154,14 +179,23 @@ Research shows that sponsorship deals are usually within the range of $200 to ov
 
 Also, your YouTube channel data statistics such as total subscribers, average video impressions in the past months, likes, comments, and more are other factors that will determine how much brands will offer you to seal a sponsorship deal.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Selling Own Products or Services
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![sell products on youtube](https://images.wondershare.com/filmora/article-images/2022/11/does-youtube-pay-monthly-4.jpg)
 
 Selling your products or services is another great way to monetize your YouTube channel. You could sell your merch, gaming tools, and other things related to the theme of the content you create for your loyal fans to purchase.
 
 If you don’t have a product, you could charge your viewers for exclusive content, sell online courses for dropshipping, sell cryptocurrency trading e-books, etc. The only thing is you need to have a large following to earn well from this YouTube monetization option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: More FAQs About How Much YouTubers Make
 
 At this point, you should already have a brief idea of how YouTube monetization works. However, if you still want to discover more information, keep reading to check out more FAQs on how much YouTubers make.
@@ -178,6 +212,18 @@ The rate at which YouTubers get paid depends on certain factors like the audienc
 
 Honestly, there's no specific answer to how much a YouTuber makes a year. However, research shows that an average YouTuber makes up to $60,000 annually.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Final Words
 
 As you can see, there are different ways you could monetize your YouTube channel. Be it via affiliate marketing, ads, selling products, or more. Regardless of how you want to monetize your YouTube channel, the article has covered the basics you must know to make the process easier.
@@ -198,6 +244,9 @@ As you can see, there are different ways you could monetize your YouTube channel
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## 5 Critical Equipment Items to Start Your Channel Right
 
 # Essential YouTube Equipment For Starting Your Channel - What Do You Really Need?
@@ -234,6 +283,117 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## YouTube Microphone and Audio
+
+**The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**The long version:** Sound capturing is every bit as important for your success as your video feed. In fact, poor audio can be even more damaging to your subscriber count than grainy video, since people won’t spend their time listening to something they have to put effort into understanding.
+
+Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
+
+If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Lights for YouTube
+
+**The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
+
+**The long version:** If you’ve ever tried to make a video indoors, you already know that it’s necessary to have additional light. Often just filming with the normal lights in a room will cause your footage to look dark and grainy, and possibly be tinted orange. To overcome these problems you need to increase the amount of light you have available.
+
+Sometimes, it is enough to film near windows and/or bring more household lamps into your filming area. For any household lamps or lighting fixtures you use, make sure to put in white or ‘daylight’ lightbulbs instead of using the orange/tungsten bulbs that you might have for everyday use (this is how you avoid tinting things orange).
+
+If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
+
+Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
+## Tripods and Camera Stands
+
+**The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
+
+**The long version:** While handheld cameras can deliver solid results for vloggers and casual streamers, viewers do expect reasonably stable footage. For many types of videos, the camera needs to be completely still and flatly positioned on a horizontal plane. Tripods and camera stands can cost very little, so it’s a good idea to look into getting some kind of stabilizer.
+
+When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
+
+Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
+## Smartphone Camera Gear
+
+![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+**The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
+
+**The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
+
+On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
+
+Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Equipment with Easy-to-Use Video Editor
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+_Check out our most updated guide on this topic: [YouTube Equipment Starter Guide For Beginners](https://tools.techidaily.com/wondershare/filmora/download/)._
+
+The first thing to make sure of before starting a YouTube channel is having all that you need to record and upload high-quality videos regularly. That doesn’t mean you have to take out a loan and spend thousands to purchase a brand new camera and all other gadgets that professional filmmakers use.
+
+The smartest way to get started is to go through a list of **necessary equipment for YouTube** and check whether or not you already own some of it. Once your channel starts growing, you can then start thinking about whether you want to invest in upgraded equipment. Here is a quick overview of all items that you need to start entertaining your online audience and gaining subscribers to your YouTube channel:
+
+* [Your YouTube Camera](#camera)
+* [Microphones and Audio](#mic)
+* [Lighting Gear for YouTube](#light)
+* [Tripods and Camera Stands](#tripod)
+* [Smartphone Camera Gear](#phone)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## YouTube Cameras
+
+**The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
+
+**The long version: You** will need a camera, but there are a lot of different devices you can use including DSLRs, point and shoots, webcams, and your smartphone.
+
+Your choice of camera will have a tremendous impact on the visual quality of your content and might drive your decisions regarding other pieces of equipment. However, you shouldn’t feel obliged to work with a top-notch camera from day one, especially since cheaper options can produce great results if used the right way.
+
+On one end of the spectrum, you have basic smartphone cameras and web cameras, which are easy to come by and simple to operate. These days, high-end phones come equipped with quite powerful cameras that are more than sufficient for the needs of the average YouTuber. Better webcams can also do the job, although high-performance webcam models can get pretty expensive too. It is probably wise to resist the urge to start broadcasting with the built-in camera in your laptop and at least get a webcam or use your phone, but your computer’s camera is still always an option. Not having a better camera should never stop you from making YouTube videos.
+
+If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -256,6 +416,113 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
+## Tripods and Camera Stands
+
+**The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
+
+**The long version:** While handheld cameras can deliver solid results for vloggers and casual streamers, viewers do expect reasonably stable footage. For many types of videos, the camera needs to be completely still and flatly positioned on a horizontal plane. Tripods and camera stands can cost very little, so it’s a good idea to look into getting some kind of stabilizer.
+
+When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
+
+Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
+
+## Smartphone Camera Gear
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
+![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+**The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
+
+**The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
+
+On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
+
+Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
+
+## Equipment with Easy-to-Use Video Editor
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+_Check out our most updated guide on this topic: [YouTube Equipment Starter Guide For Beginners](https://tools.techidaily.com/wondershare/filmora/download/)._
+
+The first thing to make sure of before starting a YouTube channel is having all that you need to record and upload high-quality videos regularly. That doesn’t mean you have to take out a loan and spend thousands to purchase a brand new camera and all other gadgets that professional filmmakers use.
+
+The smartest way to get started is to go through a list of **necessary equipment for YouTube** and check whether or not you already own some of it. Once your channel starts growing, you can then start thinking about whether you want to invest in upgraded equipment. Here is a quick overview of all items that you need to start entertaining your online audience and gaining subscribers to your YouTube channel:
+
+* [Your YouTube Camera](#camera)
+* [Microphones and Audio](#mic)
+* [Lighting Gear for YouTube](#light)
+* [Tripods and Camera Stands](#tripod)
+* [Smartphone Camera Gear](#phone)
+
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## YouTube Cameras
+
+**The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
+
+**The long version: You** will need a camera, but there are a lot of different devices you can use including DSLRs, point and shoots, webcams, and your smartphone.
+
+Your choice of camera will have a tremendous impact on the visual quality of your content and might drive your decisions regarding other pieces of equipment. However, you shouldn’t feel obliged to work with a top-notch camera from day one, especially since cheaper options can produce great results if used the right way.
+
+On one end of the spectrum, you have basic smartphone cameras and web cameras, which are easy to come by and simple to operate. These days, high-end phones come equipped with quite powerful cameras that are more than sufficient for the needs of the average YouTuber. Better webcams can also do the job, although high-performance webcam models can get pretty expensive too. It is probably wise to resist the urge to start broadcasting with the built-in camera in your laptop and at least get a webcam or use your phone, but your computer’s camera is still always an option. Not having a better camera should never stop you from making YouTube videos.
+
+If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
+
+## YouTube Microphone and Audio
+
+**The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**The long version:** Sound capturing is every bit as important for your success as your video feed. In fact, poor audio can be even more damaging to your subscriber count than grainy video, since people won’t spend their time listening to something they have to put effort into understanding.
+
+Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
+
+If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Lights for YouTube
+
+**The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
+
+**The long version:** If you’ve ever tried to make a video indoors, you already know that it’s necessary to have additional light. Often just filming with the normal lights in a room will cause your footage to look dark and grainy, and possibly be tinted orange. To overcome these problems you need to increase the amount of light you have available.
+
+Sometimes, it is enough to film near windows and/or bring more household lamps into your filming area. For any household lamps or lighting fixtures you use, make sure to put in white or ‘daylight’ lightbulbs instead of using the orange/tungsten bulbs that you might have for everyday use (this is how you avoid tinting things orange).
+
+If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
+
+Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -280,8 +547,14 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 ## Equipment with Easy-to-Use Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -330,6 +603,18 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -354,6 +639,10 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ## Smartphone Camera Gear
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -364,182 +653,16 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-_Check out our most updated guide on this topic: [YouTube Equipment Starter Guide For Beginners](https://tools.techidaily.com/wondershare/filmora/download/)._
-
-The first thing to make sure of before starting a YouTube channel is having all that you need to record and upload high-quality videos regularly. That doesn’t mean you have to take out a loan and spend thousands to purchase a brand new camera and all other gadgets that professional filmmakers use.
-
-The smartest way to get started is to go through a list of **necessary equipment for YouTube** and check whether or not you already own some of it. Once your channel starts growing, you can then start thinking about whether you want to invest in upgraded equipment. Here is a quick overview of all items that you need to start entertaining your online audience and gaining subscribers to your YouTube channel:
-
-* [Your YouTube Camera](#camera)
-* [Microphones and Audio](#mic)
-* [Lighting Gear for YouTube](#light)
-* [Tripods and Camera Stands](#tripod)
-* [Smartphone Camera Gear](#phone)
-
-## YouTube Cameras
-
-**The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
-
-**The long version: You** will need a camera, but there are a lot of different devices you can use including DSLRs, point and shoots, webcams, and your smartphone.
-
-Your choice of camera will have a tremendous impact on the visual quality of your content and might drive your decisions regarding other pieces of equipment. However, you shouldn’t feel obliged to work with a top-notch camera from day one, especially since cheaper options can produce great results if used the right way.
-
-On one end of the spectrum, you have basic smartphone cameras and web cameras, which are easy to come by and simple to operate. These days, high-end phones come equipped with quite powerful cameras that are more than sufficient for the needs of the average YouTuber. Better webcams can also do the job, although high-performance webcam models can get pretty expensive too. It is probably wise to resist the urge to start broadcasting with the built-in camera in your laptop and at least get a webcam or use your phone, but your computer’s camera is still always an option. Not having a better camera should never stop you from making YouTube videos.
-
-If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
-
-## YouTube Microphone and Audio
-
-**The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**The long version:** Sound capturing is every bit as important for your success as your video feed. In fact, poor audio can be even more damaging to your subscriber count than grainy video, since people won’t spend their time listening to something they have to put effort into understanding.
-
-Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
-
-If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-## Lights for YouTube
-
-**The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
-
-**The long version:** If you’ve ever tried to make a video indoors, you already know that it’s necessary to have additional light. Often just filming with the normal lights in a room will cause your footage to look dark and grainy, and possibly be tinted orange. To overcome these problems you need to increase the amount of light you have available.
-
-Sometimes, it is enough to film near windows and/or bring more household lamps into your filming area. For any household lamps or lighting fixtures you use, make sure to put in white or ‘daylight’ lightbulbs instead of using the orange/tungsten bulbs that you might have for everyday use (this is how you avoid tinting things orange).
-
-If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
-
-Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
-
-## Tripods and Camera Stands
-
-**The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
-
-**The long version:** While handheld cameras can deliver solid results for vloggers and casual streamers, viewers do expect reasonably stable footage. For many types of videos, the camera needs to be completely still and flatly positioned on a horizontal plane. Tripods and camera stands can cost very little, so it’s a good idea to look into getting some kind of stabilizer.
-
-When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
-
-Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
-
-## Smartphone Camera Gear
-
-![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
-
-**The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
-
-**The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
-
-On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
-
-Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
-
-## Equipment with Easy-to-Use Video Editor
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-_Check out our most updated guide on this topic: [YouTube Equipment Starter Guide For Beginners](https://tools.techidaily.com/wondershare/filmora/download/)._
-
-The first thing to make sure of before starting a YouTube channel is having all that you need to record and upload high-quality videos regularly. That doesn’t mean you have to take out a loan and spend thousands to purchase a brand new camera and all other gadgets that professional filmmakers use.
-
-The smartest way to get started is to go through a list of **necessary equipment for YouTube** and check whether or not you already own some of it. Once your channel starts growing, you can then start thinking about whether you want to invest in upgraded equipment. Here is a quick overview of all items that you need to start entertaining your online audience and gaining subscribers to your YouTube channel:
-
-* [Your YouTube Camera](#camera)
-* [Microphones and Audio](#mic)
-* [Lighting Gear for YouTube](#light)
-* [Tripods and Camera Stands](#tripod)
-* [Smartphone Camera Gear](#phone)
-
-## YouTube Cameras
-
-**The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
-
-**The long version: You** will need a camera, but there are a lot of different devices you can use including DSLRs, point and shoots, webcams, and your smartphone.
-
-Your choice of camera will have a tremendous impact on the visual quality of your content and might drive your decisions regarding other pieces of equipment. However, you shouldn’t feel obliged to work with a top-notch camera from day one, especially since cheaper options can produce great results if used the right way.
-
-On one end of the spectrum, you have basic smartphone cameras and web cameras, which are easy to come by and simple to operate. These days, high-end phones come equipped with quite powerful cameras that are more than sufficient for the needs of the average YouTuber. Better webcams can also do the job, although high-performance webcam models can get pretty expensive too. It is probably wise to resist the urge to start broadcasting with the built-in camera in your laptop and at least get a webcam or use your phone, but your computer’s camera is still always an option. Not having a better camera should never stop you from making YouTube videos.
-
-If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
-
-## YouTube Microphone and Audio
-
-**The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**The long version:** Sound capturing is every bit as important for your success as your video feed. In fact, poor audio can be even more damaging to your subscriber count than grainy video, since people won’t spend their time listening to something they have to put effort into understanding.
-
-Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
-
-If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-## Lights for YouTube
-
-**The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
-
-**The long version:** If you’ve ever tried to make a video indoors, you already know that it’s necessary to have additional light. Often just filming with the normal lights in a room will cause your footage to look dark and grainy, and possibly be tinted orange. To overcome these problems you need to increase the amount of light you have available.
-
-Sometimes, it is enough to film near windows and/or bring more household lamps into your filming area. For any household lamps or lighting fixtures you use, make sure to put in white or ‘daylight’ lightbulbs instead of using the orange/tungsten bulbs that you might have for everyday use (this is how you avoid tinting things orange).
-
-If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
-
-Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
-
-## Tripods and Camera Stands
-
-**The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
-
-**The long version:** While handheld cameras can deliver solid results for vloggers and casual streamers, viewers do expect reasonably stable footage. For many types of videos, the camera needs to be completely still and flatly positioned on a horizontal plane. Tripods and camera stands can cost very little, so it’s a good idea to look into getting some kind of stabilizer.
-
-When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
-
-Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
-
-## Smartphone Camera Gear
-
-![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
-
-**The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
-
-**The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
-
-On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
-
-Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
-
-## Equipment with Easy-to-Use Video Editor
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -562,3 +685,41 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-achieving-financial-independence-on-youtube-via-views/"><u>[New] 2024 Approved  Achieving Financial Independence on YouTube via Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-creating-impactful-outros-top-6-free-tools/"><u>[New] 2024 Approved  Creating Impactful Outros  Top 6 FREE Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>[New] 2024 Approved  Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-ensuring-profitability-in-youtube-with-correct-monetization/"><u>[New] 2024 Approved  Ensuring Profitability in YouTube with Correct Monetization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube-for-2024/"><u>[New] Assessing the Value of 4-Second Rapid Subscriptions on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-behind-the-numbers-carryminatis-youtube-wealth-for-2024/"><u>[New] Behind the Numbers  CarryMinati’s YouTube Wealth for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-boost-your-gaming-presence-with-easy-and-cost-effective-character-voice-alteration-in-free-fire/"><u>[New] Boost Your Gaming Presence with Easy and Cost-Effective Character Voice Alteration in Free Fire</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-the-best-tools-and-tips-to-accurately-tag-your-videos-for-2024/"><u>[New] Discover the Best Tools & Tips to Accurately Tag Your Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-the-leading-youtube-to-webm-converter-tools-for-2024/"><u>[New] Discover the Leading YouTube-to-WebM Converter Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-combining-youtube-and-imovie-for-professional-results/"><u>[Updated] 2024 Approved  Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-download-youtube-snippets-with-perfection/"><u>[Updated] 2024 Approved  Download YouTube Snippets with Perfection</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-explore-top-rated-windows-10-video-capture-software/"><u>[Updated] 2024 Approved  Explore Top-Rated Windows 10 Video Capture Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-demystifying-video-seo-on-youtube-as-a-novice-for-2024/"><u>[Updated] Demystifying Video SEO on YouTube as a Novice for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-daily-blog-key-practices-and-avoidance-tactics-for-2024/"><u>[Updated] Elevate Your Daily Blog  Key Practices and Avoidance Tactics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-endorsed-gpus-for-top-quality-online-video-playback-for-2024/"><u>[Updated] Expert-Endorsed GPUs for Top Quality Online Video Playback for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-saving-facebook-gifs-on-computer-phone-and-tablet/"><u>[Updated] In 2024, Saving Facebook GIFs on Computer, Phone & Tablet</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-gloves-transforming-vr-playtime/"><u>[Updated] Leading Gloves Transforming VR Playtime</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-monetization-mastery-how-ajay-achieves-wealth-online/"><u>[Updated] Monetization Mastery  How AJay Achieves Wealth Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-youtube-sharing-with-google-credentials/"><u>[Updated] Navigating YouTube Sharing with Google Credentials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-script-to-screen-your-guide-to-youtube-storytelling/"><u>[Updated] Script to Screen  Your Guide to YouTube Storytelling</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-creative-summit-top-talent-junction/"><u>[Updated] The Creative Summit  Top Talent Junction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-checklist-for-adding-effective-on-screen-captions-to-your-videos/"><u>[Updated] The Ultimate Checklist for Adding Effective On-Screen Captions to Your Videos</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-unlocking-archived-stories-from-facebook-a-digital-handbook-for-2024/"><u>[Updated] Unlocking Archived Stories From Facebook  A Digital Handbook for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-framing-photos-and-videos-playing-with-text-deformation/"><u>2024 Approved  Framing Photos & Videos  Playing With Text Deformation</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-techs-leading-edge-in-video-capturing-software/"><u>2024 Approved  Tech's Leading Edge in Video Capturing Software</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-unlocking-windows-hdr-capabilities-for-cutting-edge-video-workflows/"><u>2024 Approved  Unlocking Windows' HDR Capabilities for Cutting-Edge Video Workflows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-women-in-warfare-youtubes-elite-ten/"><u>2024 Approved  Women in Warfare  YouTube’s Elite Ten</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-ultimate-checklist-for-channel-buying-success/"><u>2024 Approved  Your Ultimate Checklist for Channel Buying Success</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/broadcasting-your-favorite-fb-videos-on-big-screen-for-2024/"><u>Broadcasting Your Favorite FB Videos on Big Screen for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/guidance-to-reconnect-controlled-audio-from-windows-bluetooth-devices/"><u>Guidance to Reconnect Controlled Audio From Windows' Bluetooth Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-honor-play-7twithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Honor Play 7Twith/without a PC</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-oppo-reno-8t-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Oppo Reno 8T Phone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/personalized-instagram-notification-melodies-for-2024/"><u>Personalized Instagram Notification Melodies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/virtual-hubs-for-scouting-sponsorship-opportunities-on-youtube-for-2024/"><u>Virtual Hubs for Scouting Sponsorship Opportunities on Youtube for 2024</u></a></li>
+</ul></div>

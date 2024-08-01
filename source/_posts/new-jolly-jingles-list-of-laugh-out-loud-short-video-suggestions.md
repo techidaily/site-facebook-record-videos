@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Jolly Jingles  List of Laugh Out Loud, Short Video Suggestions\""
-date: 2024-06-05T06:51:11.739Z
-updated: 2024-06-06T06:51:11.739Z
+date: 2024-07-31T03:53:38.581Z
+updated: 2024-08-01T03:53:38.581Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,9 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -40,6 +43,9 @@ Then the right platform with a plethora of pictures is covered hereunder the fol
 
 Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you have such beautiful dreams that you would like to share with your loved ones. Then YouTube Shorts ideas are the right platform full of views, likes, and lovers from around the world. Just give a thrust to it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
@@ -48,6 +54,9 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
@@ -74,6 +83,9 @@ Living every moment creates a wonder. Let others also make a part of this journe
 
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
@@ -106,6 +118,9 @@ Mixing some comedy flavor to life will add more fun and enjoyment to all those s
 
 Pets are the favorite of those who own them. They are excellent; they play, dance, and do different kinds of fun activities. Have you ever noticed that, if not, they must take notice now?
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
 
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
@@ -114,6 +129,18 @@ You will be surprised to see how much fun-loving these cute pets are—so, geare
 
 Everybody holds some unique talent. You just need to identify it. If you have some talent, then showcasing talent ideas for YouTube Shorts will apt you. The whole world is waiting to see something unique that only you can do. So, shred your shyness and let the world see how talented you are.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
 
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
@@ -164,6 +191,9 @@ Then, indeed, this guide is the pathway. You will get different funny YouTube Sh
 
 Thus, start utilizing these powerful ideas and tips and head towards your YouTube Shorts journey.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -180,3 +210,67 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-achieving-financial-independence-on-youtube-via-views/"><u>[New] 2024 Approved  Achieving Financial Independence on YouTube via Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-creating-impactful-outros-top-6-free-tools/"><u>[New] 2024 Approved  Creating Impactful Outros  Top 6 FREE Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-techniques-in-live-streamed-gaming/"><u>[New] 2024 Approved  Cutting-Edge Techniques in Live-Streamed Gaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>[New] 2024 Approved  Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-ensuring-profitability-in-youtube-with-correct-monetization/"><u>[New] 2024 Approved  Ensuring Profitability in YouTube with Correct Monetization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-closer-look-at-youtubes-unlisted-content-category-for-2024/"><u>[New] A Closer Look at YouTube’s ‘Unlisted’ Content Category for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube-for-2024/"><u>[New] Assessing the Value of 4-Second Rapid Subscriptions on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-behind-the-numbers-carryminatis-youtube-wealth-for-2024/"><u>[New] Behind the Numbers  CarryMinati’s YouTube Wealth for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-bringing-images-to-life-expert-level-photo-text-editing/"><u>[New] Bringing Images to Life  Expert-Level Photo Text Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-identity-design-icons-and-thumbnails-essentials-for-2024/"><u>[New] Channel Identity Design  Icons & Thumbnails Essentials for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-complete-breakdown-the-dji-inspire-1-uav-for-2024/"><u>[New] Complete Breakdown  The DJI Inspire 1 UAV for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-the-leading-youtube-to-webm-converter-tools-for-2024/"><u>[New] Discover the Leading YouTube-to-WebM Converter Tools for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-essential-guide-to-cost-free-art-and-graphic-resources/"><u>[New] Essential Guide to Cost-Free Art & Graphic Resources</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-harmonized-technology-judgments-by-experts-for-2024/"><u>[New] Harmonized Technology Judgments by Experts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audiences-on-the-move-tracker-apps/"><u>[New] In 2024, Audiences on the Move Tracker Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-effortless-guide-never-see-youtube-shorts-again/"><u>[New] In 2024, Effortless Guide  Never See YouTube Shorts Again</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-effortlessly-journey-to-your-custom-designed-music-library-on-youtube/"><u>[New] In 2024, Effortlessly Journey to Your Custom-Designed Music Library on Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-emoji-tips-for-yt-comments-a-quick-guide/"><u>[New] In 2024, Emoji Tips for YT Comments  A Quick Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-must-try-best-6-fb-lite-videos-for-download/"><u>[New] In 2024, Must-Try  Best 6 FB Lite Videos for Download</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mixed-media-mastery-evaluating-splitcams-edge/"><u>[New] Mixed Media Mastery  Evaluating SplitCam's Edge</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-refined-conference-aesthetics-the-process-to-blur-backgrounds-for-2024/"><u>[New] Refined Conference Aesthetics  The Process to Blur Backgrounds for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-virality-of-jake-paul-a-youtube-odyssey/"><u>[New] The Virality of Jake Paul  A YouTube Odyssey</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-trivia-trek-exploring-yts-fascinating-figures-and-infographics/"><u>[New] Trivia Trek  Exploring YT's Fascinating Figures and Infographics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unique-vlogging-conversation-pieces/"><u>[New] Unique Vlogging Conversation Pieces</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-4-ways-to-set-up-your-talking-head-shots-for-youtube/"><u>[Updated] 2024 Approved  4 Ways To Set Up Your Talking-Head Shots For YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-combining-youtube-and-imovie-for-professional-results/"><u>[Updated] 2024 Approved  Combining YouTube and iMovie for Professional Results</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-convert-spotify-playlist-to-youtube-5-best-tools/"><u>[Updated] 2024 Approved  Convert Spotify Playlist To YouTube  5 Best Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-download-youtube-snippets-with-perfection/"><u>[Updated] 2024 Approved  Download YouTube Snippets with Perfection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dslr-or-mirrorless-for-high-quality-video-recording/"><u>[Updated] 2024 Approved  DSLR or Mirrorless for High-Quality Video Recording?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-escalating-image-size-ensuring-unimpaired-detail/"><u>[Updated] 2024 Approved  Escalating Image Size  Ensuring Unimpaired Detail</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-navigating-slack-integration-with-filmora-for-seamless-video-conferences/"><u>[Updated] 2024 Approved  Navigating Slack Integration with Filmora for Seamless Video Conferences</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-mobile-film-game-best-9-camera-add-ons-for-vloggers-for-2024/"><u>[Updated] Boost Your Mobile Film Game  Best 9 Camera Add-Ons For Vloggers for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-complete-visual-field-review-with-cam/"><u>[Updated] Complete Visual Field Review with Cam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-demystifying-video-seo-on-youtube-as-a-novice-for-2024/"><u>[Updated] Demystifying Video SEO on YouTube as a Novice for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-daily-blog-key-practices-and-avoidance-tactics-for-2024/"><u>[Updated] Elevate Your Daily Blog  Key Practices and Avoidance Tactics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-endorsed-gpus-for-top-quality-online-video-playback-for-2024/"><u>[Updated] Expert-Endorsed GPUs for Top Quality Online Video Playback for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harmonized-high-res-overlays-for-devices/"><u>[Updated] Harmonized High-Res Overlays for Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-insert-youtube-playlists-seamlessly-into-a-website/"><u>[Updated] How to Insert YouTube Playlists Seamlessly Into a Website</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-a-revenue-driven-approach-to-youtube-content-creation/"><u>[Updated] In 2024, Crafting a Revenue-Driven Approach to YouTube Content Creation</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-the-ultimate-obs-recording-guide-for-gaming-enthusiasts/"><u>[Updated] In 2024, The Ultimate OBS Recording Guide for Gaming Enthusiasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-magix-studio-max-2024-a-comprehensive-overview/"><u>[Updated] Magix Studio Max 2024  A Comprehensive Overview</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-youtube-sharing-with-google-credentials/"><u>[Updated] Navigating YouTube Sharing with Google Credentials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-script-to-screen-your-guide-to-youtube-storytelling/"><u>[Updated] Script to Screen  Your Guide to YouTube Storytelling</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-creative-summit-top-talent-junction/"><u>[Updated] The Creative Summit  Top Talent Junction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-checklist-for-adding-effective-on-screen-captions-to-your-videos/"><u>[Updated] The Ultimate Checklist for Adding Effective On-Screen Captions to Your Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-artistry-designing-channels-visual-assets-bannersicons/"><u>[Updated] YouTube Artistry  Designing Channels' Visual Assets (Banners/Icons)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-crafting-harmonious-photographic-mosaics-with-ease/"><u>2024 Approved  Crafting Harmonious Photographic Mosaics with Ease</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-high-definition-adventures-top-7-camcorders-unveiled/"><u>2024 Approved  High-Definition Adventures  Top 7 Camcorders Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-tier-vr-engine-software-a-comprehensive-review/"><u>2024 Approved  Top-Tier VR Engine Software  A Comprehensive Review</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-transforming-videos-through-skillful-narration-techniques/"><u>2024 Approved  Transforming Videos Through Skillful Narration Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-women-in-warfare-youtubes-elite-ten/"><u>2024 Approved  Women in Warfare  YouTube’s Elite Ten</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/acclaimed-editing-software-for-virtual-recordings/"><u>Acclaimed Editing Software for Virtual Recordings</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-xiaomi-redmi-note-12-pro-4g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Xiaomi Redmi Note 12 Pro 4G? Try These Fixes</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-securing-sound-speed-increase-in-the-digital-world-of-spotify/"><u>In 2024, Securing Sound Speed Increase in the Digital World of Spotify</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-revenue-per-million-views-an-insight/"><u>In 2024, YouTube's Revenue Per Million Views  An Insight</u></a></li>
+<li><a href="https://tools.techidaily.com/mt4copier/"><u>Local Trade Copier</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-s18-pro-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo S18 Pro? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfecting-your-presence-mastery-of-title-and-tag-use-on-youtube-for-2024/"><u>Perfecting Your Presence  Mastery of Title and Tag Use on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-cutter-writers-the-top-8-linux-software-for-2024/"><u>Premium Cutter' Writers  The Top 8 Linux Software for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-stock-investing-channels-online-for-2024/"><u>The Ultimate Guide to Stock Investing Channels Online for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/virtual-hubs-for-scouting-sponsorship-opportunities-on-youtube-for-2024/"><u>Virtual Hubs for Scouting Sponsorship Opportunities on Youtube for 2024</u></a></li>
+</ul></div>

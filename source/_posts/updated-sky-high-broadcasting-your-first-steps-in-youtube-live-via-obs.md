@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Sky-High Broadcasting  Your First Steps in Youtube Live via OBS\""
-date: 2024-06-24T20:01:50.205Z
-updated: 2024-06-25T20:01:50.206Z
+date: 2024-07-31T01:14:23.773Z
+updated: 2024-08-01T01:14:23.773Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 # Live stream to youtube with OBS step by step guide for beginners
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,6 +50,9 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 **Step 4:** Now hot the steam now option on your screen.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![stream now](https://images.wondershare.com/filmora/article-images/stream-now.jpg)
 
 **Step 5:** Change or Upload your thumbnail as per need.
@@ -55,10 +61,16 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 **Step 6:** It is time to provide an eye catching title to your video, add description and finally choose category from the drop down menu.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![category](https://images.wondershare.com/filmora/article-images/category.jpg)
 
 **Step 7:** While using stream option, never forget to click on ‘make archive unlisted when complete’ option so that you can save as well as watch your content on YouTube at later stage.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![make archive](https://images.wondershare.com/filmora/article-images/make-archive.jpg)
 
 **Step 8:** You can monetize your ads as per need.
@@ -71,24 +83,42 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 **Step 10:** Now move to encoder setup and then simply copy and paste these details to your streaming software.
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ![encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
 
 **Step 11:** Now you can set your live chat option as per your requirement.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![watching and messages](https://images.wondershare.com/filmora/article-images/watching-and-messages.jpg)
 
 **Step 13:** Stream health can be monitored directly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![stream health](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
 
 **Step 14:** One can also use the social media button for live shares.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2.Set up Your Live Streaming Encoder
 
 As soon as you have completed the above set up then next task is to adjust settings of your streaming encoder. It is possible to make easy selection out of wide range of live streaming encoders. The details below are provided with reference to OBS too that is open source type free to access software.
@@ -97,6 +127,9 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 **Step 2:** Now launch OBS on your device and directly go to settings option.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![Go to setting](https://images.wondershare.com/filmora/article-images/go-to-setting.jpg)
 
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
@@ -111,6 +144,9 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 ![click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Youtube Events set up
 
 Live stream is little different from Stream Now platform as it allows users to schedule the streams as well as a connectivity to Google Hangouts is provided. These easy to follow steps will assist you to handle all settings for your events using Live Stream tool:
@@ -121,6 +157,9 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![set the basic](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
 
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
@@ -133,6 +172,9 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 5:** As soon as you finish all above settings then simply click on the create event option.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![click create event](https://images.wondershare.com/filmora/article-images/click-create-event.jpg)
 
 **Step 6:** One more window will appear on your screen and here you can make adjustment for preferred bit rate. Also put your dedicated stream key with encoder.
@@ -141,6 +183,9 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 7:** When all above steps are completed then you need to hit the option for save changes so that your tool can act accordingly.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![save changes](https://images.wondershare.com/filmora/article-images/save-changes.jpg)
 
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
@@ -169,3 +214,47 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-captivating-audiences-on-a-shoestring-budget-youtube-shorts-success-tips/"><u>[New] 2024 Approved  Captivating Audiences on a Shoestring Budget – YouTube Shorts Success Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-comprehensive-coverage-coalition-picking-an-mcn/"><u>[New] 2024 Approved  Comprehensive Coverage Coalition  Picking an MCN</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-economical-camera-options-best-deals-for-diy-vloggers/"><u>[New] 2024 Approved  Economical Camera Options  Best Deals for DIY Vloggers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>[New] 2024 Approved  Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieve-seamless-transitions-premiere-videos-on-youtube-for-2024/"><u>[New] Achieve Seamless Transitions  Premiere Videos on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-budget-friendly-sponsorship-blueprint-for-youtube-enthusiasts-for-2024/"><u>[New] Budget-Friendly Sponsorship Blueprint for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discovering-6-interactive-workout-ideas-for-social-media-success-for-2024/"><u>[New] Discovering 6 Interactive Workout Ideas for Social Media Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-boosting-earnings-in-cosmetic-videography/"><u>[New] In 2024, Boosting Earnings in Cosmetic Videography</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-digital-wealth-creation-through-video-networking/"><u>[New] In 2024, Digital Wealth Creation Through Video Networking</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-excellent-video-and-picture-capture-for-iphones-and-androids-here/"><u>[New] In 2024, Excellent Video & Picture Capture for iPhones & Androids Here</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-rapid-video-grabber-and-audible-guide-system-for-2024/"><u>[New] Rapid Video Grabber & Audible Guide System for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-your-youtube-shorts-earnings-potential/"><u>[New] Unlock Your YouTube Shorts Earnings Potential</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-20-youtube-time-savers-that-will-skyrocket-engagement-rates/"><u>[Updated] 2024 Approved  20 YouTube Time Savers That Will Skyrocket Engagement Rates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-wealth-creation-through-video-networking/"><u>[Updated] 2024 Approved  Digital Wealth Creation Through Video Networking</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-your-youtube-presence-with-strategic-banners/"><u>[Updated] 2024 Approved  Elevating Your YouTube Presence with Strategic Banners</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-guide-to-sharing-on-instagram-videos-and-more/"><u>[Updated] 2024 Approved  Guide to Sharing on Instagram  Videos & More</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-convert-instagram-video-to-mp4-2-proven-ways-for-2024/"><u>[Updated] How to Convert Instagram Video to MP4 [ 2 Proven Ways] for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-edit-youtube-videos-in-imovie-for-2024/"><u>[Updated] How to Edit YouTube Videos in iMovie for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-5-critical-equipment-items-to-start-your-channel-right/"><u>[Updated] In 2024, 5 Critical Equipment Items to Start Your Channel Right</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-sprint-through-slow-androids-premier-video-fixes/"><u>[Updated] Sprint Through Slow  Android's Premier Video Fixes</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-best-practices-for-recording-apex-heroes-for-2024/"><u>[Updated] The Best Practices for Recording Apex Heroes for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-steps-for-creating-collab-videos-with-youtubers/"><u>[Updated] The Ultimate Steps for Creating Collab Videos with YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-youtubers-playbook-achieving-content-stardom/"><u>[Updated] The YouTuber's Playbook  Achieving Content Stardom</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-legal-bounds-of-youtube-video-screencaps/"><u>[Updated] Understanding Legal Bounds of YouTube Video Screencaps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtube-studios-power-for-professional-edits/"><u>[Updated] Unlocking YouTube Studio's Power for Professional Edits</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-unveiling-the-power-of-the-participant-grids-in-google-meet/"><u>[Updated] Unveiling the Power of the Participant Grids in Google Meet</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-best-of-both-worlds-2023s-device-agnostic-editors/"><u>2024 Approved  The Best of Both Worlds  2023’S Device-Agnostic Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-virtual-world-real-profit-for-game-makers/"><u>2024 Approved  Virtual World, Real Profit for Game Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-channel-art-make-banners-icons-and-thumbnails/"><u>2024 Approved  YouTube Channel Art - Make Banners, Icons, and Thumbnails</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comprehensive-list-of-leading-no-cost-video-chat-apps-iosandroid-for-2024/"><u>Comprehensive List of Leading No-Cost Video Chat Apps (iOS/Android) for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-14-plus-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even From Apple iPhone 14 Plus If Youve Tried Everything</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-gt-neo-5-se-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Realme GT Neo 5 SE Users</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/jolt-for-lethargic-gpu-fans/"><u>Jolt for Lethargic GPU Fans</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/must-have-3d-model-systems-in-animation-for-2024/"><u>Must-Have 3D Model Systems in Animation for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-panning-leading-stabilizers-unveiled-for-2024/"><u>Perfect Panning  Leading Stabilizers Unveiled for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-infinix-hot-40-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Infinix Hot 40</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-apps-for-gaming-playback-for-2024/"><u>Premium Apps for Gaming Playback for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/utilizing-azure-speech-to-text-api/"><u>Utilizing Azure Speech-to-Text API</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-alchemy-on-a-pc-transforming-footage-into-youtube-gold-for-2024/"><u>Video Alchemy on a PC  Transforming Footage Into YouTube Gold for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/vimeo-vs-youtube-vs-dailymotion-which-platform-is-the-one-for-2024/"><u>Vimeo vs YouTube vs Dailymotion  Which Platform Is the One for 2024</u></a></li>
+</ul></div>

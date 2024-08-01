@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2024-06-05T03:44:41.090Z
-updated: 2024-06-06T03:44:41.090Z
+date: 2024-07-30T22:38:47.125Z
+updated: 2024-07-31T22:38:47.125Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,9 @@ thumbnail: https://thmb.techidaily.com/2453bc5c0249af0de921ee166f14d8e128b375913
 
 A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to customize the look of your vlog by choosing the perfect lens. Choosing the best camera lens for your YouTube channel can be tricky because there are so many options. This article will walk you through some of them, and make two recommendations of great vlogging lenses. If you already have a good understanding of how camera lenses work then feel free to scroll down to the lens recs.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
 
 There are two main categories of camera lenses: ‘zoom’ – lenses that allow you to zoom in and out – and ‘fixed’. If your lenses are tools then zoom lenses are Swiss army knives; they are very versatile. Fixed lenses, also called prime lenses, have more specific purposes. Do you need a tool that can do a lot of things, or a tool that is perfect for one specific job? Sometimes it is useful to have access to both.
@@ -34,6 +37,9 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 
 Before we get into the recommendations here is a little background information on lenses in general:
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Beginner's Guide to Aperture and F-Stops
 
 In order to be able to select the lens you'll be using to record your YouTube videos, you first need to understand a few very basic concepts, such as aperture or f-stops.
@@ -52,6 +58,10 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## Part 2: Types of Camera Lenses
 
 The visual aspect of a video may not be the only thing you'll have to dedicate special attention to while recording your YouTube video, but it is surely one of the most important factors of the video production process. A lens you are using will largely contribute to the aesthetics of the video. That's why you need to know which type of lens will deliver the best results when shooting different types of scenes. Here are some of the most common types of lenses you'll encounter.
@@ -76,6 +86,9 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
 
 Here are a couple great lenses that might be good fits for you and your YouTube channel. The thing that makes them both ideal for vlogging is that they have low enough f-stops to blur out your background.
@@ -99,6 +112,9 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 #### 3.[Canon EF 50mm f/1.8 STM Lens](https://www.amazon.com/Canon-50mm-1-8-STM-Lens/dp/B00X8MRBCW/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-1&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=cd09588b67ac10e4e960ea45c87b3f06&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slotNum=4)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
@@ -123,6 +139,9 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -139,3 +158,75 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discovering-your-youtube-comments-on-various-devices/"><u>[New] 2024 Approved  Discovering Your YouTube Comments on Various Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-content-powerful-tags-to-watch-out-for/"><u>[New] 2024 Approved  Elevating Your Content  Powerful Tags to Watch Out For</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expressiveness-enhancing-youtube-comments-via-emojis/"><u>[New] 2024 Approved  Expressiveness  Enhancing YouTube Comments via Emojis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-foundations-first-what-to-invest-in-for-youtubing/"><u>[New] 2024 Approved  Foundations First  What To Invest In for YouTubing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-unleashing-the-power-of-whiteboards-in-google-meet-on-diverse-devices-for-seamless-engagement/"><u>[New] 2024 Approved  Unleashing the Power of Whiteboards in Google Meet on Diverse Devices for Seamless Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieving-pristine-video-quality-on-youtube-for-2024/"><u>[New] Achieving Pristine Video Quality on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-adding-emojis-in-youtube-discussions-for-2024/"><u>[New] Adding Emojis in YouTube Discussions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-video-discoverability-with-ideal-thumbnail-widths-and-height-for-2024/"><u>[New] Enhancing Video Discoverability with Ideal Thumbnail Widths and Height for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-artisans-crafting-marvel-fantasy-landscapes/"><u>[New] In 2024, Artisans Crafting Marvel Fantasy Landscapes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-best-cam-cover-hacks-top-10-list/"><u>[New] In 2024, Best Cam Cover Hacks - Top 10 List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-asmr-channel-discoveries/"><u>[New] In 2024, Essential ASMR Channel Discoveries</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-fast-footsteps-simple-recording-for-dell-pcs/"><u>[New] In 2024, Fast Footsteps  Simple Recording for Dell PCs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-instructional-guide-modify-comment-accessibility-on-youtube/"><u>[New] Instructional Guide  Modify Comment Accessibility on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mac-users-guide-to-premium-mp4-slicer-apps/"><u>[New] Mac Users' Guide to Premium MP4 Slicer Apps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-minecrafts-geometric-forms-circular-and-spherical-creation-for-2024/"><u>[New] Mastering Minecraft's Geometric Forms  Circular & Spherical Creation for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-guide-to-find-youtube-templates-vids/"><u>[New] Ultimate Guide to Find Youtube Templates Vids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-the-ultimate-secret-amplifying-gaming-vids-with-hashes/"><u>[New] Unveiling the Ultimate Secret  Amplifying Gaming Vids with Hashes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-to-webm-top-tier-conversion-applications-reviewed/"><u>[New] YouTube to WebM  Top-Tier Conversion Applications Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-yt-bidirectional-navigating-the-queue-from-the-conclusion-backwards/"><u>[New] YT Bidirectional  Navigating the Queue From the Conclusion Backwards</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-classical-cinematography-a-modern-tutorial/"><u>[Updated] 2024 Approved  Creating Classical Cinematography  A Modern Tutorial</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-calmer-video-consumption-three-ways-to-pause-time-56-chars-slightly-over-but-a-minor-exception-due-to-title-length/"><u>[Updated] 2024 Approved  Discovering Calmer Video Consumption  Three Ways to Pause Time (56 Chars, Slightly over but a Minor Exception Due to Title Length)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-guide-to-gathering-gold-from-guided-goods-gazes-online-for-2024/"><u>[Updated] A Guide to Gathering Gold From Guided Goods' Gazes Online for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-beyond-illusion-vr-timeline-explored/"><u>[Updated] Beyond Illusion  VR Timeline Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-broadcasting-brevity-news-outro-tips-for-2024/"><u>[Updated] Broadcasting Brevity  News Outro Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-compare-and-contrast-leading-online-and-desktop-gif-tools-for-2024/"><u>[Updated] Compare & Contrast  Leading Online & Desktop GIF Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-conquering-low-end-webcams-for-stellar-video-quality/"><u>[Updated] Conquering Low-End WebCams for Stellar Video Quality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-content-summit-for-2024/"><u>[Updated] Cutting-Edge Content Summit for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-elevate-podcast-quality-with-advanced-garageband-editing-methods-for-2024/"><u>[Updated] Elevate Podcast Quality with Advanced GarageBand Editing Methods for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-list-of-the-top-10-digital-recording-apps-for-2024/"><u>[Updated] Exclusive List of the Top 10 Digital Recording Apps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-advice-yt-clip-sharing-using-your-google-id-for-2024/"><u>[Updated] Expert Advice  YT Clip Sharing Using Your Google ID for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-search-patterns-to-screenplay-crafting-videos-from-google-data/"><u>[Updated] From Search Patterns to Screenplay  Crafting Videos From Google Data</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-fix-the-youtube-shorts-not-showing-up-issue/"><u>[Updated] How to Fix the YouTube Shorts Not Showing Up Issue?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-accessing-your-subscriber-details-directly/"><u>[Updated] In 2024, Accessing Your Subscriber Details Directly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-youtube-livestreaming-screen-recorders/"><u>[Updated] In 2024, Best YouTube Livestreaming Screen Recorders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-fast-fixed-ways-to-scramble-youtube-watchlist-content/"><u>[Updated] In 2024, Fast Fixed Ways to Scramble YouTube Watchlist Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-backwards-youtubes-way-to-rearrange-watch-queue/"><u>[Updated] Navigating Backwards  YouTube’s Way to Rearrange Watch Queue</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-premier-fb-video-mp4-downloader-no-ads-no-wait/"><u>[Updated] Premier FB Video MP4 Downloader - No Ads, No Wait</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-pathway-to-recognition-youtubers-guide-to-personal-brands/"><u>[Updated] The Pathway to Recognition  YouTubers' Guide to Personal Brands</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-simple-guide-to-free-video-embedding-in-articles/"><u>[Updated] The Simple Guide to Free Video Embedding in Articles</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transforming-storytelling-into-cinematic-art/"><u>[Updated] Transforming Storytelling Into Cinematic Art</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-ultimate-windows-webcam-compilation/"><u>[Updated] Ultimate Windows Webcam Compilation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-becoming-a-pinning-pro-snapchats-best-practices/"><u>2024 Approved  Becoming a Pinning Pro  Snapchat's Best Practices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-organizing-virtual-gatherings-syncing-slack-with-filmoras-features/"><u>2024 Approved  Organizing Virtual Gatherings  Syncing Slack with Filmora's Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-seamless-integration-utilizing-instagrams-music-stickers-expertise/"><u>2024 Approved  Seamless Integration  Utilizing Instagram's Music Stickers Expertise</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youthful-youtuber-writers-handbook-creating-channels-clutching-cash/"><u>2024 Approved  Youthful Youtuber’ Writers’ Handbook  Creating Channels, Clutching Cash</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-huawei-nova-y91-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Huawei Nova Y91 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/amdradeon5770winrtkenhance/"><u>AMDRADEON5770WinRTKEnhance</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/best-anti-tracker-software-for-poco-c51-drfone-by-drfone-virtual-android/"><u>Best Anti Tracker Software For Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/can-pressing-prtscn-launch-snipping-tool-steps-to-halt/"><u>Can Pressing PrtScn Launch Snipping Tool? Steps to Halt</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-camera-roll-to-screen-share-photos-fast-and-simple/"><u>From Camera Roll to Screen  Share Photos Fast and Simple</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-on-your-iphone-8-plus-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock on your iPhone 8 Plus and iPad?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-advanced-mastery-over-iphone-hdr-issues-with-4-best-practices-for-editors/"><u>In 2024, [Advanced] Mastery Over iPhone HDR Issues with 4 Best Practices for Editors</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-realme-11-proplus-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Realme 11 Pro+ by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-adept-adapters-top-5-chrome-extensions-for-facebook-films/"><u>In 2024, Adept Adapters  Top 5 Chrome Extensions for Facebook Films</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-coexisting-screen-data-gathering/"><u>In 2024, Coexisting Screen Data Gathering</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-s24-ultra-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy S24 Ultra Phone Network-Ready</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-best-gif-speed-changers-onlineiosandroid-for-2024/"><u>New Best GIF Speed Changers Online/iOS/Android for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-translate-live-videos-with-the-best-video-translator/"><u>New In 2024, Translate Live Videos With The Best Video Translator</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premiere-vr-developers-shaping-the-future-for-2024/"><u>Premiere VR Developers Shaping the Future for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/remedies-for-lack-of-display-in-youtube-screens-for-2024/"><u>Remedies for Lack of Display in YouTube Screens for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-6-prevention-and-solution-drfone-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 6 Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/swift-modification-youtube-aspect-ratio-on-mac-for-2024/"><u>Swift Modification  YouTube Aspect Ratio on MAC for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-art-of-accompanying-visual-content-with-music-for-2024/"><u>The Art of Accompanying Visual Content with Music for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-aspiring-asmr-producers-guide-to-video-excellence-for-2024/"><u>The Aspiring ASMR Producer's Guide to Video Excellence for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-recorders-report-card-best-in-class-rated/"><u>The Recorder's Report Card  Best in Class Rated</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tune-tastic-transfers-find-your-favorite-youtube-songs-with-top-6-free-android-apps-for-2024/"><u>Tune-Tastic Transfers  Find Your Favorite Youtube Songs with Top 6 Free Android Apps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-creative-potential-with-no-cost-green-screen-knowledge-from-top-4-educational-channels-for-2024/"><u>Unlock Creative Potential with No-Cost Green Screen Knowledge From Top 4 Educational Channels for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/wise-owls-ultimate-general-knowledge-hubs/"><u>Wise Owls' Ultimate General Knowledge Hubs</u></a></li>
+</ul></div>

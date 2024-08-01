@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Guide to Finding Unique Video Graphics Online"
-date: 2024-06-05T06:18:11.959Z
-updated: 2024-06-06T06:18:11.959Z
+date: 2024-07-31T02:57:34.603Z
+updated: 2024-08-01T02:57:34.603Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/189b4e3cd84ef7f9829fec0ad61c8f163a696d8c8
 
 # 6 Completely Different Places to Get Icons and Logos for YouTube Videos
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -56,6 +59,10 @@ _These aren’t all the birds on Flaticon, just a few._ _They had a huge selecti
 
 I clicked on the brown bird to open up the download screen, and then clicked into ‘Edit icon’. There may be a pop up that tells you editing tools are only available to registered users, but it’s wrong. Just close it and keep going, unless you want to register.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![  Logo Icon on Flaticon](https://images.wondershare.com/filmora/article-images/icons-logos-on-flaticon-example-1.jpg)
 
 You can edit the colors in your icon just by clicking on the color you want to replace, and then clicking on the color in the color selector you want to replace it with. I made my birdie FLY.
@@ -74,6 +81,9 @@ Flaticon has a great selection, it’s free, and they make it really easy to edi
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ## 2\. [Freepik.com](https://www.freepik.com/)
 
 **Key Points:**
@@ -124,6 +134,9 @@ _Could be cool for a lifestyle video about school or work?_
 
 My favorite thing about IconArchive is its search features. It allows you to filter results by color, size (down to the specific resolution), category, background color, style, and a lot more.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
 
 Color is under ‘Display’, meaning that it won’t filter out results that have different colors it’ll just list the color you select first.
@@ -154,6 +167,9 @@ In Step 1 it’ll ask for your company name and an activity type. You just need 
 
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ![ YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
 
 _There are 10 pages of suggestions!_
@@ -164,6 +180,9 @@ After you click ‘save’ in the last step you’ll be prompted to provide an e
 
 I personally wouldn’t recommend buying an image from here unless your channel is for your small business and you need things like branded business cards and letterhead. This site might be better for gathering inspiration than actually downloading a logo from.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## 6\. [Icons8.com](https://icons8.com/)
 
 **Key Points:**
@@ -178,20 +197,32 @@ You will also need to link to Icons8 if you use their icons for free (i.e. in th
 
 To get started on Icons8, type something into the search bar on the home page that you think might work as an icon or as part of whatever graphics you have planned. I typed in ‘game’ for this one, since gaming is the biggest genre on YouTube. Here are a few of the results that came up:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
 
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
 After you find an icon you like, click on it and it will appear on the right side of your screen where you’ll be able to make a few changes (an editing screen will pop up once you start clicking on things). You can edit your colors, overlay small decals, add text, and add a border, change your background and adjust your size. Here’s the editing screen:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![ Edit Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/edit-gaming-icons-logos-on-icons8.jpg)
 
 You can give your icon a pretty different look from its default. Check this out:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ Change Gaming Logo Icon background on Icons8](https://images.wondershare.com/filmora/article-images/change-gaming-icons-logos-background-on-icons8.jpg)
 
 You cannot download your icon from the editing screen. You need to click Save, and then download it from the main display screen here:
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ Donwload Gaming Logo Icon  on Icons8](https://images.wondershare.com/filmora/article-images/download-gaming-icons-logos-on-icons8.jpg)
 
 You can change the size with that drop down menu, but you’ll be limited in your options if you don’t want to pay.
@@ -202,12 +233,18 @@ I downloaded my image and tried to see how it would look as an icon/profile pict
 
 However, the preview is larger than the actual profile picture. Once I set it, it looked alright.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ Preview Gaming Logo Icon made with icons8 to YouTube](https://images.wondershare.com/filmora/article-images/preview-gaming-icons-logos-made-with-icons8.jpg)
 
 Looking for somewhere you can build your own icon/logo from scratch? Check out this [list of logo makers](https://www.filmora.io/community-blog/top-9-free-youtube-logo-makers-304.html).
 
 After downloading the icons or logos, it is time to add them to your YouTube video. Here I recommend our [Wondershare Filmora video editor](https://tools.techidaily.com/wondershare/filmora/download/). Below is a video tutorial about [how to add a logo to video in Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Remember to download the free trial version to test.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -226,3 +263,55 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-12-best-vlogging-cameras-for-vloggers/"><u>[New] 2024 Approved  12 Best Vlogging Cameras for Vloggers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-5-simple-yet-powerful-strategies-to-skyrocket-your-youtube-views/"><u>[New] 2024 Approved  5 Simple Yet Powerful Strategies to Skyrocket Your YouTube Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-income-a-complete-guide-to-youtube-ad-profits/"><u>[New] 2024 Approved  Boosting Income  A Complete Guide to YouTube Ad Profits</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-chatcam-capturer-facebook-edition/"><u>[New] 2024 Approved  ChatCam Capturer, Facebook Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-advice-on-youtube-short-pitfalls/"><u>[New] 2024 Approved  Expert Advice on YouTube Short Pitfalls</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-8-mirrorless-cameras-that-make-great-video-content/"><u>[New] 2024 Approved  Explore 8 Mirrorless Cameras That Make Great Video Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-battle-royale-queens-top-10-female-youtubers-for-2024/"><u>[New] Battle Royale Queens  Top 10 Female YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-beginners-tutorial-setting-up-your-youtube-presence-for-2024/"><u>[New] Beginner's Tutorial  Setting Up Your YouTube Presence for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-branding-with-visuals-inserting-watermarks-into-youtube-vids-for-2024/"><u>[New] Branding with Visuals  Inserting Watermarks Into YouTube Vids for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/irect-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[New] Direct YouTube Tunes to MP3s  Online & Offline Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discovering-digital-dominance-which-is-superior-youtubes-shorts-or-tiktoks-in-2024/"><u>[New] Discovering Digital Dominance  Which Is Superior, YouTubes Shorts or TikToks, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-edits-top-10-youtube-editing-strategies-for-2024/"><u>[New] Elevate Your Edits  Top 10 YouTube Editing Strategies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>[New] In 2024, Audiovisual Power  Evaluating Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cut-the-cord-with-youtube-mp3-conversion-tools/"><u>[New] In 2024, Cut the Cord with YouTube-MP3 Conversion Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-smart-way-to-save-youtube-sections/"><u>[New] The Smart Way to Save YouTube Sections</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-achieving-asmr-bliss-selecting-the-right-mic/"><u>[Updated] 2024 Approved  Achieving ASMR Bliss  Selecting the Right Mic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beyond-indexation-decoding-the-purpose-of-unlisted-videos/"><u>[Updated] 2024 Approved  Beyond Indexation  Decoding the Purpose of 'Unlisted' Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boost-your-online-presence-by-mastering-video-editing-in-sony-vegas/"><u>[Updated] 2024 Approved  Boost Your Online Presence by Mastering Video Editing in Sony Vegas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-a-path-to-youtube-wealth-cpm-analysis/"><u>[Updated] 2024 Approved  Charting a Path to YouTube Wealth  CPM Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-diverse-designs-at-your-fingertips-from-these-6-websites/"><u>[Updated] 2024 Approved  Diverse Designs at Your Fingertips From These 6 Websites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enjoy-your-content-youtube-shorts-are-shown-again/"><u>[Updated] 2024 Approved  Enjoy Your Content – YouTube Shorts Are Shown Again</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comprerant-and-reviewed-the-ultimate-list-of-ios-video-edits-for-2024/"><u>[Updated] Compreran't & Reviewed  The Ultimate List of iOS Video Edits for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-discovering-the-hottest-templates-for-social-media-vfx-for-2024/"><u>[Updated] Discovering the Hottest Templates for Social Media VFX for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-video-visibility-11-secrets-of-successful-seo-for-2024/"><u>[Updated] Elevate Your Video Visibility  11 Secrets of Successful SEO for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhanced-entertainment-tv-ready-looping-techniques-for-video-content-for-2024/"><u>[Updated] Enhanced Entertainment  Tv-Ready Looping Techniques for Video Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-filmmakers-toolkit-making-compelling-youtube-trailers/"><u>[Updated] Filmmaker's Toolkit  Making Compelling YouTube Trailers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-views-top-10-free-tools-for-custom-youtube-thumbnails/"><u>[Updated] In 2024, Boost Views  Top 10 Free Tools for Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-the-ideal-youtube-playlist-an-easy-step-by-step-method/"><u>[Updated] In 2024, Crafting the Ideal YouTube Playlist  An Easy, Step-by-Step Method</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>[Updated] In 2024, Designing Youtube Ads That Grab Attention  A Compreeher Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-how-to-add-logowatermark-to-youtube-video/"><u>[Updated] In 2024, How to Add Logo/Watermark to YouTube Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-keyword-proficiency-at-little-to-none-guide-to-the-top-7-youtube-tag-extractor-apps/"><u>[Updated] Keyword Proficiency at Little to None  Guide to the Top 7 Youtube Tag Extractor Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-minute-video-crafters/"><u>[Updated] Minute Video Crafters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-principles-of-filming-inspirational-daily-living-documentaries/"><u>[Updated] Principles of Filming Inspirational Daily Living Documentaries</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-snatch-free-media-treasures-from-top-4-online-creators/"><u>[Updated] Snatch Free Media Treasures From Top 4 Online Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-currency-of-clicks-youtube-view-revenue-explored/"><u>[Updated] The Currency of Clicks  Youtube View Revenue Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-magic-of-capturing-youtube-content-the-no-cost-way/"><u>[Updated] Unlock the Magic of Capturing YouTube Content - The No-Cost Way</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-unlock-your-potential-one-thousand-new-likesmonth/"><u>[Updated] Unlock Your Potential  One Thousand New Likes/Month</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-capturing-every-move-in-games-with-fbx/"><u>2024 Approved  Capturing Every Move in Games with FBX</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-virtual-realities-shortcomings/"><u>2024 Approved  Exploring Virtual Realities' Shortcomings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-motorola-moto-g-stylus-5g-2023-by-fonelab-android-recover-call-logs/"><u>How To  Restore Missing Call Logs from Motorola Moto G Stylus 5G (2023)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-instagram-intonation-blending-audio-with-imagery/"><u>In 2024, Instagram Intonation  Blending Audio with Imagery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/newbies-ultimate-youtube-gear-handbook-for-2024/"><u>Newbies' Ultimate YouTube Gear Handbook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimizing-youtube-profits-understanding-your-adsense-earnings-per-kv-for-2024/"><u>Optimizing Youtube Profits  Understanding Your AdSense Earnings per KV for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolved-communication-breakdown-with-print-server/"><u>Resolved: Communication Breakdown with Print Server</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-mini-video-medley-where-does-your-audience-flock-for-2024-youtubes-or-tiktoks/"><u>The Mini-Video Medley  Where Does Your Audience Flock for 2024 YouTubes or TikToks?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-video-creators-blueprint-to-legal-and-profitable-streaming-for-2024/"><u>The Video Creator's Blueprint to Legal and Profitable Streaming for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/untapped-potential-in-c-span-video-downloads/"><u>Untapped Potential in C-Span Video Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-gamings-top-10-capture-card-recommendations-for-2024/"><u>Video Gaming's Top 10 Capture Card Recommendations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/visualizing-the-most-influential-23-social-trends-for-2024/"><u>Visualizing the Most Influential '23 Social Trends for 2024</u></a></li>
+</ul></div>

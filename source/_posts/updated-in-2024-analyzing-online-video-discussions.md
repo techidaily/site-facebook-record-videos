@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Analyzing Online Video Discussions"
-date: 2024-06-05T05:23:05.726Z
-updated: 2024-06-06T05:23:05.726Z
+date: 2024-07-31T01:24:26.866Z
+updated: 2024-08-01T01:24:26.866Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/add496faff3567ece40d0c0a25d683b37093fb191
 
 # How to Search Comments on YouTube Quickly?
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -57,6 +60,9 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
 You can combine these additional filters to narrow your comments search for YouTube.
@@ -71,6 +77,9 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 4. Tap on ‘Load comments’ and wait till the extension loads all the comments on the video.
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -99,12 +108,18 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -113,6 +128,9 @@ You can see all the comments you have posted in the Comment History in a few qui
 2. Once you sign in, click on the three horizontal lines at the top left corner of your YouTube page.
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
@@ -154,3 +172,41 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-bridging-the-gap-youtube-editing-mastered-in-imovie-workflows/"><u>[New] 2024 Approved  Bridging the Gap  YouTube Editing Mastered in iMovie Workflows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-gain-strategies-for-youtube-aspirants/"><u>[New] 2024 Approved  Channel Gain Strategies for YouTube Aspirants</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-discover-the-best-yoga-vlogs-perfect-balance-guide/"><u>[New] 2024 Approved  Discover the Best Yoga Vlogs - Perfect Balance Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[New] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-bringing-bygone-era-filmmaking-to-life-today-for-2024/"><u>[New] Bringing Bygone Era Filmmaking to Life Today for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-digital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion/"><u>[New] In 2024, Digital Content Contenders  Compare & Contrast Vimeo, YouTube + Dailymotion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[New] In 2024, Dissolving Details  Techniques to Anonymize YouTube Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-navigating-youtubes-seo-landscape-key-techniques/"><u>[New] Navigating YouTube's SEO Landscape  Key Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-screenrec-for-lactops-your-step-by-step-guide-for-2024/"><u>[New] ScreenRec for Lactops  Your Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailor-made-video-cuts-macs-top-mp4-slicers-revealed/"><u>[New] Tailor-Made Video Cuts  Mac's Top MP4 Slicers Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-peak-of-youtubes-monetization-wonders/"><u>[New] The Peak of YouTube's Monetization Wonders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-comment-finder-you-should-try-for-2024/"><u>[New] YouTube Comment Finder You Should Try for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>[Updated] __Local Labor Costs__  The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-amplify-your-voice-on-youtube-mastery-through-tubebuddy/"><u>[Updated] 2024 Approved  Amplify Your Voice on YouTube - Mastery Through TubeBuddy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-7-dslr-vlogging-cameras/"><u>[Updated] 2024 Approved  Best 7 DSLR Vlogging Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comprehensive-youtube-etiquette-guide/"><u>[Updated] 2024 Approved  Comprehensive YouTube Etiquette Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-extracting-youtube-music-three-secure-ways-without-financial-burden/"><u>[Updated] Extracting YouTube Music  Three Secure Ways Without Financial Burden</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-save-money-with-the-right-youtube-tv-plan/"><u>[Updated] How to Save Money with the Right YouTube TV Plan</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-8-premier-resources-download-free-high-quality-green-screen-footage/"><u>[Updated] In 2024, 8 Premier Resources  Download Free, High-Quality Green Screen Footage</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos/"><u>[Updated] In 2024, Ace Your Edits  In-Depth Guide to High-Quality YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-vlogging-with-top-12-innovative-screen-swivel-cams/"><u>[Updated] Mastering Vlogging with Top 12 Innovative Screen Swivel Cams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneering-brands-spotlight-on-top-9-free-youtube-logos-craftors/"><u>[Updated] Pioneering Brands  Spotlight on Top 9 Free YouTube Logos Craftors</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-creating-soft-music-endings-in-adobe-premiere-video-editing/"><u>2024 Approved  Creating Soft Music Endings in Adobe Premiere Video Editing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-realme-12-pro-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Realme 12 Pro 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-a24-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy A24 Activity | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-from-your-apple-iphone-6s-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID From your Apple iPhone 6s without Security Questions?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-apex-of-narrative-content-youtubes-finest-in-23/"><u>In 2024, The Apex of Narrative Content  YouTube’s Finest in '23</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-vllo-on-mac-a-comprehensive-guide-with-alternative-solutions/"><u>In 2024, VLLO on Mac A Comprehensive Guide with Alternative Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/pause-in-process-facebooks-governing-body-on-trump/"><u>Pause in Process: Facebook's Governing Body on Trump</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-motorola-g24-power-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/self-filmed-flair-tips-for-captivating-solo-videos-for-2024/"><u>Self-Filmed Flair  Tips for Captivating Solo Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-adding-your-own-video-images-for-2024/"><u>Step-by-Step Guide to Adding Your Own Video Images for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-top-8-yt-thumbnails-that-increase-watch-time-and-interests-for-2024/"><u>The Top 8 YT Thumbnails that Increase Watch Time and Interests for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/xbox-game-stream-from-pc-to-cloud-platform/"><u>Xbox Game Stream: From PC to Cloud Platform</u></a></li>
+</ul></div>

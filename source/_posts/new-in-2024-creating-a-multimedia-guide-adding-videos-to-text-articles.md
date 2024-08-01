@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Creating a Multimedia Guide  Adding Videos to Text Articles\""
-date: 2024-06-05T05:46:12.075Z
-updated: 2024-06-06T05:46:12.075Z
+date: 2024-07-31T02:03:14.305Z
+updated: 2024-08-01T02:03:14.305Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/9f88f4d439bd19afe08962ae532d3a6f41b689b2a
 
 # How to Add Video to Text
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -28,6 +31,9 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -38,12 +44,18 @@ You should start by creating a new slide and adding a textbox to it. Proceed to 
 
 Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
@@ -62,12 +74,23 @@ You should start by creating a new project in Filmora and importing the video yo
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -96,3 +119,44 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-branding-excellence-youtube-naming-masterclass/"><u>[New] 2024 Approved  Branding Excellence  YouTube Naming Masterclass</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-captivating-content-with-a-click-phones-and-youtube/"><u>[New] 2024 Approved  Captivating Content with a Click  Phones & YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dissecting-and-defeating-dreadful-greenscreen-a-mac-editors-directive/"><u>[New] 2024 Approved  Dissecting & Defeating Dreadful Greenscreen  A Mac Editor's Directive</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-comprehensive-tutorial-for-transforming-vids-into-dollars-for-2024/"><u>[New] A Comprehensive Tutorial for Transforming Vids Into Dollars for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-in-class-streaming-capture-software-for-youtubers-for-2024/"><u>[New] Best-in-Class Streaming Capture Software For YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-demystifying-the-anatomy-of-a-great-yt-short-video-for-2024/"><u>[New] Demystifying the Anatomy of a Great YT Short Video for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-charting-the-course-establishing-a-powerful-gaming-channel/"><u>[New] In 2024, Charting the Course  Establishing a Powerful Gaming Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-engaging-audiences-writing-compelling-titles-and-descriptions-for-youtube/"><u>[New] In 2024, Engaging Audiences  Writing Compelling Titles and Descriptions for YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-innovative-techniques-for-igtv-backgrounds/"><u>[New] In 2024, Innovative Techniques for IGTV Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-rich-tapestry-of-ajeys-channel-wealth/"><u>[New] The Rich Tapestry of Ajey's Channel Wealth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-valedictions-sign-off-strategies-for-online-platforms/"><u>[New] Video Valedictions  Sign-Off Strategies for Online Platforms</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-become-a-veterinarian-on-android-12-great-simulators/"><u>[Updated] 2024 Approved  Become a Veterinarian on Android  12 Great Simulators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dancefloor-directives-expert-dj-video-downloads/"><u>[Updated] 2024 Approved  Dancefloor Directives  Expert DJ Video Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audio-anomalies-top-disruptive-apps-on-the-go-for-2024/"><u>[Updated] Audio Anomalies  Top Disruptive Apps on the Go for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-conquer-the-blackened-canvas-of-youtube-for-2024/"><u>[Updated] Conquer the Blackened Canvas of YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-eco-films-learn-and-innovate-with-yts-green-screens/"><u>[Updated] Explore Eco-Films  Learn & Innovate with YT's Green Screens</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-freeze-whole-website-panel/"><u>[Updated] Freeze Whole Website Panel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-full-scope-understanding-online-performance-artists/"><u>[Updated] Full Scope  Understanding Online Performance Artists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-android-users-the-top-6-video-downloaders-for-easy-access/"><u>[Updated] In 2024, Android Users  The Top 6 Video Downloaders for Easy Access</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-video-visibility-through-thumbnails/"><u>[Updated] In 2024, Elevating Video Visibility Through Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-embrace-authenticity-your-style-journey-begins-here/"><u>[Updated] In 2024, Embrace Authenticity  Your Style Journey Begins Here</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-engagement-top-12-tactics-for-youtube-success/"><u>[Updated] In 2024, Enhance Engagement  Top 12 Tactics for YouTube Success</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-mp4twitconversion-quick-conversion/"><u>[Updated] In 2024, MP4TwitConversion  Quick Conversion</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-laughter-is-free-access-to-top-meme-creations/"><u>[Updated] Laughter Is Free  Access to Top Meme Creations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-to-dodge-content-advisory-strikes/"><u>[Updated] Strategies to Dodge Content Advisory Strikes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tailored-engagement-design-your-youtube-sign-up-bar-with-an-animated-approach-using-filmora/"><u>[Updated] Tailored Engagement  Design Your YouTube Sign-Up Bar with an Animated Approach Using Filmora</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-revolutionize-video-production-via-xp-installation/"><u>2024 Approved  Revolutionize Video Production via XP Installation</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/comprehensible-guide-quick-fix-for-active-directory-domain-services-printer-errors/"><u>Comprehensible Guide: Quick Fix for Active Directory Domain Services Printer Errors</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/delve-into-all-shared-visuals-within-a-chat-on-messenger-for-2024/"><u>Delve Into All Shared Visuals Within a Chat on Messenger for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-breaking-into-the-tiktok-livestream-realm/"><u>In 2024, Breaking Into the TikTok Livestream Realm</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-apple-iphone-11-pro-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My Apple iPhone 11 Pro?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-iphone-13-mini-drfone-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-silent-symphony-softening-computer-sounds-system-wide/"><u>In 2024, Silent Symphony  Softening Computer Sounds System-Wide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-emojis-in-youtube-comments-for-2024/"><u>Step-by-Step  Emojis in YouTube Comments for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-for-earning-from-every-youtube-short-for-2024/"><u>Step-by-Step Guide for Earning From Every YouTube Short for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-key-to-successful-collaborations-in-the-digital-age-for-2024/"><u>The Key to Successful Collaborations in the Digital Age for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-financial-frontier-strategies-for-maximum-gains-for-2024/"><u>Youtube's Financial Frontier  Strategies for Maximum Gains for 2024</u></a></li>
+</ul></div>

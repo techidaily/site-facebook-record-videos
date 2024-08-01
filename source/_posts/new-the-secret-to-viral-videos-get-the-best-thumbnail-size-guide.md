@@ -1,7 +1,7 @@
 ---
 title: "[New] The Secret to Viral Videos? Get the Best Thumbnail Size Guide"
-date: 2024-06-05T05:47:26.725Z
-updated: 2024-06-06T05:47:26.725Z
+date: 2024-07-31T02:05:18.148Z
+updated: 2024-08-01T02:05:18.148Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/bca79052c5cd9d97263eb9f9d9f77145f2fe69685
 
 # Best YouTube Thumbnail Size You Should Know\[The Ultimate Guide\]
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -62,10 +65,17 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * Upload your desired video to YouTube in the Upload section.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
@@ -75,6 +85,9 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
 
 #### 2\. For Already Uploaded Video
@@ -89,8 +102,15 @@ To change the thumbnail on an already uploaded video you need to follow these st
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
@@ -98,6 +118,9 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -151,3 +174,61 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplify-your-vlog-presence-with-tubebuddys-tools/"><u>[New] 2024 Approved  Amplify Your Vlog Presence with TubeBuddy's Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-daily-deeds-for-digital-diaries-tips-on-virtual-journeys/"><u>[New] 2024 Approved  Daily Deeds for Digital Diaries  Tips on Virtual Journeys</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-converting-videos-to-gifs-online-the-ultimate-youtube-resource/"><u>[New] In 2024, Converting Videos to Gifs Online  The Ultimate YouTube Resource</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-detailed-procedures-for-elevating-youtube-clips-through-wm-maker/"><u>[New] In 2024, Detailed Procedures for Elevating YouTube Clips Through WM Maker</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-winter-vlogs-with-five-heartwarming-backdrops/"><u>[New] In 2024, Enhancing Winter Vlogs with Five Heartwarming Backdrops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-the-depths-of-asmr-content/"><u>[New] In 2024, Exploring the Depths of ASMR Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-mobile-media-a-guide-to-the-9-smartest-gadgets-for-filmmakers/"><u>[New] Mastering Mobile Media  A Guide to the 9 Smartest Gadgets for Filmmakers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-maximize-efficiency-on-mac-a-guide-to-leading-tts-applications/"><u>[New] Maximize Efficiency on Mac  A Guide to Leading TTS Applications</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-essential-blueprint-for-finding-and-enjoying-premium-cricket-streams/"><u>[New] The Essential Blueprint for Finding and Enjoying Premium Cricket Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-top-zero-charge-web-tools-to-craft-videos-for-2024/"><u>[Updated] 10 Top Zero-Charge Web Tools to Craft Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-achieving-virality-youtube-promotion-no-cost-involved/"><u>[Updated] 2024 Approved  Achieving Virality  YouTube Promotion No Cost Involved</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-a-non-ad-revenue-stream-on-youtube-the-self-sustaining-creators-tale/"><u>[Updated] 2024 Approved  Crafting a Non-Ad Revenue Stream on YouTube  The Self-Sustaining Creator’s Tale</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-visual-content-turning-youtube-clips-into-animated-gifs/"><u>[Updated] 2024 Approved  Enhancing Visual Content  Turning Youtube Clips Into Animated GIFs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-the-youtube-content-manager-toolkit/"><u>[Updated] 2024 Approved  Exploring the YouTube Content Manager Toolkit</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-gamer-friendly-video-capture-apps/"><u>[Updated] 2024 Approved  Gamer-Friendly Video Capture Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instas-power-players-a-guide-to-your-niches-movers-and-shakers/"><u>[Updated] 2024 Approved  Insta’s Power Players  A Guide to Your Niche's Movers & Shakers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-beginners-pathway-to-effective-video-tag-usage-for-2024/"><u>[Updated] A Beginner's Pathway to Effective Video Tag Usage for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-complete-overview-v-youtubers-in-the-digital-arena-for-2024/"><u>[Updated] Complete Overview  V-YouTubers in the Digital Arena for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-revenue-how-much-do-creators-earn-on-youtube-in-2024/"><u>[Updated] Decoding Revenue  How Much Do Creators Earn on Youtube, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-diy-photography-support-systems-for-2024/"><u>[Updated] DIY Photography Support Systems for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-gamers-top-picks-1-ranked-4k-laptops/"><u>[Updated] Gamers' Top Picks  #1 Ranked 4K Laptops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-many-viewers-equates-to-profit-decoding-youtubes-earnings-formula/"><u>[Updated] How Many Viewers Equates to Profit? Decoding YouTube's Earnings Formula</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates/"><u>[Updated] In 2024, Boosting Channel Earnings  The Step-by-Step FameBit Guide to Affiliates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breakdown-of-ad-revenue-average-income-for-youtube-vids/"><u>[Updated] In 2024, Breakdown of Ad Revenue  Average Income for YouTube Vids?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-timeliness-using-current-events-to-your-advantage/"><u>[Updated] Mastering Timeliness  Using Current Events to Your Advantage</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-choice-best-microphone-for-youtubers/"><u>[Updated] Prime Choice  Best Microphone for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ranking-8-proven-online-promotion-techniques-for-videos/"><u>[Updated] Ranking 8 Proven Online Promotion Techniques for Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-revolutionize-your-audience-youtube-marketing-101/"><u>[Updated] Revolutionize Your Audience  YouTube Marketing 101</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-standing-out-in-a-crowd-the-finest-thumbnail-font-options/"><u>[Updated] Standing Out in a Crowd  The Finest Thumbnail Font Options</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-twitch-and-youtube-a-comprehensive-streamers-guide/"><u>[Updated] Twitch and YouTube  A Comprehensive Streamer's Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-first-leap-onto-youtubes-platform/"><u>[Updated] Your First Leap Onto YouTube's Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-seo-guide-for-beginners-who-want-more-views/"><u>[Updated] YouTube SEO Guide for Beginners Who Want More Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-streaming-made-simple-with-obs-guidebook/"><u>[Updated] Youtube Streaming Made Simple with OBS Guidebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-craft-snapchat-magic-two-easy-lens-making-ways/"><u>2024 Approved  Craft Snapchat Magic  Two Easy Lens Making Ways</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-expert-tips-for-ultimate-fcp-efficiency/"><u>2024 Approved  Expert Tips for Ultimate FCP Efficiency</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-taking-photos-and-posting-youtubes-complete-guidebook/"><u>2024 Approved  Taking Photos and Posting  YouTube's Complete Guidebook</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/8-safe-and-effective-methods-to-unlock-your-iphone-xs-max-without-a-passcode-drfone-by-drfone-ios/"><u>8 Safe and Effective Methods to Unlock Your iPhone XS Max Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/discovering-different-facets-of-ar-stickers-a-focus-on-google/"><u>Discovering Different Facets of AR Stickers  A Focus on Google</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-performers-top-picks-from-skate-highlights/"><u>Elite Performers  Top Picks From Skate Highlights</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/enhanced-screen-resolution-controls-in-win11/"><u>Enhanced Screen Resolution Controls in Win11</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/giggle-guild-undead-humor-bots/"><u>Giggle Guild  Undead Humor Bots</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-apple-iphone-6s-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on Apple iPhone 6s online without jailbreak</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-samsung-galaxy-a05-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Samsung Galaxy A05 Without PUK Codes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-best-apps-for-3d-video-intros-on-social-platforms/"><u>In 2024, Best Apps for 3D Video Intros on Social Platforms</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-motorola-moto-g-5g-2023-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Motorola Moto G 5G (2023) to Another | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 12 mini</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-visionary-vittles-steps-to-craft-food-films/"><u>In 2024, Visionary Vittles  Steps to Craft Food Films</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/jumpstart-earnings-a-novice-written-guide/"><u>Jumpstart Earnings  A Novice’ Written Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tailoring-your-headline-for-job-searches/"><u>Tailoring Your Headline for Job Searches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-essential-guide-to-early-success-on-youtube-steer-clear-of-these-top-8-pitfalls-for-2024/"><u>The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Vivo S17e? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-rewind-revolution-novel-strategies-for-youtube-viewers-for-2024/"><u>The Rewind Revolution  Novel Strategies for YouTube Viewers for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/top-incredible-browser-game-hacks/"><u>Top Incredible Browser Game Hacks</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-oneplus-nord-n30-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your OnePlus Nord N30 5G Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>

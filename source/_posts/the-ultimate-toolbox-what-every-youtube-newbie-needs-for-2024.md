@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Toolbox  What Every YouTube Newbie Needs for 2024\""
-date: 2024-06-05T04:13:53.065Z
-updated: 2024-06-06T04:13:53.065Z
+date: 2024-07-30T23:27:56.744Z
+updated: 2024-07-31T23:27:56.744Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,9 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -60,6 +63,9 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -72,6 +78,9 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -84,6 +93,9 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ## Smartphone Camera Gear
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -96,8 +108,14 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 ## Equipment with Easy-to-Use Video Editor
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -114,3 +132,61 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-are-there-restrictions-in-saving-youtube-videos/"><u>[New] 2024 Approved  Are There Restrictions in Saving YouTube Videos?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-free-subtitles-and-downloader-guide/"><u>[New] 2024 Approved  Best Free Subtitles & Downloader Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-complete-walkthrough-to-grab-youtube-playlists/"><u>[New] 2024 Approved  Complete Walkthrough to Grab YouTube Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-fast-format-transformation-youtube-for-mac-ratio/"><u>[New] 2024 Approved  Fast Format Transformation  YouTube for Mac Ratio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieve-sharpness-camera-tips-without-a-tripod-for-2024/"><u>[New] Achieve Sharpness  Camera Tips Without a Tripod for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-clipmaster-software-for-2024/"><u>[New] ClipMaster Software for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exclusive-offer-20-free-luts-just-for-dji-mini-and-air-users/"><u>[New] Exclusive Offer  20 FREE LUTS Just for DJI Mini & Air Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-dreamer-to-doer-sign-up-for-a-youtube-channel-for-2024/"><u>[New] From Dreamer To Doer  Sign Up for a YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comparative-analysis-androids-finest-video-downloaders/"><u>[New] In 2024, A Comparative Analysis  Android's Finest Video Downloaders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-download-youtube-snippets-with-perfection/"><u>[New] In 2024, Download YouTube Snippets with Perfection</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-photo-frame-solutions-s-visionaries/"><u>[New] Innovative Photo Frame Solutions 'S Visionaries</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-your-youtube-click-through-rate-upload-schedule-insights/"><u>[New] Maximizing Your YouTube Click-Through Rate  Upload Schedule Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-setup-for-championship-streaming/"><u>[New] The Ultimate Setup for Championship Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-size-solution-to-boost-your-videos-online-performance/"><u>[New] The Ultimate Size Solution to Boost Your Video's Online Performance</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-time-lapse-video-techniques-for-ipad-users/"><u>[New] Time-Lapse Video Techniques for iPad Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-revenue-revolution-a-practical-guide-for-monetization/"><u>[New] Youtube's Revenue Revolution  A Practical Guide for Monetization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[Updated] 2024 Approved  5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creative-music-videos-a-list-of-15-youtube-projects/"><u>[Updated] 2024 Approved  Creative Music Videos  A List of 15 YouTube Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brand-yourself-differently-strategies-for-finding-uncommon-names-for-2024/"><u>[Updated] Brand Yourself Differently  Strategies for Finding Uncommon Names for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-capturing-gotomeet-pc-and-mobile-recording-tutorial-for-2024/"><u>[Updated] Capturing GoToMeet  PC & Mobile Recording Tutorial for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-check-your-channels-revenue-flow-for-2024/"><u>[Updated] Check Your Channel's Revenue Flow for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-detailed-guide-youtubes-end-screens-explained-for-2024/"><u>[Updated] Detailed Guide  YouTube's End Screens Explained for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-channel-appeal-with-free-professional-banner-designs-for-2024/"><u>[Updated] Enhance Channel Appeal with Free, Professional Banner Designs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-escaping-a-stroke-on-your-youtube-channel-for-2024/"><u>[Updated] Escaping a Stroke on Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-9-youtube-video-extraction-tools-for-android-reviewed/"><u>[Updated] In 2024, 9 YouTube Video Extraction Tools for Android Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-youtube-presence-with-simple-seo-techniques/"><u>[Updated] In 2024, Elevate Your YouTube Presence with Simple SEO Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-engagement-best-video-ideas-for-channels/"><u>[Updated] In 2024, Elevating Engagement  Best Video Ideas for Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-yt-techniques-for-fading-out-unwanted-backgrounds/"><u>[Updated] Mastering YT  Techniques for Fading Out Unwanted Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rise-above-reach-heights-5-tips-to-skyrocket-your-visibility/"><u>[Updated] Rise Above, Reach Heights  5 Tips to Skyrocket Your Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-save-youtube-playback-a-comprehensive-screencast-guide-at-no-cost/"><u>[Updated] Save YouTube Playback  A Comprehensive Screencast Guide at No Cost</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-simplifying-cross-platform-video-sharing-between-twitter-and-snapchat/"><u>[Updated] Simplifying Cross-Platform Video Sharing Between Twitter & Snapchat</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-video-craft-youtube-studio-edition/"><u>[Updated] Streamlining Video Craft  YouTube Studio Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-taking-photos-steadily-on-one-leg/"><u>[Updated] Taking Photos Steadily on One Leg?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-slowing-youtube-videos-37-chars/"><u>[Updated] The Ultimate Guide to Slowing YouTube Videos (37 Chars)</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-unmatched-3d-viewing-excellence-with-elite-decks-reviewed/"><u>[Updated] Unmatched 3D Viewing Excellence with Elite Decks Reviewed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-recording-webinars-on-a-budget-friendly-platform/"><u>2024 Approved  Recording Webinars on a Budget-Friendly Platform</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-gmail-password-on-tecno-spark-10-5g-devices-by-drfone-android/"><u>How to Reset Gmail Password on Tecno Spark 10 5G Devices</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-gratitude-archive-complete-collection-freepaid/"><u>In 2024, Gratitude Archive  Complete Collection (Free/Paid)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastery-techniques-for-embedding-social-media-live-videos/"><u>In 2024, Mastery Techniques for Embedding Social Media Live Videos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-apple-iphone-11-pro-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On Apple iPhone 11 Pro Making It Possible</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transform-streams-into-premium-4k-videos-easily/"><u>In 2024, Transform Streams Into Premium 4K Videos Easily</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-unlock-video-clarity-adding-captions-on-youtube/"><u>In 2024, Unlock Video Clarity  Adding Captions on YouTube</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/revamping-video-meeting-banners-for-teammates/"><u>Revamping Video Meeting Banners for Teammates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simplify-creating-youtube-thumbnails-now-for-2024/"><u>Simplify Creating YouTube Thumbnails Now for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocket-your-channels-reach-with-smart-backlink-strategies-for-2024/"><u>Skyrocket Your Channel's Reach with Smart Backlink Strategies for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/step-by-step-guide-to-record-online-video-calls-for-2024/"><u>Step-by-Step Guide to Record Online Video Calls for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/stepwise-approach-affordable-creation-of-engaging-youtube-intros-for-2024/"><u>Stepwise Approach  Affordable Creation of Engaging YouTube Intros for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-financial-frontier-youtubes-pay-structure-at-the-1m-mark-for-2024/"><u>The Financial Frontier  Youtube's Pay Structure at the 1M Mark for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/understanding-the-dynamics-behind-youtubes-investment-in-shorts-for-2024/"><u>Understanding the Dynamics Behind YouTube's Investment in Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-your-sub4sub-potential-the-critical-pre-entry-guide-for-2024/"><u>Unlocking Your Sub4sub Potential  The Critical Pre-Entry Guide for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719162457406-youtube-reworking-its-arsenal-with-cutting-edge-mini-games/"><u>YouTube Reworking Its Arsenal with Cutting-Edge Mini Games</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-centralized-digital-media-command-center-for-2024/"><u>YouTube's Centralized Digital Media Command Center for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-first-visual-hook-creating-personalized-thumbnails-for-2024/"><u>YouTube's First Visual Hook  Creating Personalized Thumbnails for 2024</u></a></li>
+</ul></div>

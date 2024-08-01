@@ -1,7 +1,7 @@
 ---
 title: "[New] Lens Strategy for Stellar Video Creations"
-date: 2024-06-05T05:47:25.988Z
-updated: 2024-06-06T05:47:25.988Z
+date: 2024-07-31T02:05:16.852Z
+updated: 2024-08-01T02:05:16.852Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,9 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -78,6 +81,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -103,10 +110,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
 ### Aperture
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -129,6 +142,9 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -141,6 +157,9 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -157,3 +176,44 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-earning-edge-reached-for-subscribers-above-500/"><u>[New] 2024 Approved  Earning Edge Reached for Subscribers Above 500</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-channel-hit-the-10000-view-mark-fast/"><u>[New] 2024 Approved  Elevate Your Channel  Hit the 10,000 View Mark Fast</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-swiftly-remove-live-videos-on-social-platforms/"><u>[New] 2024 Approved  Swiftly Remove Live Videos on Social Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-are-scalping-subscribers-a-viable-strategy-for-2024/"><u>[New] Are Scalping Subscribers a Viable Strategy for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-break-the-ice-with-these-beginner-video-gadgets-for-2024/"><u>[New] Break the Ice with These Beginner Video Gadgets for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-7-unforgettable-marriage-videos-on-vimeo-for-2024/"><u>[New] Discover 7 Unforgettable Marriage Videos on Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-verify-your-youtube-account-a-simple-guide/"><u>[New] How to Verify Your YouTube Account - a Simple Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-access-top-shorter-video-downloads-for-free-online/"><u>[New] In 2024, Access Top Shorter Video Downloads for FREE Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-streaming-a-guide-for-gamers/"><u>[New] Mastering YouTube Streaming  A Guide for Gamers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-satiating-the-social-hangry-with-hilarious-9gag-memes/"><u>[New] Satiating the Social Hangry With Hilarious 9GAG Memes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-turning-tides-creative-methods-to-flip-your-youtube-video/"><u>[New] Turning Tides  Creative Methods to Flip Your YouTube Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-aesthetics-advanced-video-hue-balancing/"><u>[New] YouTube Aesthetics  Advanced Video Hue Balancing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comedy-in-catchy-notes-best-parody-songs-list/"><u>[Updated] 2024 Approved  Comedy in Catchy Notes  Best Parody Songs List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-your-gaming-channel-on-youtube/"><u>[Updated] 2024 Approved  Crafting Your Gaming Channel on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-8-content-creators-skyrocketing-growth/"><u>[Updated] 2024 Approved  Cutting-Edge 8 Content Creators Skyrocketing Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-addressed-discrepancy-in-shorts-showcase-for-2024/"><u>[Updated] Addressed  Discrepancy in Shorts Showcase for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-becoming-a-maestro-at-zoom-broadcasting-on-youtube/"><u>[Updated] Becoming a Maestro at Zoom Broadcasting on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-bring-your-clips-to-life-a-compreenased-way-to-post-on-youtube-for-2024/"><u>[Updated] Bring Your Clips to Life  A Compreenased Way to Post on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-charting-success-with-youtube-income-streams-for-2024/"><u>[Updated] Charting Success with YouTube Income Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deception-navigating-false-subscriber-sells-for-2024/"><u>[Updated] Deception  Navigating False Subscriber Sells for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-content-pc-video-editing-for-effective-youtube-presentations-for-2024/"><u>[Updated] Elevate Your Content  PC Video Editing for Effective YouTube Presentations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-entertainment-a-thousand-gaming-channels/"><u>[Updated] In 2024, Elevate Entertainment  A Thousand Gaming Channels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-radeon-remembrance-set/"><u>[Updated] In 2024, Radeon Remembrance Set</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-list-of-free-video-openers/"><u>[Updated] The Ultimate List of Free Video Openers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-cinematic-chronicles-reviewing-high-fidelity-recorders/"><u>2024 Approved  Cinematic Chronicles  Reviewing High-Fidelity Recorders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-live-link-lifters-annual-archive-access/"><u>2024 Approved  Live Link Lifters - Annual Archive Access</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-editing-made-easy-shortening-video-lengths/"><u>2024 Approved  YouTube Editing Made Easy  Shortening Video Lengths</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-asus-rog-phone-8-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-poco-f5-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Poco F5 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-15-pro-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-vivo-t2-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Vivo T2 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Samsung Galaxy A05s? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-honor-magic-6-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-inhabit-your-island-minimalistic-mc-house-plans-explained/"><u>In 2024, Inhabit Your Island  Minimalistic MC House Plans Explained</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/key-steps-to-screen-record-on-your-phone-for-2024/"><u>Key Steps to Screen Record on Your Phone for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-edible-media-recipe-tutorials-for-2024/"><u>The Art of Edible Media  Recipe Tutorials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-your-youtube-comment-tracking-on-multiple-devices-for-2024/"><u>Unlocking Your YouTube Comment Tracking on Multiple Devices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-visual-impact-journey-begins-with-our-50-free-banners-for-2024/"><u>Your Visual Impact Journey Begins with Our 50 FREE Banners for 2024</u></a></li>
+</ul></div>

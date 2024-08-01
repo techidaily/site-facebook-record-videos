@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering YouTube Video Sizing  A Step-by-Step Approach\""
-date: 2024-06-05T04:45:28.518Z
-updated: 2024-06-06T04:45:28.518Z
+date: 2024-07-31T00:21:22.604Z
+updated: 2024-08-01T00:21:22.604Z
 tags:
   - ai video
   - ai youtube
@@ -48,8 +48,14 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Check below video to know more and download now to have a try for free.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## The right YouTube video size for you
 
 | Resolution | Equivalent Name | Quality                             |
@@ -78,6 +84,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Image from learn.g2
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ## What's the best YouTube video size for you?
 
  It is recommended by professionals to use the YouTube video dimensions 1080p, or 1920 x 1080.
@@ -86,6 +95,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  If you are a newbie to the world of YouTube and want to up the device's storage game then 720p would still do wonders.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is the video aspect ratio?
 
  This term refers to the proportion of your video. In other words, the video aspect ratio can be defined as the width or breadth (of an image or screen) with respect to its height. Such a ratio can be expressed or represented in the form of "width x height.
@@ -117,6 +129,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 | 16:9 or 16x9 | The format was enhanced to 16:9 aspect ratio for more HD quality and better viewing experience. This format is widely being used in televisions, theatres, DVD or high definition professional videos.                                                                                     |
 | 21:9 or 21x9 | For more than merely an HD video quality and astonishing user experience, the formats have been upgraded to 21:9 aspect ratio. This is dominantly being used in the cinema for movie theatre releases.                                                                                     |
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The right aspect ratio for YouTube videos
 
  YouTube recommends using an aspect ratio of **16:9**  according to the video player that YouTube uses. You are also given an option to upload your videos vertically but this will amend the aspect ratio respectively.
@@ -125,6 +140,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  A vertical ratio with may be 4:3 video aspect ratio will be displayed like the image given below:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![youtube video dimensions 1080p](https://images.wondershare.com/filmora/article-images/vertical-ratio-display.jpg)
 
  Image from learn.g2
@@ -149,6 +167,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Image from metricool
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ### 2\. Perfect size for your YouTube thumbnail photo
 
 #### What is YouTube thumbnail?
@@ -177,6 +198,10 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Image from learn.g2
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ### 3\. Perfect size for your YouTube banner
 
  YouTube offers two main areas for image display of your channel. One is an icon image while other is what YouTube calls "Channel Art". This is the same as Facebook's cover photo. People often call it "YouTube banner". It is a header image displayed at the top of your channel.
@@ -200,6 +225,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  For a thorough understanding, refer to the image below:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ![best video format for youtube](https://images.wondershare.com/filmora/article-images/youtube-banner-dimensions.jpg)
 
  Image from learn.g2
@@ -218,6 +246,14 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
 ## FAQs about Youtube upload settings
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![FAQs]( https://images.wondershare.com/filmora/article-images/faq-article.jpg )
 
 #### What is the maximum YouTube upload limit of size?
@@ -236,6 +272,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Step 3: Go on settings option where a pop-up window will appear.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ![youtube upload limit](https://images.wondershare.com/filmora/article-images/default-upload-setting-3.jpg)
 
  Step 4: Look for upload defaults and change the configurations on 2 tabs.
@@ -262,6 +301,9 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
  Step 3: Click on upload video in the drop-down.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ![best video format for youtube](https://images.wondershare.com/filmora/article-images/youtube-video-upload-3.jpg)
 
  Step 4: You will be redirected to the video upload page. Click "public" under "Select files to upload" option and choose visibility level (public, private or scheduled).
@@ -318,6 +360,13 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## Final Verdict
 
  Hopefully, with this detailed guide, you are now ready to make a wise decision regarding customizing your videos and channel as per viewers likeliness. So get ready to see your channel grow drastically!
@@ -338,3 +387,58 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-15-best-free-tools-for-downloading-high-fidelity-soundtracks-directly-from-youtube-for-2024/"><u>[New] 15 Best Free Tools for Downloading High-Fidelity Soundtracks Directly From YouTube for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-20plus-artistic-assembly-ideas-for-a-brighter-yard/"><u>[New] 20+ Artistic Assembly Ideas for a Brighter Yard</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>[New] 2024 Approved  A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-guide-on-applying-cc-rights-effectively/"><u>[New] 2024 Approved  A Step-by-Step Guide on Applying CC Rights Effectively</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-engaging-channels-using-tubebuddys-framework/"><u>[New] 2024 Approved  Crafting Engaging Channels Using TubeBuddy's Framework</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decoding-veiled-content-on-youtube/"><u>[New] 2024 Approved  Decoding Veiled Content on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-elevate-your-gameplay-top-5-recording-strategies-for-roblox-and-macos/"><u>[New] 2024 Approved  Elevate Your Gameplay  Top 5 Recording Strategies for Roblox & macOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-conversion-service-from-video-to-written-form/"><u>[New] 2024 Approved  Expert Conversion Service  From Video to Written Form</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-5-youtube-tag-generators-and-tips-to-tag-videos-properly-for-2024/"><u>[New] Best 5 YouTube Tag Generators & Tips to Tag Videos Properly for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-breakthrough-media-tools-to-complement-xsplit/"><u>[New] Breakthrough Media Tools to Complement XSplit</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-captivating-thumbnails-a-comprehensive-guide-for-youtube-creators-for-2024/"><u>[New] Crafting Captivating Thumbnails  A Comprehensive Guide for YouTube Creators for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-expert-tips-for-shifting-gender-identity-in-digital-imagery/"><u>[New] Expert Tips for Shifting Gender Identity in Digital Imagery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exclusive-access-top-8-platforms-for-free-green-screen-scenery-files/"><u>[New] In 2024, Exclusive Access  Top 8 Platforms for Free Green Screen Scenery Files</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-streamlined-techniques-for-saving-slideshows/"><u>[New] In 2024, Streamlined Techniques for Saving Slideshows</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-premium-podcast-partners-in-academia-for-2024/"><u>[New] Premium Podcast Partners in Academia for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-ordinary-videos-into-viral-hits-with-innovative-thumbnails/"><u>[New] Transforming Ordinary Videos Into Viral Hits with Innovative Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-youtube-chat-insights/"><u>[New] Unlocking YouTube Chat Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-constructing-attention-grabbing-trailers-for-youtube/"><u>[Updated] 2024 Approved  Constructing Attention-Grabbing Trailers for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-success-in-youtubes-creator-hub/"><u>[Updated] 2024 Approved  Crafting Success in YouTube's Creator Hub</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-efficient-editing-for-quick-youtube-content/"><u>[Updated] 2024 Approved  Efficient Editing for Quick YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elite-10-sound-enhancers-across-os-platforms/"><u>[Updated] 2024 Approved  Elite 10 Sound Enhancers Across OS Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification./"><u>[Updated] 2024 Approved  Embrace the Pause Button  3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-the-perfect-end-screen-youtube-template-guidebook-for-2024/"><u>[Updated] Crafting the Perfect End Screen - YouTube Template Guidebook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-ajeys-youtube-revenue-for-2024/"><u>[Updated] Exploring Ajey's YouTube Revenue for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-10-best-travel-youtube-channels-to-follow/"><u>[Updated] In 2024, 10 Best Travel Youtube Channels to Follow</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-compreeved-guide-to-creating-stellar-youtube-outros/"><u>[Updated] In 2024, Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-core-auditory-stimulation-channels/"><u>[Updated] In 2024, Core Auditory Stimulation Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-launching-into-youtube-success-a-starter-guide-for-profit/"><u>[Updated] Launching Into Youtube Success  A Starter Guide for Profit</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-mastering-voice-overs-for-videos-step-by-step-guide-for-2024/"><u>[Updated] Mastering Voice-Overs for Videos  Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-income-mastering-youtube-channel-profitability-on-mobile/"><u>[Updated] Optimal Income  Mastering YouTube Channel Profitability on Mobile</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-quick-route-to-your-latest-fb-video-viewings-for-2024/"><u>[Updated] Quick Route to Your Latest FB Video Viewings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-roadmap-to-youtube-fame-accruing-more-subscribers/"><u>[Updated] The Roadmap to YouTube Fame  Accruing More Subscribers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-top-8-trending-ae-templates-on-instagram-for-2024/"><u>[Updated] Top 8 Trending AE Templates on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlocking-customization-embedding-text-in-youtube-cards/"><u>[Updated] Unlocking Customization  Embedding Text in YouTube Cards</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-zte-blade-a73-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/are-feedbacks-on-items-monetized-in-videos/"><u>Are Feedbacks on Items Monetized in Videos?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/are-your-windows-apps-struggling-to-connect-to-the-internet-try-these-fixes/"><u>Are Your Windows Apps Struggling to Connect to the Internet? Try These Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-digital-frontiers-with-meta-drops-trial-run/"><u>Exploring Digital Frontiers with Meta Drops Trial Run</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-repairing-windows-based-pen-tablets/"><u>Guide: Repairing Windows-Based Pen Tablets</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-xs-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone XS Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-6-plus-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 6 Plus</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlink-your-iphone-14-plus-from-your-apple-id-by-drfone-ios/"><u>How To Unlink Your iPhone 14 Plus From Your Apple ID</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-boosting-vimeo-video-playback-tips-and-tricks/"><u>In 2024, Boosting Vimeo Video Playback  Tips and Tricks</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-nokia-g310-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Nokia G310</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-apple-iphone-15-pro-max-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/quick-steps-to-change-weather-location-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>Quick Steps to Change Weather Location on Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/securing-successful-video-ventures-through-team-choices-for-2024/"><u>Securing Successful Video Ventures Through Team Choices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-strategy-crafting-video-ads-without-spending-a-dime-for-2024/"><u>Step-by-Step Strategy  Crafting Video Ads without Spending a Dime for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/techniques-in-motivating-viewers-with-lifestyle-vlogs-for-2024/"><u>Techniques in Motivating Viewers with Lifestyle Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-video-monetization-dailymotion-vs-youtube-for-2024/"><u>The Ultimate Guide to Video Monetization  Dailymotion Vs. YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/thumbnail-and-banner-strategies-for-online-success-for-2024/"><u>Thumbnail & Banner Strategies for Online Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-daily-diary-staying-fresh-and-avoiding-common-mistakes-for-2024/"><u>Your Daily Diary  Staying Fresh & Avoiding Common Mistakes for 2024</u></a></li>
+</ul></div>

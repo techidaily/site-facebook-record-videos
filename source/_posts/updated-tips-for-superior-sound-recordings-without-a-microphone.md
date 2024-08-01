@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tips for Superior Sound Recordings Without a Microphone"
-date: 2024-06-05T04:56:16.789Z
-updated: 2024-06-06T04:56:16.789Z
+date: 2024-07-31T00:39:38.685Z
+updated: 2024-08-01T00:39:38.685Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,23 @@ thumbnail: https://thmb.techidaily.com/9452709ea5278a965307bf042e7d92a12b881e1c8
 
 # How to Record Good Audio Without a Microphone?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -47,6 +64,9 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -73,12 +93,19 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -95,12 +122,18 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -117,3 +150,53 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-erasing-the-spotlight-hide-visuals-in-shared-media/"><u>[New] 2024 Approved  Erasing the Spotlight  Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-strategies-for-exceptional-live-thumbnail-appeal/"><u>[New] 2024 Approved  Expert Strategies for Exceptional Live Thumbnail Appeal</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-live-recording-gadgets-for-youtube-content-creators-for-2024/"><u>[New] Best Live Recording Gadgets for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-masterful-stardew-upgrades-uncovered-the-seven-best/"><u>[New] In 2024, Masterful Stardew Upgrades Uncovered  The Seven Best</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-want-to-send-snaps-from-camera-roll-see-how-it-is-done/"><u>[New] In 2024, Want to Send Snaps From Camera Roll? See How It Is Done</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-integrate-twitch-and-youtube-a-streaming-blueprint/"><u>[New] Integrate Twitch and YouTube - A Streaming Blueprint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-youtube-to-webm-converter-apps-reviewed-and-ranked/"><u>[New] Top 10 YouTube to WebM Converter Apps Reviewed & Ranked</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-practical-pathway-for-profit-tracking-the-straightforward-steps-to-analyze-youtube-earnings/"><u>[Updated] 2024 Approved  A Practical Pathway for Profit Tracking  The Straightforward Steps to Analyze YouTube Earnings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-the-top-10-fitness-channels-for-yogis/"><u>[Updated] 2024 Approved  Discover the Top 10 Fitness Channels for Yogis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-earning-at-age-ten-the-extraordinary-financial-rise-of-ryan-kaji/"><u>[Updated] 2024 Approved  Earning at Age Ten  The Extraordinary Financial Rise of Ryan Kaji</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-channels-standing-with-these-tactics/"><u>[Updated] 2024 Approved  Elevate Your Channel's Standing with These Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-beginners-essential-guide-to-youtube-video-editing-magic-for-2024/"><u>[Updated] Beginner’s Essential Guide to YouTube Video Editing Magic for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-views-via-strategic-tagging-tactics-for-2024/"><u>[Updated] Boost Views via Strategic Tagging Tactics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cultivating-a-unique-vibe-in-your-own-mukbang-content-for-2024/"><u>[Updated] Cultivating a Unique Vibe in Your Own Mukbang Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-mobile-downloader-the-ultimate-apps-for-video-buffs/"><u>[Updated] Free Mobile Downloader  The Ultimate Apps for Video Buffs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-5-ways-to-record-vr-gameplay/"><u>[Updated] In 2024, 5 Ways to Record VR Gameplay</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-bites-outside-the-box-new-film-favorites/"><u>[Updated] In 2024, Best Bites Outside the Box  New Film Favorites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-your-earnings-effective-youtube-money-methods/"><u>[Updated] In 2024, Channel Your Earnings  Effective YouTube Money Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-content-creators-arena-vs-beta-studio-evolutionary-path/"><u>[Updated] In 2024, Content Creator's Arena  Vs. Beta Studio Evolutionary Path</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-depth-walkthrough-editing-youtube-videos-in-wmm/"><u>[Updated] In-Depth Walkthrough  Editing YouTube Videos in WMM</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-mycam-in-action-a-detailed-review-of-its-recording-abilities-for-2024/"><u>[Updated] MyCam in Action  A Detailed Review of Its Recording Abilities for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-profitable-pursuits-on-youtube-the-non-ad-revenue-roadmap/"><u>[Updated] Profitable Pursuits on YouTube  The Non-Ad Revenue Roadmap</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>[Updated] Streamline Video Analytics  A Guide to YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-effective-youtube-banners-for-2024/"><u>[Updated] The Ultimate Guide to Effective YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-20-free-footage-sites-a-comprehensively-curated-list/"><u>[Updated] Top 20 Free Footage Sites  A Comprehensively Curated List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-shorts-showing-up-after-fix/"><u>[Updated] YouTube Shorts Showing Up After Fix</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-guide-to-enhancing-obs-with-free-lut-downloads/"><u>2024 Approved  A Guide to Enhancing OBS with Free LUT Downloads</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-budgeting-for-effective-youtube-marketing/"><u>2024 Approved  Budgeting for Effective YouTube Marketing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-here-is-how-asmr-helps-with-sleep-and-best-asmrtist-recommendation/"><u>2024 Approved  Here Is How ASMR Helps with Sleep & Best ASMRtist Recommendation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sns-vs-competitors-a-critical-hdr-software-comparison/"><u>2024 Approved  SNS vs Competitors  A Critical HDR Software Comparison</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-tecno-spark-10-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Tecno Spark 10 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-tecno-phantom-v-flip-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-vivo-y100t-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo Y100t Phone that is Locked?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-motorola-edge-40-neo-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Motorola Edge 40 Neo to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-experience-the-best-download-options-for-fb-lite-videos-2023-ranking/"><u>In 2024, Experience the Best Download Options for FB Lite Videos - 2023 Ranking</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-easily-unlock-poco-screen-by-drfone-android/"><u>In 2024, How To Easily Unlock Poco Screen?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-a05-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy A05 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-the-maze-of-tiktoks-bulk-video-transfer/"><u>In 2024, Navigating the Maze of TikTok's Bulk Video Transfer</u></a></li>
+<li><a href="https://review-topics.techidaily.com/online-signatures-for-ext-documents-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Online signatures for {{ext}} documents</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/put-a-halt-on-surprise-youtube-videos-for-2024/"><u>Put a Halt on Surprise YouTube Videos for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/rpg-heritage-clashing-with-new-age-designs/"><u>RPG Heritage Clashing with New-Age Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategies-for-seamless-integration-of-work-and-youtube-for-2024/"><u>Strategies for Seamless Integration of Work & YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-power-of-youtubes-creative-commons-for-videographers-for-2024/"><u>The Power of YouTube's Creative Commons for Videographers for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transform-your-verbal-input-into-written-content-in-ms-word-for-2024/"><u>Transform Your Verbal Input Into Written Content in MS Word for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-potential-of-monetized-vlogs-for-2024/"><u>Unlocking the Potential of Monetized Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-prime-moments-celebrations-beyond-vidcon-for-2024/"><u>Youtube's Prime Moments  Celebrations Beyond VidCon for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating Your Path as a First-Time YouTuber  Sidestep These 8 Common Mistakes\""
-date: 2024-06-05T05:25:37.601Z
-updated: 2024-06-06T05:25:37.601Z
+date: 2024-07-31T01:28:37.787Z
+updated: 2024-08-01T01:28:37.787Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/07fb7fcd35b1838ffdc588256d8ede2b1811ae53f
 
 # 8 Mistakes People Should Avoid as a New YouTuber
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +33,14 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -44,6 +53,9 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -52,12 +64,19 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -102,3 +121,38 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-exclusive-game-recordings-tools/"><u>[New] 2024 Approved  Exclusive Game Recordings Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-video-thread-embellishments-for-2024/"><u>[New] Decoding Video Thread Embellishments for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-inspire-audiences-with-these-high-quality-free-sound-files/"><u>[New] Inspire Audiences with These High-Quality, Free Sound Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-instantly-access-all-episodes-premium-downloader-tools-reviewed/"><u>[New] Instantly Access All Episodes  Premium Downloader Tools Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-techniques-for-safe-youtube-audio-extraction-at-no-cost/"><u>[New] Techniques for Safe YouTube Audio Extraction at No Cost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-411-on-navigating-youtube-shorts/"><u>[New] The 411 on Navigating YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-creative-potential-with-these-6-youtube-graphic-sources/"><u>[New] Unleashing Creative Potential with These 6 YouTube Graphic Sources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-utilizing-textual-elements-a-guide-to-augmenting-video-content-on-youtube/"><u>[New] Utilizing Textual Elements  A Guide to Augmenting Video Content on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-decoding-the-science-of-hash-optimization-for-game-streaming/"><u>[Updated] 2024 Approved  Decoding the Science of Hash Optimization for Game Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-content-pc-video-editing-for-effective-youtube-presentations/"><u>[Updated] 2024 Approved  Elevate Your Content  PC Video Editing for Effective YouTube Presentations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-much-wealth-can-you-generate-on-youtube-using-cpm/"><u>[Updated] How Much Wealth Can You Generate on YouTube Using CPM?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>[Updated] How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-immersive-worlds-unveiled-delving-into-mr-ar-and-vrs-distinctions/"><u>[Updated] Immersive Worlds Unveiled  Delving Into MR, AR, and VR's Distinctions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-earnings-analysis-youtube-views-vs-financial-gain/"><u>[Updated] In 2024, Earnings Analysis  YouTube Views vs Financial Gain</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-signs-youre-no-longer-snapchat-friend/"><u>[Updated] In 2024, Signs You're No Longer Snapchat Friend</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-video-submission-from-pcmobile-devices-to-youtube-shorts/"><u>[Updated] Navigating Video Submission  From PC/Mobile Devices to YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-synth-symphony-selecting-superior-dj-templates-for-download/"><u>[Updated] Synth Symphony  Selecting Superior DJ Templates for Download</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-dos-and-donts-of-daily-vlogging/"><u>[Updated] The Dos and Don'ts of Daily Vlogging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-visionary-voices-triumph-online/"><u>[Updated] Visionary Voices Triumph Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-what-is-the-youtube-creator-studio/"><u>[Updated] What Is the YouTube Creator Studio?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-picsart-app-deep-dive-full-review-analysis-and-instructions-for-the-new-year/"><u>2024 Approved  PicsArt App Deep Dive  Full Review, Analysis & Instructions for the New Year</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-top-tweets-on-screen-expert-guide-for-capturing-vids/"><u>2024 Approved  Top Tweets on Screen  Expert Guide for Capturing Vids</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/digital-heroes-choice-top-10-astonishing-adventure-games-for-2024/"><u>Digital Heroes' Choice  Top 10 Astonishing Adventure Games for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-lava-storm-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Lava Storm 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-alchemy-of-aesthetics-top-1-written-by-an-experienced-graphic-designer/"><u>In 2024, The Alchemy of Aesthetics  Top 1 Written by an Experienced Graphic Designer</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lgs-ultrafine-vision-a-thorough-4k-screen-evaluation/"><u>LG's UltraFine Vision  A Thorough 4K Screen Evaluation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-hands-turning-photos-into-compelling-youtube-thumbnails-for-2024/"><u>Quick Hands  Turning Photos Into Compelling YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/tecno-unveils-thinner-t1-vivid-s1-at-ifa-2023/"><u>Tecno Unveils Thinner T1, Vivid S1 at IFA 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-playlist-youtubes-best-in-vr-for-2024/"><u>The Ultimate Playlist  YouTube’s Best in VR for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unyielding-nature-of-facebooks-content-advice/"><u>The Unyielding Nature of Facebook's Content Advice</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-crucial-details-for-asmr-viewers-for-2024/"><u>Unveiling Crucial Details for ASMR Viewers for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Guide to Self-Supported YouTube Earnings Strategies\""
-date: 2024-06-05T03:34:13.337Z
-updated: 2024-06-06T03:34:13.337Z
+date: 2024-07-30T22:21:04.912Z
+updated: 2024-07-31T22:21:04.912Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,9 @@ More and more people are making a living by creating videos on YouTube. Accordin
 
 Over thousands of hours of content are uploaded on YouTube every day and people are going crazy to earn money with video monetization. There should be a minimum time gap between your video shoot, editing, and uploading it to your channel. Wondershare Filmora Video Editor can help you get your videos edited faster. Not only the interface is simple and intuitive, it has both the basic and professional editing tools such as cutting, trimming, crop&zoom, a large collection of video effects and royalty-free music, and you can also upload the video directly on YouTube after editing. All of these make Filmora stand out in the queue and become a favorite tool to edit YouTube videos.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **What is the YouTube Partner Program (YPP)?**
 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
@@ -54,6 +57,9 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -68,6 +74,9 @@ For new YouTubers, it is getting harder and harder to get to that point where th
 
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **1\. Sell Your Product or Service:**
 
 YouTube is one of the most effective means of marketing and selling your products and services if you are able to use it effectively and drive people to click and buy.
@@ -114,6 +123,9 @@ Here is how you should go about selling your product or service on YouTube:
 
 If you are selling a meditation eBook and guided meditation services, type in some possible keywords in the YouTube search bar. What appears will be some popular searches:
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
@@ -134,14 +146,24 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 **The YouTube Card:**
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
@@ -206,6 +228,9 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -224,6 +249,11 @@ The decision-makers behind brands might not be aware of influencers with a small
 
 If you want to get a brand deal and become an influencer on YouTube, then you will have to put yourself out there to be discovered and that is on an Influencer Marketing Network, such as [Famebit](https://famebit.com/).
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
 
 #### **How Influencer Marketing Platforms Like Famebit Works**
@@ -243,6 +273,9 @@ Steps to getting a brand deal:
 
 ##  
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ## **4\. Crowdfunding:**
 
 If you are creating valuable content and have a loyal following, you can start thinking about crowdfunding. It doesn’t take stardom to start asking for donations, pledge, or support from your fans. There is a demand for quality content and if you are creating something of value, even on a free service like YouTube, people will happily pay to support it.
@@ -304,3 +337,54 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-5-essential-tips-for-monetizing-your-content-finding-the-right-viewer-count/"><u>[New] 2024 Approved  5 Essential Tips for Monetizing Your Content  Finding the Right Viewer Count</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>[New] 2024 Approved  Dial Up Your Digital Presence  Tips for Confident Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-distinctive-digital-monikers-for-video-creators/"><u>[New] 2024 Approved  Distinctive Digital Monikers for Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-video-making-opt-for-studio-versus-beta-version/"><u>[New] 2024 Approved  Expert Video Making  Opt for Studio Versus Beta Version</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-eyes-on-the-digital-winners-top-channels/"><u>[New] 2024 Approved  Eyes on the Digital Winners  Top Channels</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-guide-for-snapchat-business/"><u>[New] 2024 Approved  Guide for Snapchat Business</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-infuse-your-tiktok-with-popular-anime-themes-and-styles/"><u>[New] 2024 Approved  Infuse Your TikTok with Popular Anime Themes & Styles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-11-brainy-battles-general-knowledge-channels-revealed/"><u>[New] 2024 Approved  Top 11 Brainy Battles  General Knowledge Channels Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieve-striking-visuals-your-guide-to-uploading-at-correct-dimensions-for-2024/"><u>[New] Achieve Striking Visuals  Your Guide to Uploading at Correct Dimensions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-a-journalistic-closing-statement-for-2024/"><u>[New] Crafting a Journalistic Closing Statement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-extracting-youtube-songs-safely-a-free-guide-explored-for-2024/"><u>[New] Extracting YouTube Songs Safely  A Free Guide Explored for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-eye-on-the-screen-youtube-journey-comparison-from-creator-to-competitor-for-2024/"><u>[New] Eye on the Screen  YouTube Journey Comparison From Creator to Competitor for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-best-youtube-makeup-artists-you-must-have-heard/"><u>[New] In 2024, 10 Best YouTube Makeup Artists You Must Have Heard</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-bypassing-blackouts-with-video-tips/"><u>[New] In 2024, Bypassing Blackouts with Video Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-direct-and-simple-idevice-media-transfer-to-youtube/"><u>[New] In 2024, Direct and Simple  IDevice Media Transfer to YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earnings-analysis-youtube-views-vs-financial-gain/"><u>[New] In 2024, Earnings Analysis  YouTube Views vs Financial Gain</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-viewing-experience-activating-av1-codec-on-youtube/"><u>[New] In 2024, Elevate Viewing Experience  Activating AV1 Codec on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-10-must-try-microphones-for-exceptional-asmr-sounds/"><u>[Updated] 2024 Approved  10 Must-Try Microphones for Exceptional ASMR Sounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>[Updated] 2024 Approved  Crack the Code of Content  Top 6 YouTuber Personality Tests Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-easy-sound-transformation-ios-tools-to-convert-youtube-songs-to-mp3-files/"><u>[Updated] 2024 Approved  Easy Sound Transformation  IOS Tools to Convert YouTube Songs to MP3 Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-average-revenue-what-every-view-contributes-to-creators-for-2024/"><u>[Updated] Average Revenue  What Every View Contributes to Creators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-16-youtube-intro-makers-to-bring-you-more-views/"><u>[Updated] Best 16 YouTube Intro Makers to Bring You More Views</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-direct-path-to-mp3-converting-fb-video-files/"><u>[Updated] Direct Path to MP3  Converting FB Video Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-earnings-escalate-500-subscriber-marker-achieved-for-2024/"><u>[Updated] Earnings Escalate  500-Subscriber Marker Achieved for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-going-against-the-tide-of-tradition-innovative-techniques-for-yt-rewinds/"><u>[Updated] Going Against the Tide of Tradition  Innovative Techniques for YT Rewinds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ace-10-budget-friendly-video-subtitle-grabs/"><u>[Updated] In 2024, Ace 10 Budget-Friendly Video Subtitle Grabs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-a-stellar-game-channels-look-a-step-by-step-approach/"><u>[Updated] In 2024, Creating a Stellar Game Channels Look  A Step-By-Step Approach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-vids-for-cash-comparing-dm-and-yo-strategies/"><u>[Updated] Maximizing Vids for Cash  Comparing Dm & Yo Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pathways-to-youtube-stardom-in-video-games/"><u>[Updated] Pathways to YouTube Stardom in Video Games</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-securing-your-income-with-youtube-learnings-from-sourav-joshi-by-2024/"><u>[Updated] Securing Your Income with YouTube  Learnings From Sourav Joshi by 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-simplified-cross-platform-listening-top-5-playlist-conversion-resources/"><u>[Updated] Simplified Cross-Platform Listening  Top 5 Playlist Conversion Resources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-creme-de-la-creativite-youtube-subscriber-list/"><u>[Updated] The Crème De La Créativité  YouTube Subscriber List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-15-youtube-intro-templates-for-your-youtube-video/"><u>[Updated] Top 15 YouTube Intro Templates for Your YouTube Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-sounds-for-video-creators-royalty-free-options/"><u>[Updated] Top Sounds for Video Creators  Royalty-Free Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-alternatives-at-a-glance-choosing-the-best-platforms/"><u>[Updated] YouTube Alternatives at a Glance  Choosing the Best Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-short-mastery-from-idea-to-final-product/"><u>2024 Approved  YouTube Short Mastery  From Idea to Final Product</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-vivo-v30-lite-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Vivo V30 Lite 5G Phone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-level-quick-fixes-the-ultimate-5-diy-filmmaking-tricks-for-2024/"><u>Expert-Level Quick Fixes  The Ultimate 5 DIY Filmmaking Tricks for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-iphone-6-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iPhone 6 System Issues? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/how-to-search-people-on-facebook-quickly-2-ways-included/"><u>How to Search People on Facebook Quickly (2 Ways Included)</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone 7? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-visual-producer-hub/"><u>In 2024, Visual Producer Hub</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-depth-analysis-understanding-google-podcasts-app-for-2024/"><u>In-Depth Analysis  Understanding Google Podcasts App for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/master-the-art-of-livestreaming-three-key-approaches-subscriber-less-style/"><u>Master the Art of Livestreaming  Three Key Approaches, Subscriber-Less Style</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pro-level-7-cameras-perfect-for-professional-broadcasting-vloggers-for-2024/"><u>Pro-Level 7 Cameras Perfect for Professional Broadcasting Vloggers for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/supercharge-windows-based-counter-strike-play/"><u>Supercharge Windows-Based Counter-Strike Play</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-footage-into-visual-art-with-youtube-studio-for-2024/"><u>Transform Footage Into Visual Art with YouTube Studio for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlock-6-figure-videos-top-hashtag-trends-for-2024/"><u>Unlock 6-Figure Videos  Top Hashtag Trends for 2024</u></a></li>
+</ul></div>

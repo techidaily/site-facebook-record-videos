@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Youtube Shorts Earning Strategies  Crucial Elements, Possible Returns\""
-date: 2024-06-05T06:28:21.632Z
-updated: 2024-06-06T06:28:21.632Z
+date: 2024-07-31T03:14:48.207Z
+updated: 2024-08-01T03:14:48.207Z
 tags:
   - ai video
   - ai youtube
@@ -11,7 +11,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Youtube Shorts Earning Strategies: Crucial Elements, Possible Returns\""
 excerpt: "\"This Article Describes 2024 Approved: Youtube Shorts Earning Strategies: Crucial Elements, Possible Returns\""
 keywords: "Youtube Earnings Guide,Short Video Profit Tips,Key Aspects for Success,Increase Shorty Revenue,Earning Strategies Quick,Returning From Shorts,Crucial Earnings Steps"
-thumbnail: https://www.lifewire.com/thmb/rF-owqGYMDnUcEI0Dpfe0-HV4eU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/obsolete-ipad-4138570-903c7a3d4f5e48b29005c75d26ce79b7.png
+thumbnail: https://thmb.techidaily.com/e0be33554f7e808cbb9defb5e44d8742371f9f0a41b00b3f13329dba336fbddc.png
 ---
 
 ## Youtube Shorts Earning Strategies: Crucial Elements, Possible Returns
@@ -22,8 +22,14 @@ YouTube Shorts have grown in popularity since the launch of the platform in 2021
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Part 1\. YouTube Shorts Monetization: Eligibility Criteria**
 
 With short monetization options, you can monetize your short-firm content by joining the YouTube Partner Program (YPP). Being a member of this program gives you access to all tools for making money on YouTube. This includes the ability to place ads on your videos or make money directly from your audience through fan funding.
@@ -77,12 +83,19 @@ In the top right of the YouTube page, click on your profile picture. From the po
 
 ##### Step 3In the left menu, Click on **Earn**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![youtube earn](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-4.JPG)
 
 ##### Step 4
 
 If you are eligible for the YPP, you will see an **Apply** Click on it to go to the next step. If you are not yet eligible, click the **Get Notified** button to be notified once your channel becomes eligible. That’s when you will have the opportunity to finish the application process.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![youtube get notified](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-5.JPG)
 
 ##### Step 5
@@ -95,6 +108,9 @@ Click **Start** to review and accept YouTube’s Base terms.
 
 Link your existing AdSense account if you have one. If not. Click **Start** to set up a new one.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![youtube link adsense](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-7.JPG)
 
 ##### Step 7
@@ -107,6 +123,9 @@ The instructions shared above are for applying for the YPP using a computer or d
 
 The money-making feature monetizes Shorts in exciting ways. To start monetizing with Super Thanks fan funding, click Supers on the Earn tab in YouTube Studio. Then click Get Started, and follow the presented prompts. The same process is applicable for Channel Memberships, and other fan-funding options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ## **Part 3\. YouTube Shorts Monetization: A Realistic Look at Earnings Potential**
 
 Monetizing YouTube Shorts has the potential to make decent earnings. Although the amount is not as much as a long-form videos, it is a great way of making money on YouTube quickly. Most YouTube Shorts creators agree that the revenue per thousand views (RPM) for short-form content is currently around $0.05 - $0.07\. This means that for a million Shorts views, you will make $50 - $70.
@@ -120,6 +139,9 @@ The amount of money you make on YouTube Shorts is not fixed. It will depend on s
 * **Number of monetized Shorts:** Monetizing most of your short-form videos will increase the revenue generated.
 * **Shopping Revenue:** How well you promote your products and the set price point of the products will determine the shopping revenue generated.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Examples of Creators Who Have Earned from Shorts**
 
 The revenue-sharing program is the easiest way for creators to earn money on YouTube. Since monetizing their Shorts, these creators earned some decent bonus amounts:
@@ -129,6 +151,9 @@ The revenue-sharing program is the easiest way for creators to earn money on You
 * [James Seo](https://www.youtube.com/@JamesSeo/) (573,000 subscribers) - Earned $445.09 in ads from 10.3 million Shorts views
 * [Matthew King](https://www.youtube.com/@mattykayy/) (212,000 subscribers) - Earned $163.73 in ads from 4.2 million Shorts views
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ## **Part 4\. Editing YouTube Shorts with WonderShare to Boost Revenue Potential**
 
 The best way to reap big from Shorts YouTube monetization is to make quality videos that will go viral easily. Videos that generate more views will earn you more revenue and increase the number of subscribers within a short time. With Wondershare Filmora, making such videos is easy. The video editing software offers useful features for making your videos stand out. From jaw-dropping sports videos to cinema-like production, the choice of options is endless.
@@ -139,14 +164,24 @@ The best way to reap big from Shorts YouTube monetization is to make quality vid
 
 The choice of Filmora features you use on your editing projects will depend on your goals. Here are a few favorites to get you started:
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### **1\.** [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Before uploading a short-form video on YouTube, you want to make sure it is of the right resolution. The Auto Reframe feature on Filmora allows you to instantly resize your videos while keeping all the important details. You only need to record one video for all platforms, and edit to fit with auto reframe.
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **2\.** **[Text to Speech](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 Narration is an important aspect of YouTube Shorts. You can tell what is happening in the clip in the simplest way for your audience to understand. The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voice-over. This makes your Shorts video more entertaining and enriched with more elements.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ### 3\. [**AI Portrait**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Just like other vertical social media videos, Shorts require some bit of personalization. You may want to add a bit of elements or filters. The AI Portrait feature automatically removes background with high accuracy to further enhance your videos. It also comes with over 70 portrait and sticker effects to bring out the mood you are going after. Automatically recognize the faces of your subjects and add AR stickers on the go.
@@ -167,3 +202,58 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-10-easy-youtube-video-ideas-everyone-can-make-it/"><u>[New] 2024 Approved  10 Easy YouTube Video Ideas Everyone Can Make It</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-comprehensible-walkthrough-finding-your-youtube-remarks/"><u>[New] 2024 Approved  A Comprehensible Walkthrough  Finding Your YouTube Remarks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-addicted-to-boomerangs-mastering-ig-loop-artistry/"><u>[New] 2024 Approved  Addicted to Boomerangs  Mastering IG Loop Artistry</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-audience-connection-with-empowerment-vlogs/"><u>[New] 2024 Approved  Building Audience Connection with Empowerment Vlogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-the-finest-no-cost-video-editing-software/"><u>[New] 2024 Approved  Exploring the Finest No-Cost Video Editing Software</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-achieving-visual-excellence-with-the-best-4k-monitors-on-the-market/"><u>[New] Achieving Visual Excellence with the Best 4K Monitors on the Market</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/onquer-youtubes-copy-paste-loop-mastery-essentials-for-2024/"><u>[New] Conquer YouTube's Copy-Paste  Loop Mastery Essentials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-convert-your-shorts-to-mp4-video-enhancement-techniques-for-2024/"><u>[New] Convert Your Shorts to Mp4  Video Enhancement Techniques for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-cut-to-the-chase-comparing-gopro-and-drift-ghosts-for-2024/"><u>[New] Cut to the Chase  Comparing GoPro and Drift Ghosts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-design-dynamics-top-20-font-choices-for-youtube-success-for-2024/"><u>[New] Design Dynamics  Top 20 Font Choices for YouTube Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools/"><u>[New] In 2024, 10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-discovering-digital-dialogues-facebook-video-exchange/"><u>[New] In 2024, Discovering Digital Dialogues  Facebook Video Exchange</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>[New] In 2024, Essential Free Tools  Convert YouTube Audio to MP3 on iPhone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-get-your-grip-on-video-transferring-how-to-download-igtv-easily/"><u>[New] In 2024, Get Your Grip on Video Transferring  How to Download IGTV Easily</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-superior-cinematic-introductions-set/"><u>[New] Superior Cinematic Introductions Set</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-creative-potentials-youtube-trailers-with-filmora/"><u>[New] Unlock Creative Potentials  YouTube Trailers with Filmora</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolved-responsive-input-on-fixd-windows-11-pc/"><u>[Resolved]: Responsive Input on Fix'd Windows 11 PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhance-viewing-experience-best-youtube-converters-to-avi/"><u>[Updated] 2024 Approved  Enhance Viewing Experience  Best YouTube Converters to AVI</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-asmr-creators-to-follow-for-2024/"><u>[Updated] Essential ASMR Creators to Follow for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exercise-innovations-6-youtube-ideas-for-movement-focused-viewers/"><u>[Updated] Exercise Innovations  6 YouTube Ideas for Movement-Focused Viewers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-mastery-in-photography-and-videography-on-apple-and-android-phones-for-2024/"><u>[Updated] Explore Mastery in Photography & Videography on Apple & Android Phones for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-font-selection-wonders-enhancing-youtube-video-thumbnails/"><u>[Updated] Font Selection Wonders  Enhancing YouTube Video Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-raw-footage-to-final-cut-chroma-mastery/"><u>[Updated] From Raw Footage to Final Cut  Chroma Mastery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discovering-your-youtube-comments-on-various-devices/"><u>[Updated] In 2024, Discovering Your YouTube Comments on Various Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-editing-pro-tips-for-aspiring-sports-video-makers/"><u>[Updated] In 2024, Editing Pro Tips for Aspiring Sports Video Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-techniques-for-enhancing-youtube-audio/"><u>[Updated] Innovative Techniques for Enhancing YouTube Audio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mp3-to-youtube-converter-upload-mp3-to-youtube/"><u>[Updated] MP3 to YouTube Converter  Upload MP3 to YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-flv-to-youtube-transformers-in-a-ranking-list/"><u>[Updated] Optimal FLV to YouTube Transformers in a Ranking List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-seamless-integration-offline-watching-of-youtube-via-ios/"><u>[Updated] Seamless Integration  Offline Watching of YouTube via iOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-adding-value-youtubes-card-system/"><u>[Updated] Strategies for Adding Value  YouTube's Card System</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-art-of-amusement-master-memes-with-kapwing-for-2024/"><u>[Updated] The Art of Amusement – Master Memes with Kapwing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-patience-slowing-down-videos-on-youtube-51-chars/"><u>[Updated] The Art of Patience  Slowing Down Videos on YouTube (51 Chars)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-the-secrets-of-av1-codec-mastery/"><u>[Updated] Unveiling the Secrets of AV1 Codec Mastery</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-breaking-down-color-grading-into-simplified-steps/"><u>2024 Approved  Breaking Down Color Grading Into Simplified Steps</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-essential-steps-for-elevating-wmm-content-on-vimeo-platform/"><u>2024 Approved  Essential Steps for Elevating WMM Content on Vimeo Platform</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-football-filming-and-editing-essentials/"><u>2024 Approved  Free-Football Filming & Editing Essentials</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-mastering-insta-daily-strategies-for-amassing-1000plus-likesmonth/"><u>2024 Approved  Mastering Insta  Daily Strategies for Amassing 1,000+ Likes/Month</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-vr-journey-begins-with-these-top-titles/"><u>2024 Approved  VR Journey Begins with These TOP Titles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-camera-stabilizers-for-youtuber/"><u>Best Camera Stabilizers for YouTuber</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/get-hd-quality-facebook-videos-on-pcmobile/"><u>Get HD Quality Facebook Videos on PC/Mobile</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-google-pixel-fold-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Google Pixel Fold Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-infinix-note-30-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Infinix Note 30 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-on-apple-iphone-13-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently On Apple iPhone 13</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-premium-timekeeping-for-your-nuptials-appleandroid-selection/"><u>In 2024, Premium Timekeeping For Your Nuptials  Apple/Android Selection</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-samsung-galaxy-z-flip-5-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Samsung Galaxy Z Flip 5 Screen | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-infinix-smart-8-plus-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Infinix Smart 8 Plus Phone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-the-secrets-maximizing-your-video-content-on-zoom-and-youtube-live/"><u>In 2024, Unlock the Secrets  Maximizing Your Video Content on Zoom & YouTube Live</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/snipperpro-suite-for-2024/"><u>SnipperPro Suite for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tasty-tales-ideal-naming-for-culinary-broadcasts-for-2024/"><u>Tasty Tales  Ideal Naming for Culinary Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-free-online-video-tools-for-all-for-2024/"><u>The Ultimate Guide to Free Online Video Tools for All for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-online-video-snatcher-download-favorites-instantly-for-2024/"><u>Ultimate Online Video Snatcher  Download Favorites Instantly for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/wisdom-waves-prime-ed-channels-online-for-2024/"><u>Wisdom Waves  Prime Ed Channels Online for 2024</u></a></li>
+</ul></div>

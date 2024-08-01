@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Gamer's Path to Earnings on YouTube"
-date: 2024-06-05T03:54:46.502Z
-updated: 2024-06-06T03:54:46.502Z
+date: 2024-07-30T22:55:58.153Z
+updated: 2024-07-31T22:55:58.153Z
 tags:
   - ai video
   - ai youtube
@@ -18,12 +18,18 @@ thumbnail: https://thmb.techidaily.com/46df1e48b2f44db2d880f0d7735cdada8076c6dcb
 
 Gone is when playing video games was strictly for entertainment. These days, you can record and share your gaming skills on YouTube and earn a fortune. A good example is Techno Gamerz. This YouTube channel has over 29 million subscribers, and it's believed to be among the fastest-growing channels in India. In fact, the channel recently crossed the 1 billion views mark.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![techno gamerz income ujjwal chaurasia](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-1.jpg)
 
 Now, this begs the query; what is the **Techno Gamerz income** on YouTube? This article discusses everything you need to know about the young YouTube gamer, from his monthly and yearly payments to his net worth.
 
 **Meta Description**: This article discusses the brains behind the popular Techno Gamerz YouTube channel. You'll learn about the Techno Gamerz income, age, gender, nationality, and more.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ## Part 1: Summary Box on Techno Gamerz
 
 | Name                      | Ujjwal Chaurasia                       |
@@ -41,10 +47,17 @@ Now, this begs the query; what is the **Techno Gamerz income** on YouTube? This 
 
 Up to this point, you should have a brief overview of who Techno Gamerz is and what he does to earn such staggering figures on YouTube. So, the next section discusses his income in detail and what makes this YouTuber so famous. Keep reading!
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## Part 2: Techno Gamerz YouTube Earning and Stats
 
 Ujjwal Chaurasia, alias Techno Gamerz, was born and grew up in New Delhi, India. The charismatic vlogger first joined YouTube on August 13, 2017, and uploaded his first gaming video on January 2018\. Initially, Ujjwal used his elder brother's phone to post gaming tutorial videos. This obviously limited his input on YouTube as he also had to set aside time for studying.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![techno gamerz youtube marketing](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-2.jpg)
 
 But after seeing potential in what Techno Gamerz was doing, his brother encouraged him to post more often. His first viral video was for Dragon Ball Z, a downloading tutorial. This video garnered a massive 250K views, boosting his channel's profile. The young YouTube star has never looked back since then.
@@ -100,6 +113,9 @@ But to be one of the most popular YouTubers, you'll need diversity. Techno Gamer
 
 His other videos, "BeamNG" and "Just Draw," have more than 12 million and 13 million views, respectively. GTA V is the most loved by his audience, with over 30 million views.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus Tip: How To Be a YouTuber and Make Videos Like Techno Gamerz
 
 Evidently, you need to create compelling videos to increase your chances of getting over 1 million views and matching the **Techno Gamerz salary**. So, what makes a great YouTube video? The perfect YouTube videos should have a catchy intro, voice overlays, picture-in-picture effects, background audio, and more. You can also include elements like timers, subtitles, and effect overlays.
@@ -114,12 +130,18 @@ Let's learn how to create and edit a YouTube video on Filmora 11:
 
 ##### Step1 Start a new video project
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![techno gamerz income start a new video project](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-5.jpg)
 
 Install and run Filmora 11 on your computer and choose the 16:9 aspect ratio for YouTube videos. Then, start a **New Project**.
 
 ##### Step2 Import the YouTube video tutorial
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![techno gamerz income upload video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-6.jpg)
 
 Now click the **Import Media** button to open a video file from your local storage. You can add multiple media files before moving them to the storyboard.
@@ -148,10 +170,17 @@ Techno Gamerz is not alone in Indian YouTube vlogging. CarryMinati is another to
 
 It depends on the number of views. According to reports, this popular Indian YouTuber earns over $1.21 per 1,000 views. He has over 7.5 billion views currently.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. What does Techno Gamerz do for a living?
 
 Techno Gamerz's primary source of income is YouTubing. This is where the 20-year-old earns most of his dollars.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## Final Words
 
 YouTubing can pay top money as long as you do it professionally. But it may need a lot of hard work and patience to start earning on YouTube. Also, invest in a powerful, all-in-one video editor for vloggers like Filmora 11\. So, are you ready to start making the **Techno Gamerz monthly income from YouTube**? Give it a try!
@@ -162,6 +191,9 @@ YouTubing can pay top money as long as you do it professionally. But it may need
 
 Up to this point, you should have a brief overview of who Techno Gamerz is and what he does to earn such staggering figures on YouTube. So, the next section discusses his income in detail and what makes this YouTuber so famous. Keep reading!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2: Techno Gamerz YouTube Earning and Stats
 
 Ujjwal Chaurasia, alias Techno Gamerz, was born and grew up in New Delhi, India. The charismatic vlogger first joined YouTube on August 13, 2017, and uploaded his first gaming video on January 2018\. Initially, Ujjwal used his elder brother's phone to post gaming tutorial videos. This obviously limited his input on YouTube as he also had to set aside time for studying.
@@ -193,6 +225,9 @@ As expected, Ujjwal Chaurasia has a massive following on other social media plat
 
 He also has another Instagram account called "[Techno\_Gamerz](https://www.instagram.com/techno%5Fgamerz/)," which has over 1M followers and over 120K likes. Ujjwal uses this account to keep his followers abreast of what's happening on his YouTube channel and give hints of future releases. He also posts subscriber milestones. His Twitter account is "[Ujjwal Chaurasia](https://twitter.com/UjjwalGamer)," with over 116K followers and around 290 posts.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![techno gamerz instagram and twitter homepage](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-4.jpg)
 
 Ujjwal is also venturing into music lately, specifically Hip Hop. He partnered with one of India's most prominent producers, Sez on the Beat, to release Game On. This music tells a tale of how Chaurasia started from zero subscribers to more than 10 million. Currently, this single boasts over 62 million views.
@@ -241,6 +276,9 @@ Install and run Filmora 11 on your computer and choose the 16:9 aspect ratio for
 
 ##### Step2 Import the YouTube video tutorial
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![techno gamerz income upload video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-6.jpg)
 
 Now click the **Import Media** button to open a video file from your local storage. You can add multiple media files before moving them to the storyboard.
@@ -251,6 +289,9 @@ Now click the **Import Media** button to open a video file from your local stora
 
 Start by trimming your video to remove the noisy or unwanted parts. To trim and split a video, place the playhead where you want to cut and press the **Split** button. Repeat the same procedure to cut out a clip and delete it.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![techno gamerz income export video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-8.jpg)
 
 Your YouTube gaming tutorial also needs subtitles to stand out from the crowd. Select the YouTube video clip and click the **Speech-to-Text** button. Once the Speech-to-Text feature is active, select the translation language to start creating subtitles. Remember, you can edit and download the subtitle tracks as a .txt or .srt file.
@@ -261,10 +302,16 @@ If you're satisfied with the edited video, click the **Export** button, then sel
 
 ## Hot FAQs on Techno Gamerz
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### 1\. Who earns more between Techno Gamerz and Carry Minati?
 
 Techno Gamerz is not alone in Indian YouTube vlogging. CarryMinati is another top YouTuber in India, with 36.90 million followers. This YouTuber earns more than 25 Lakhs per month with annual revenue of at least 3 Crore Rupees. According to reports, Carry Minati (Ajey Nagar) has over $5 million in net worth.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. How much does Techno Gamerz earn from one video?
 
 It depends on the number of views. According to reports, this popular Indian YouTuber earns over $1.21 per 1,000 views. He has over 7.5 billion views currently.
@@ -273,6 +320,9 @@ It depends on the number of views. According to reports, this popular Indian You
 
 Techno Gamerz's primary source of income is YouTubing. This is where the 20-year-old earns most of his dollars.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ## Final Words
 
 YouTubing can pay top money as long as you do it professionally. But it may need a lot of hard work and patience to start earning on YouTube. Also, invest in a powerful, all-in-one video editor for vloggers like Filmora 11\. So, are you ready to start making the **Techno Gamerz monthly income from YouTube**? Give it a try!
@@ -297,6 +347,9 @@ YouTubing can pay top money as long as you do it professionally. But it may need
 
 # Tips for Teachers Using YouTube in Classroom
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -354,6 +407,9 @@ YouTubing can pay top money as long as you do it professionally. But it may need
 9. **Help the struggling students** – videos are great for the slow learners since they can rewind or play it at their own pace.
 10. **Create a YouTube Channel** – this is to contain all the videos relevant to a particular subject or lesion for current and future students.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to discover the best educational videos on YouTube
 
  YouTube is awash with [millions of videos](https://tools.techidaily.com/wondershare/filmora/download/) and it is imperative that you know how to search for and discover the best education videos. Below are a few tips to help you along the way-:
@@ -370,8 +426,108 @@ YouTubing can pay top money as long as you do it professionally. But it may need
 
  Using YouTube in the classroom has brought a lot of efficiency to both the teachers and the students. Teachers can now access millions of students around the globe by using YT videos and students can also get a lot of detailed information, some on technical topics that would normally take a long time to comprehend. Whereas it is a relatively new concept for most teachers, it can only be expected that it will be embraced by many people and enhance the learning process in our schools, provided that the right learning videos are recorded or accessed from the pool already present in YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+[YouTube](https://tools.techidaily.com/wondershare/filmora/download/) has not only provided an incredible source of entertainment for millions of people around the globe, but also it has opened up an avenue for great learning resources in the form of educational videos.
+
+ Teachers from all around the world can now create video lessons and share with their students not only in their respective learning institutions but also with other students located miles away in other countries.
+
+ If you want to make a teaching video by your own, you should try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Besides the basic video editing features, like trimming, cutting, splitting, rotating, and cropping, it allows you to capture your PC screen, composite a green screen video, blur objects and faces in video and more. What’s more, Filmora is a good choice for making a YouTube intro. Check the video below to see how to make it.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+* [Benefits for Using YouTube in Classroom](#part1)
+* [Tips for Teachers Using YouTube in Classroom](#part2)
+* [How to discover the best educational videos on YouTube](#part3)
+
+## Benefits for Using YouTube in Classroom
+
+ The benefits of using YouTube in the classroom are immense and they include but are not limited to the following:
+
+**Global connection**
+
+ YouTube makes it possible for teachers to share their lessons with millions of potential students located in different parts of the world, something which was unthinkable with the traditional modes of teaching a few years ago. Teachers can now collaborate, connect and innovate with a multitude of students in ways that were never imagined before by employing the power of YouTube.
+
+**Enhances the comprehension of complex topics**
+
+ Certain subjects are technical in nature and teachers usually have a hard time explaining them to the students. By using YouTube in the classroom, teachers are an a better position to offer clear and easy to understand illustrations which will in turn demystify the tough concepts and make it easy for students to understand and comprehend complex topics.
+
+**Creates more engagement from students**
+
+ Learning primarily comprises of audio and visual components. Unlike traditional modes of teaching where the teacher offered explanation and the students are expected to take notes, videos are more engaging and has the power to make students stay more alert, thus increase their chances of absorbing the lesions and getting most from the subjects.
+
+**Ideal for slow learners**
+
+ When using YouTube in the classroom, the teacher has full control on the pace of learning and this is ideal for taking of both the fast and slow learners. In case a student finds a concept being explained too fast, they can simply request the part to be replayed or it can be slowed down to play at a pace that will be easy for them to grasp.
+
+**One teacher, multiple classrooms**
+
+ The other benefit of using YouTube in the classroom is that after a teacher prepares his learning videos, they get the flexibility using the video in more than just one classroom. It also makes it easy for them when they are away and they need to attend classes. All they have to do is to use the prerecorded video lesions so that they don’t entirely miss out on classes.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
+## Tips for Using YouTube in Classroom
+
+ For teachers and tutors, there are various ways of using YouTube in the classroom. These methods offer the flexibility to both the teachers and the students to give and understand lessons respectively. Here are some of the ways for teachers to use YouTube in classrooms-:
+
+1. **Trigger unique and interesting discussions**– teachers using YouTube in the classrooms can trigger interesting and unique discussions amongst their students. The teachers can use relevant videos on news reports, documentaries, current affairs and much more to get the student opinions and gauge the impact of the learning on the students.
+2. **Access high quality education materials for free** – using YouTube in classroom also makes it possible to teachers to access high quality learning materials for free. This is especially important when teaching on tough subjects or when reviewing for exams.
+3. **Short clips to put a topic in context** – there are documentary channels such as National Geographic, BBC and Channel 4 amongst others where teachers can obtain and play short clips to put the subject matter into proper context for the students.
+4. **Archive your work**– use videos to keep a clean and neat record of the various lessons thus making it easy for current and future students to access them with ease.
+5. **Review for exams** – when exams are just about the corner, videos become very effective in helping the student to refresh their minds on tough topics that might require a lot of time to review during exams.
+6. **Flip lessons**– flipped learning is taking strong roots in most of the learning institutions and it becomes easy and efficient when using videos in the classroom.
+7. **Teach when you are absent** – instead of missing class or having a guest teacher to stand in for you, you can simply record the lesson on your YouTube channel or simply give out instructions for the students to follow when you are away.
+8. **Allow students to gain in-depth information**– by using YouTube in classroom, teachers are essentially allowing their students to dig deeper and comprehend the lessons better.
+9. **Help the struggling students** – videos are great for the slow learners since they can rewind or play it at their own pace.
+10. **Create a YouTube Channel** – this is to contain all the videos relevant to a particular subject or lesion for current and future students.
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to discover the best educational videos on YouTube
+
+ YouTube is awash with [millions of videos](https://tools.techidaily.com/wondershare/filmora/download/) and it is imperative that you know how to search for and discover the best education videos. Below are a few tips to help you along the way-:
+
+**You may also like:** [Videos to Share in the Classroom >>](https://tools.techidaily.com/wondershare/filmora/download/)
+
+* Look for videos not longer than 10 minutes – these are the most ideal since longer videos might make students lose their attention and miss out on the lesions.
+* Search channels by subjects so that you end up with the most relevant videos.
+* Before you show the videos to the students, be sure to watch them all through so that you gauge if it has the relevant materials you wanted the students to learn.
+* Rather than doing a general search, concentrate on the channels from respectable sources since this wills save you a lot of time of going through the junk.
+* Don’t search for videos to replace your lessons, but instead, search for video that will complement your lesions.
+
+#### Conclusion
+
+ Using YouTube in the classroom has brought a lot of efficiency to both the teachers and the students. Teachers can now access millions of students around the globe by using YT videos and students can also get a lot of detailed information, some on technical topics that would normally take a long time to comprehend. Whereas it is a relatively new concept for most teachers, it can only be expected that it will be embraced by many people and enhance the learning process in our schools, provided that the right learning videos are recorded or accessed from the pool already present in YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -477,6 +633,9 @@ Follow @Richard Bennett
 * [Tips for Teachers Using YouTube in Classroom](#part2)
 * [How to discover the best educational videos on YouTube](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Benefits for Using YouTube in Classroom
 
  The benefits of using YouTube in the classroom are immense and they include but are not limited to the following:
@@ -516,6 +675,9 @@ Follow @Richard Bennett
 9. **Help the struggling students** – videos are great for the slow learners since they can rewind or play it at their own pace.
 10. **Create a YouTube Channel** – this is to contain all the videos relevant to a particular subject or lesion for current and future students.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## How to discover the best educational videos on YouTube
 
  YouTube is awash with [millions of videos](https://tools.techidaily.com/wondershare/filmora/download/) and it is imperative that you know how to search for and discover the best education videos. Below are a few tips to help you along the way-:
@@ -534,87 +696,9 @@ Follow @Richard Bennett
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-[YouTube](https://tools.techidaily.com/wondershare/filmora/download/) has not only provided an incredible source of entertainment for millions of people around the globe, but also it has opened up an avenue for great learning resources in the form of educational videos.
-
- Teachers from all around the world can now create video lessons and share with their students not only in their respective learning institutions but also with other students located miles away in other countries.
-
- If you want to make a teaching video by your own, you should try [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). Besides the basic video editing features, like trimming, cutting, splitting, rotating, and cropping, it allows you to capture your PC screen, composite a green screen video, blur objects and faces in video and more. What’s more, Filmora is a good choice for making a YouTube intro. Check the video below to see how to make it.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-* [Benefits for Using YouTube in Classroom](#part1)
-* [Tips for Teachers Using YouTube in Classroom](#part2)
-* [How to discover the best educational videos on YouTube](#part3)
-
-## Benefits for Using YouTube in Classroom
-
- The benefits of using YouTube in the classroom are immense and they include but are not limited to the following:
-
-**Global connection**
-
- YouTube makes it possible for teachers to share their lessons with millions of potential students located in different parts of the world, something which was unthinkable with the traditional modes of teaching a few years ago. Teachers can now collaborate, connect and innovate with a multitude of students in ways that were never imagined before by employing the power of YouTube.
-
-**Enhances the comprehension of complex topics**
-
- Certain subjects are technical in nature and teachers usually have a hard time explaining them to the students. By using YouTube in the classroom, teachers are an a better position to offer clear and easy to understand illustrations which will in turn demystify the tough concepts and make it easy for students to understand and comprehend complex topics.
-
-**Creates more engagement from students**
-
- Learning primarily comprises of audio and visual components. Unlike traditional modes of teaching where the teacher offered explanation and the students are expected to take notes, videos are more engaging and has the power to make students stay more alert, thus increase their chances of absorbing the lesions and getting most from the subjects.
-
-**Ideal for slow learners**
-
- When using YouTube in the classroom, the teacher has full control on the pace of learning and this is ideal for taking of both the fast and slow learners. In case a student finds a concept being explained too fast, they can simply request the part to be replayed or it can be slowed down to play at a pace that will be easy for them to grasp.
-
-**One teacher, multiple classrooms**
-
- The other benefit of using YouTube in the classroom is that after a teacher prepares his learning videos, they get the flexibility using the video in more than just one classroom. It also makes it easy for them when they are away and they need to attend classes. All they have to do is to use the prerecorded video lesions so that they don’t entirely miss out on classes.
-
-## Tips for Using YouTube in Classroom
-
- For teachers and tutors, there are various ways of using YouTube in the classroom. These methods offer the flexibility to both the teachers and the students to give and understand lessons respectively. Here are some of the ways for teachers to use YouTube in classrooms-:
-
-1. **Trigger unique and interesting discussions**– teachers using YouTube in the classrooms can trigger interesting and unique discussions amongst their students. The teachers can use relevant videos on news reports, documentaries, current affairs and much more to get the student opinions and gauge the impact of the learning on the students.
-2. **Access high quality education materials for free** – using YouTube in classroom also makes it possible to teachers to access high quality learning materials for free. This is especially important when teaching on tough subjects or when reviewing for exams.
-3. **Short clips to put a topic in context** – there are documentary channels such as National Geographic, BBC and Channel 4 amongst others where teachers can obtain and play short clips to put the subject matter into proper context for the students.
-4. **Archive your work**– use videos to keep a clean and neat record of the various lessons thus making it easy for current and future students to access them with ease.
-5. **Review for exams** – when exams are just about the corner, videos become very effective in helping the student to refresh their minds on tough topics that might require a lot of time to review during exams.
-6. **Flip lessons**– flipped learning is taking strong roots in most of the learning institutions and it becomes easy and efficient when using videos in the classroom.
-7. **Teach when you are absent** – instead of missing class or having a guest teacher to stand in for you, you can simply record the lesson on your YouTube channel or simply give out instructions for the students to follow when you are away.
-8. **Allow students to gain in-depth information**– by using YouTube in classroom, teachers are essentially allowing their students to dig deeper and comprehend the lessons better.
-9. **Help the struggling students** – videos are great for the slow learners since they can rewind or play it at their own pace.
-10. **Create a YouTube Channel** – this is to contain all the videos relevant to a particular subject or lesion for current and future students.
-
-## How to discover the best educational videos on YouTube
-
- YouTube is awash with [millions of videos](https://tools.techidaily.com/wondershare/filmora/download/) and it is imperative that you know how to search for and discover the best education videos. Below are a few tips to help you along the way-:
-
-**You may also like:** [Videos to Share in the Classroom >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-* Look for videos not longer than 10 minutes – these are the most ideal since longer videos might make students lose their attention and miss out on the lesions.
-* Search channels by subjects so that you end up with the most relevant videos.
-* Before you show the videos to the students, be sure to watch them all through so that you gauge if it has the relevant materials you wanted the students to learn.
-* Rather than doing a general search, concentrate on the channels from respectable sources since this wills save you a lot of time of going through the junk.
-* Don’t search for videos to replace your lessons, but instead, search for video that will complement your lesions.
-
-#### Conclusion
-
- Using YouTube in the classroom has brought a lot of efficiency to both the teachers and the students. Teachers can now access millions of students around the globe by using YT videos and students can also get a lot of detailed information, some on technical topics that would normally take a long time to comprehend. Whereas it is a relatively new concept for most teachers, it can only be expected that it will be embraced by many people and enhance the learning process in our schools, provided that the right learning videos are recorded or accessed from the pool already present in YouTube.
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -637,3 +721,59 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-blocks-for-successful-channel-branding-and-growth/"><u>[New] 2024 Approved  Building Blocks for Successful Channel Branding and Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-chart-topping-tunes-compiling-an-impressive-youtube-playlist/"><u>[New] 2024 Approved  Chart-Topping Tunes  Compiling an Impressive YouTube Playlist</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-list-10-leading-online-video-length-reducers/"><u>[New] 2024 Approved  Essential List  10 Leading Online Video Length Reducers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-budget-friendly-video-recorder-sets-top-11-picks-for-2024/"><u>[New] Budget-Friendly Video Recorder Sets  Top 11 Picks for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-decrypt-viewer-counts-unveiling-instagram-audience-numbers/"><u>[New] Decrypt Viewer Counts  Unveiling Instagram Audience Numbers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discovering-featured-social-media-exchange-for-2024/"><u>[New] Discovering Featured Social Media Exchange for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>[New] In 2024, 7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-amplify-engagement-a-compilation-of-powerful-30-freegame-tags/"><u>[New] In 2024, Amplify Engagement  A Compilation of Powerful 30 FreeGame Tags</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-efficiently-shifting-videos-youtube-to-dailymotion-strategy/"><u>[New] In 2024, Efficiently Shifting Videos  YouTube to Dailymotion Strategy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-engage-and-captivate-viewers-ultimate-tips-for-cutting-edge-youtube-edits/"><u>[New] In 2024, Engage and Captivate Viewers  Ultimate Tips for Cutting-Edge Youtube Edits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-iphoneandroid-apps-for-aspiring-creators/"><u>[New] In 2024, Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-ultimate-snapchat-plus-twitter-duo-video-posting-guide/"><u>[New] In 2024, The Ultimate Snapchat + Twitter Duo (Video Posting Guide)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-insight-into-tseries-earnings-and-profitability-through-youtube-channels/"><u>[New] Insight Into TSeries' Earnings and Profitability Through YouTube Channels</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-social-medias-highest-wave-instagrams-thousand-strong-fanbase/"><u>[New] Mastering Social Media's Highest Wave - Instagram’s Thousand-Strong Fanbase</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-precision-gameplay-savings-made-easy-with-fbx-filming-for-2024/"><u>[New] Precision Gameplay Savings Made Easy with FBX Filming for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-guide-7-prime-free-video-tag-extractors/"><u>[New] Ultimate Guide  7 Prime Free Video Tag Extractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-collaboration-for-effective-content-delivery/"><u>[New] YouTube Collaboration for Effective Content Delivery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beautiful-beginnings-creating-your-personalized-glam-vlog/"><u>[Updated] 2024 Approved  Beautiful Beginnings  Creating Your Personalized Glam Vlog</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-earnings-from-youtube-adsense-what-you-can-expect-per-1000-views/"><u>[Updated] 2024 Approved  Charting Earnings From YouTube AdSense  What You Can Expect per 1,000 Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-list-7-cost-free-video-tags-extractors-on-youtube/"><u>[Updated] 2024 Approved  Essential List  7 Cost-Free Video Tags Extractors on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-profit-potential-per-viewer-youtubes-financial-dynamics/"><u>[Updated] 2024 Approved  Profit Potential Per Viewer  YouTube's Financial Dynamics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-achieving-virality-on-youtube-essential-steps-demystified-for-2024/"><u>[Updated] Achieving Virality on YouTube  Essential Steps Demystified for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-youtube-output-rapid-video-rendering-and-transfer-for-2024/"><u>[Updated] Boost Your YouTube Output - Rapid Video Rendering and Transfer for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-chronology-conundrum-best-podcast-times/"><u>[Updated] Chronology Conundrum  Best Podcast Times</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cut-to-perfection-top-video-editors-for-youtubers-for-2024/"><u>[Updated] Cut to Perfection  Top Video Editors for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-guidelines-for-effective-use-of-cc-licenses/"><u>[Updated] Guidelines for Effective Use of CC Licenses</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-examining-the-security-of-using-subforsup-for-youtube-fan-boost/"><u>[Updated] In 2024, Examining the Security of Using Subforsup for YouTube Fan Boost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-no-more-distractions-expert-guide-to-removing-youtube-ads/"><u>[Updated] No More Distractions - Expert Guide to Removing YouTube Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-premium-sound-picks-for-content-creators/"><u>[Updated] Premium Sound Picks for Content Creators</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-sourav-joshis-approach-to-youtube-monetization/"><u>[Updated] Sourav Joshi's Approach to YouTube Monetization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>[Updated] Unravel the Revenue Riddle  Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-end-screen-how-to-add-end-screen-to-video-on-vimeo-for-2024/"><u>[Updated] Vimeo End Screen  How to Add End Screen to Video on Vimeo for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-writing-for-impact-a-compreenas-guide-to-youtube-video-storytelling/"><u>[Updated] Writing for Impact  A Compreenas Guide to YouTube Video Storytelling</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-12-signs-endless-stories-create-your-whatsapp-bio-narrative/"><u>2024 Approved  12 Signs, Endless Stories - Create Your WhatsApp Bio Narrative</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-removing-stickers-with-precision-a-tiktok-specialists-guide/"><u>2024 Approved  Removing Stickers with Precision  A TikTok Specialist's Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-simplicity-in-video-creation-a-guide-to-10-easy-to-make-youtube-videos/"><u>2024 Approved  Simplicity in Video Creation  A Guide to 10 Easy-to-Make YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-virtual-voyeurism-worlds-most-watched-youtubers/"><u>2024 Approved  Virtual Voyeurism  World's Most Watched YouTubers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-meizu-21-pro-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Meizu 21 Pro</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-capturing-motion-in-4k-with-nikon-d500/"><u>In 2024, Capturing Motion in 4K with Nikon D500</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-edge-40-neo-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Edge 40 Neo won’t play MP4 files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/online-streaming-hierarchy-who-rises-above-vimeo-or-giants-like-youtubes-and-dailymotions-for-2024/"><u>Online Streaming Hierarchy  Who Rises Above – Vimeo or Giants Like YouTubes and DailyMotions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/secure-extraction-converting-youtube-to-trusted-mp4-for-2024/"><u>Secure Extraction  Converting YouTube to Trusted MP4 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/sifting-through-the-differences-igtv-vs-youtube-in-a-direct-comparison-for-2024/"><u>Sifting Through the Differences  IGTV Vs. YouTube in a Direct Comparison for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/simplifying-video-preservation-with-3-key-practices-for-2024/"><u>Simplifying Video Preservation with 3 Key Practices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/speedy-solutions-to-unsettle-and-reorder-youtube-songs-for-2024/"><u>Speedy Solutions to Unsettle and Reorder YouTube Songs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-blueprint-for-brilliant-broadcasts-dos-and-donts-unveiled-for-2024/"><u>The Blueprint for Brilliant Broadcasts  Do's & Don'ts Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-8-validated-youtube-growth-solutions-for-2024/"><u>Top 8 Validated Youtube Growth Solutions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-your-videos-simple-steps-to-include-youtube-subtitlescc-for-2024/"><u>Transform Your Videos  Simple Steps to Include YouTube Subtitles/CC for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/viewership-volume-the-financial-impact-of-one-million-views-for-2024/"><u>Viewership Volume  The Financial Impact of One Million Views for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-and-dailymotion-unveiling-core-variations-for-2024/"><u>YouTube & Dailymotion  Unveiling Core Variations for 2024</u></a></li>
+</ul></div>
