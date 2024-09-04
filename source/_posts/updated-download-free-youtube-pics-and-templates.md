@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Download Free YouTube Pics & Templates!"
-date: 2024-08-18T01:54:39.822Z
-updated: 2024-08-19T01:54:39.822Z
+date: 2024-09-03T21:19:58.475Z
+updated: 2024-09-04T21:19:58.475Z
 tags:
   - ai video
   - ai youtube
@@ -50,7 +50,16 @@ As one of the best video editing software for YouTubers, [Filmora](https://tools
 In this video NAJA not only provides you with a cool green profile picture, but they also take you on a detailed walkthrough of editing the image in Photoshop. This will be useful if you are trying to use any of the designs you find in this post. You can download NAJA’s avatar template by [clicking here](https://www.youtube.com/redirect?redir%5Ftoken=2YDSnb0yXKdaw0epGcXB4aJtttR8MTUxMDM0NjQ4NkAxNTEwMjYwMDg2&q=https%3A%2F%2Fsellfy.com%2Fp%2Fb5jF&event=video%5Fdescription&v=io9WzsSOc2Y).
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<span id="1982456">
+					<video width="360" height="150" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## SaltyKebab - 2 Free Templates
 
@@ -59,7 +68,10 @@ SaltyKebab is a YouTuber graphics designer who, in addition to making gaming vid
 Also from Salty Kebab, this free graphics package includes a profile picture, banner, and thumbnail template. The cool blue design with an archer’s silhouette will be perfect for gamers.[Click here to download.](https://www.youtube.com/redirect?event=video%5Fdescription&v=IriIzdY%5FTzs&redir%5Ftoken=8rrPV9gZErBTEOtIdS5zkq8HXYR8MTUxMDM0MTU2OUAxNTEwMjU1MTY5&q=https%3A%2F%2Fdrive.google.com%2Fopen%3Fid%3D0B32mpcEPyYYJZDRsUmR3dkFRb2s)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Little Danny B - 2 Free Templates
 
@@ -68,7 +80,16 @@ This fresh blue and green design from YouTuber Little Danny B is perfect for an 
 Another offering from Little Danny B, this icon has a background with neon blue and purple paint splatters and bright yellow text. It’s a great option if you want to stand out. [Click here to download](https://www.youtube.com/redirect?v=IJgjLWpnxVk&event=video%5Fdescription&redir%5Ftoken=OPO3uPCVpJhTn8MXiq5q3lVgWD58MTUxMDMzOTk5MkAxNTEwMjUzNTky&q=http%3A%2F%2Fadf.ly%2F10l7Ut).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="80" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## TxG Designs Profile Picture Template
 
@@ -81,7 +102,10 @@ If you know anywhere else to get YouTube profile picture templates, let everyone
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Richard Bennett
 
