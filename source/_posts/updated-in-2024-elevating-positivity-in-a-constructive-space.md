@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-09-03T21:19:52.026Z
-updated: 2024-09-04T21:19:52.026Z
+date: 2024-09-11T23:27:58.340Z
+updated: 2024-09-12T23:27:58.340Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,19 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,48 +67,18 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-introduction-maker-apps-ios-vs-android-comparison/"><u>[New] 2024 Approved  Best Introduction Maker Apps  IOS vs Android Comparison</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-clear-up-audio-in-youtube-a-step-by-step-guide-for-2024/"><u>[New] Clear Up Audio in YouTube  A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-creating-powerful-teacher-content-on-youtube-top-10-insights-for-2024/"><u>[New] Creating Powerful Teacher Content on YouTube  Top 10 Insights for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-explore-the-pinnacle-of-editing-android-edition-for-2024/"><u>[New] Explore the Pinnacle of Editing  Android Edition for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-user-engagement-with-detailed-video-chapters-in-youtube/"><u>[New] In 2024, Elevating User Engagement with Detailed Video Chapters in YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-your-contents-exposure-with-ongoing-creative-commons-usage/"><u>[New] In 2024, Elevating Your Content's Exposure with Ongoing Creative Commons Usage</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enlightenment-streams-foremost-ed-resources-online/"><u>[New] In 2024, Enlightenment Streams  Foremost Ed Resources Online</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-tale-constructing-the-basic-blueprint/"><u>[New] In 2024, Tale Constructing  The Basic Blueprint</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-checklist-for-crafting-distinctive-youtube-short-videos/"><u>[New] The Ultimate Checklist for Crafting Distinctive YouTube Short Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveil-exclusive-video-snippets-all-at-zero-cost/"><u>[New] Unveil Exclusive Video Snippets – All at Zero Cost</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-videovisionary-toolkit/"><u>[New] VideoVisionary Toolkit</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-compelling-content-with-personalized-video-setups/"><u>[Updated] 2024 Approved  Creating Compelling Content with Personalized Video Setups</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-content-youtube-movie-maker-101-for-2024/"><u>[Updated] Elevate Your Content  YouTube Movie Maker 101 for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-your-youtube-comments-with-emoji-skills-for-2024/"><u>[Updated] Elevating Your YouTube Comments with Emoji Skills for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-essential-words-in-the-digital-realms-lexicon/"><u>[Updated] Essential Words in the Digital Realm's Lexicon</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-vlogger-to-earnest-by-year-end-following-sourav-joshis-examples/"><u>[Updated] From Vlogger to Earnest by Year End - Following Sourav Joshi's Examples</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-gamer-wealth-wave-the-year-ahead/"><u>[Updated] Gamer Wealth Wave  The Year Ahead</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-pathway-to-successful-uploads-on-youtube/"><u>[Updated] The Ultimate Pathway to Successful Uploads on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thematic-concepts-for-daily-vlog-content/"><u>[Updated] Thematic Concepts for Daily Vlog Content</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-professional-perception-pioneering-hdr-art-with-photoshop/"><u>2024 Approved  Professional Perception  Pioneering HDR Art with PhotoShop</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-tiny-videos-deciphered-crucial-elements/"><u>2024 Approved  Tiny Videos Deciphered  Crucial Elements!</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/3-easy-ways-to-factory-reset-a-locked-iphone-x-without-itunes-drfone-by-drfone-ios/"><u>3 Easy Ways to Factory Reset a Locked iPhone X Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-infinix-hot-40-pro-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Infinix Hot 40 Pro</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-exquisite-photographic-saga-assembler/"><u>In 2024, Exquisite Photographic Saga Assembler</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-communicate-with-youtube-subscribers/"><u>In 2024, How to Communicate with YouTube Subscribers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-s18-pro-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo S18 Pro Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/luminous-designs-examination-pinnacle-studio-audit-for-2024/"><u>Luminous Designs Examination  Pinnacle Studio Audit for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/rapid-learning-path-for-keying-mastery-for-2024/"><u>Rapid Learning Path for Keying Mastery for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/thumbnails-transformed-immersive-settings-for-2024/"><u>Thumbnails Transformed  Immersive Settings for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-10-funny-youtube-shorts-video-ideas-for-2024/"><u>Top 10 Funny YouTube Shorts Video Ideas for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/ultimate-guide-to-beauty-on-youtube-gear-makeup-tutorials-and-more-for-2024/"><u>Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unveiling-googles-innovative-language-strategist-palm-2/"><u>Unveiling Google's Innovative Language Strategist: PaLM 2</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -103,9 +86,16 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-online-fb-music-collection-now/"><u>[New] 2024 Approved Online FB Music Collection Now</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-softer-sounds-guide-for-pcos-users/"><u>[New] 2024 Approved Softer Sounds Guide for PC/OS Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-entry-level-expenditure-cost-effective-platforms-for-youtube-purchases/"><u>[Updated] 2024 Approved Entry-Level Expenditure Cost-Effective Platforms for YouTube Purchases</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-creating-dynamic-content-with-youtube-playlist-embedding-for-2024/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-finest-wedding-cinematography-youtube-and-vimeos-selection-for-2024/"><u>[Updated] Exploring the Finest Wedding Cinematography - Youtube & Vimeo's Selection for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-perfecting-the-art-of-twitter-broadcasts/"><u>[Updated] In 2024, Perfecting the Art of Twitter Broadcasts</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-oneplus-ace-2-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your OnePlus Ace 2 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transform-your-browsing-with-ms-edges-pip/"><u>In 2024, Transform Your Browsing with MS Edge's PIP</u></a></li>
+</ul></div>
+

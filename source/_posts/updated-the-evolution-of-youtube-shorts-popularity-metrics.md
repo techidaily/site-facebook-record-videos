@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Evolution of YouTube Shorts Popularity Metrics"
-date: 2024-09-03T21:19:52.968Z
-updated: 2024-09-04T21:19:52.968Z
+date: 2024-09-11T23:28:46.381Z
+updated: 2024-09-12T23:28:46.381Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ Here we are going to introduce you how to make money on YouTube Shorts and some 
 * [**Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?**](#part3)
 * [**Part 4: FAQs about YouTube Shorts Fund**](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: What's YouTube Shorts Fund?
 
 The **YouTube Shorts Fund** is a part of the YouTube Shorts monetization scheme. It's a $100M fund distributed throughout 2021 - 2022.
@@ -55,6 +62,13 @@ However, this YouTube Shorts Fund is generally not limited to just the YouTube P
 
 Moreover, YouTube kept sharing additional details as they got closer to the same concept.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Future of Monetization on Shorts
 
 As discussed earlier, the YouTube Shorts Fund is the first step in their journey to build YouTube Shorts, a monetization model.
@@ -64,11 +78,12 @@ Even YouTube is excited to begin rewarding creators for their contributions via 
 All in all, YouTube has helped an entire generation of artists and creators turn their creativity into businesses with the YouTube Shorts Fund. YouTube has paid $30 billion-plus money to artists, creators, artists, and media companies over the last three years. They remain deeply committed to supporting the next generation of mobile creators while introducing the YouTube Shorts Fund.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: How to Join/Apply for YouTube Shorts Fund?
 
 First, know that every creator on the platform is eligible to know the YouTube Shorts fund eligibility.
@@ -93,12 +108,6 @@ The best way you can create is to keep uploading excellent content. You can use 
 
 The YouTube Shorts Fund is an ideal opportunity for creators of all sizes to activate YouTube Shorts monetization.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?
 
 To know how to claim YouTube Shorts Fund or bonus, you’re required to go through the following two steps:
@@ -113,17 +122,12 @@ It is worth defining that channels creating and publishing non-original content,
 In addition to the YouTube Shorts Fund, YouTube provides numerous other methods in which creators can earn more revenues from their YouTube content and build their businesses on the platform. These consist of merchandise, ads, YouTube BrandConnect, and channel memberships, among others.
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="360" height="150" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: FAQs about YouTube Shorts Fund
 
 Here are some common questions about YouTube Shorts Fund for your reference.
@@ -151,11 +155,12 @@ A common reason behind this is that you do not hold the viewer's attention. The 
 Videos up to 60 seconds will show a trim editor. For videos longer than 60 seconds, you need to hit the **Edit** button into a Short video size to trim your video up to 60 seconds or less.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Conclusion
 
 If you have already created a short-form vertical video or have a YouTube channel, try Shorts out. It could be an excellent manner to activate YouTube Shorts fund monetization or build an income stream for your channel and a new subscriber base.
@@ -167,61 +172,17 @@ Most people probably wouldn't get attracted if any other company launched a new 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-10-best-youtube-keyword-tools-to-get-more-views-filmora/"><u>[New] 10 Best YouTube Keyword Tools to Get More Views - Filmora</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-captivate-viewers-designing-engaging-youtube-trailers-with-filmora/"><u>[New] 2024 Approved  Captivate Viewers  Designing Engaging YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elite-content-makers-top-paid-online-stars/"><u>[New] 2024 Approved  Elite Content Makers  Top Paid Online Stars</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-revealing-youtubes-showcase-of-notable-user-comments/"><u>[New] 2024 Approved  Revealing YouTube's Showcase of Notable User Comments</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-does-the-sub4sub-strategy-improve-content-consumption-for-2024/"><u>[New] Does the Sub4Sub Strategy Improve Content Consumption for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-expert-tips-on-choosing-the-best-youtube-to-avi-software-for-2024/"><u>[New] Expert Tips on Choosing the Best YouTube-to-AVI Software for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-android-tutorial-reversed-video-display/"><u>[New] In 2024, Android Tutorial  Reversed Video Display</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-steps-to-add-custom-imagery-in-youtube-videos/"><u>[New] In 2024, Essential Steps to Add Custom Imagery in YouTube Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-iphoneandroid-autoplay-continuous-youtube-access/"><u>[New] IPhone/Android AutoPlay  Continuous YouTube Access</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-profile-pics-templates-available/"><u>[New] YouTube Profile Pics  Templates Available</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-effortless-capture-iphones-dual-task-technique/"><u>[Updated] 2024 Approved  Effortless Capture  IPhone's Dual-Task Technique</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enjoy-youtube-music-anytime-with-these-23-essential-no-cost-audio-extractors/"><u>[Updated] 2024 Approved  Enjoy YouTube Music Anytime with These 23 Essential, No-Cost Audio Extractors</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-7-dslr-cameras-for-vlogging-for-2024/"><u>[Updated] Best 7 DSLR Cameras for Vlogging for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[Updated] Channel Your Creativity  Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-expert-strategies-for-hulu-screen-grabs-everywhere-for-2024/"><u>[Updated] Expert Strategies for Hulu Screen Grabs Everywhere for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-fast-fortnite-icons-in-minutes/"><u>[Updated] In 2024, Crafting Fast Fortnite Icons in Minutes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-effortless-single-frame-analysis-in-youtube-videos-5-ways/"><u>[Updated] In 2024, Effortless Single-Frame Analysis in YouTube Videos [5 Ways]</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-effortlessly-add-youtube-videos-to-google-slate-decks/"><u>[Updated] In 2024, Effortlessly Add YouTube Videos to Google Slate Decks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-master-the-art-of-video-sending-from-youtube-to-dailymotion/"><u>[Updated] Master the Art of Video Sending  From YouTube to Dailymotion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-next-gen-videostreaming-hubs-triumph-beyond-youtube/"><u>[Updated] Next-Gen Videostreaming Hubs  Triumph Beyond Youtube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-video-cuts-selective-mac-mp4-slicers/"><u>[Updated] Optimize Video Cuts  Selective Mac MP4 Slicers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-pro-freefire-compiling-premier-gaming-vids-and-hashtags/"><u>[Updated] Pro-FreeFire  Compiling Premier Gaming Vids and Hashtags</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-your-journey-as-an-online-gaming-star/"><u>[Updated] Starting Your Journey as an Online Gaming Star</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-12-tactics-for-amplifying-your-youtube-traffic/"><u>[Updated] Top 12 Tactics for Amplifying Your YouTube Traffic</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-equipment-for-beginners-ultimate-guide/"><u>[Updated] YouTube Equipment for Beginners [Ultimate Guide]</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/accuracy-audit-a-vll-driven-review-for-2024/"><u>Accuracy Audit  A VLL-Driven Review for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/best-10-web-based-hd-screen-capture-tools-for-2024/"><u>Best 10 Web-Based HD Screen Capture Tools for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-magic-6-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupt MP4,MOV,AVI video files of Magic 6</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-vivo-s18e-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Vivo S18e</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-14-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone 14 Passcode Easily Video Inside</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/inside-large-language-models-understanding-their-structure-and-functionality/"><u>Inside Large Language Models – Understanding Their Structure and Functionality</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/masterclass-in-making-memories-expert-tips-for-snapchat-edits-for-2024/"><u>Masterclass in Making Memories  Expert Tips for Snapchat Edits for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-3d-luts-a-comprehensive-guide/"><u>Mastering 3D LUTs  A Comprehensive Guide</u></a></li>
-<li><a href="https://windows11.techidaily.com/mastering-obs-troubleshooting-techniques-for-win-11-users/"><u>Mastering OBS Troubleshooting Techniques for Win 11 Users</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/navigate-the-tech-landscape-with-toms-hardware-wisdom/"><u>Navigate the Tech Landscape with Tom's Hardware Wisdom</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-infographic-index-youtubes-surprising-stat-treasury-2017-for-2024/"><u>The Infographic Index  YouTube's Surprising Stat Treasury (2017) for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-itel-a60-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Itel A60 Device</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/top-10-hd-recording-apps-for-your-computer-display-for-2024/"><u>Top 10 HD Recording Apps for Your Computer Display for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-v27-pro-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo V27 Pro for Parents | Dr.fone</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-turn-your-videos-into-dvds-with-these-3-easy-methods/"><u>Updated Turn Your Videos Into DVDs with These 3 Easy Methods</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtubes-short-form-videos-10-tactics-for-dominance-in-views-for-2024/"><u>Youtube's Short-Form Videos - 10 Tactics for Dominance in Views for 2024</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -229,3 +190,22 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-the-rhythm-of-the-room-mac-audio-guide-for-2024/"><u>[New] The Rhythm of the Room Mac Audio Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dynamic-videos-made-easy-with-best-stabilizers/"><u>[Updated] 2024 Approved Dynamic Videos Made Easy with Best Stabilizers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-guide-to-loops-in-ios-video-playback/"><u>[Updated] Expert Guide to Loops in iOS Video Playback</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-break-it-down-free-techniques-to-go-frame-by-frame-on-youtube/"><u>[Updated] In 2024, Break It Down Free Techniques to Go Frame by Frame on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-tips-activating-or-deactivating-youtube-comments/"><u>[Updated] In 2024, Expert Tips Activating or Deactivating YouTube Comments</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-your-path-to-personal-youtube-soundscape/"><u>[Updated] Streamlining Your Path to Personal Youtube Soundscape</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-understanding-your-instagram-stories-visibility/"><u>2024 Approved Understanding Your Instagram Stories Visibility</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/from-likes-to-leads-top-30-tactics-for-social-media-success-for-2024/"><u>From Likes to Leads Top 30 Tactics for Social Media Success for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-itel-p55plus-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Infinix Hot 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/smart-document-automation-comparing-the-capabilities-of-abbyy-vs-pegasystems/"><u>Smart Document Automation: Comparing the Capabilities of ABBYY Vs. Pegasystems</u></a></li>
+<li><a href="https://fox-links.techidaily.com/understanding-spending-in-online-advertising/"><u>Understanding Spending in Online Advertising</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/wisdom-words-language-learning-for-seniors/"><u>Wisdom Words: Language Learning for Seniors</u></a></li>
+</ul></div>
+

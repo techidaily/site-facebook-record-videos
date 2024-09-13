@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-09-03T21:19:49.990Z
-updated: 2024-09-04T21:19:49.990Z
+date: 2024-09-11T23:26:22.134Z
+updated: 2024-09-12T23:26:22.134Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +75,13 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +90,19 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,70 +139,18 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
-
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-adding-clear-timestamps-to-your-youtube-channels-live-streams/"><u>[New] 2024 Approved  Adding Clear Timestamps to Your YouTube Channel's Live Streams</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-curating-the-perfect-mix-a-youtube-playlist-manual/"><u>[New] 2024 Approved  Curating the Perfect Mix  A Youtube Playlist Manual</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-the-neuroscience-of-decision-making-and-its-implications-for-leadership/"><u>[New] 2024 Approved  Exploring the Neuroscience of Decision-Making and Its Implications for Leadership</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-building-an-engaging-sports-highlight-reel-for-2024/"><u>[New] Building an Engaging Sports Highlight Reel for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-demystifying-t-series-income-streams-via-youtube-platforms-for-2024/"><u>[New] Demystifying T-Series Income Streams via YouTube Platforms for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-channels-standing-with-these-tactics-for-2024/"><u>[New] Elevate Your Channel's Standing with These Tactics for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-elevate-youtube-presence-ideal-release-windows/"><u>[New] Elevate Youtube Presence  Ideal Release Windows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-an-easy-to-use-youtube-subscription-tagline/"><u>[New] In 2024, Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cultivate-creativity-inspiration-driven-video-titles/"><u>[New] In 2024, Cultivate Creativity  Inspiration-Driven Video Titles</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-diversifying-audience-across-30plus-online-venues/"><u>[New] In 2024, Diversifying Audience Across 30+ Online Venues</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-yt-content-creation-with-windows-movie-maker/"><u>[New] In 2024, Elevate Your YT Content Creation with Windows Movie Maker</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-surging-upstream-in-the-youtube-subscriber-pool/"><u>[New] Surging Upstream in the YouTube Subscriber Pool</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-dynamic-duo-of-filmmaking-and-thumbnail-design/"><u>[New] The Dynamic Duo of Filmmaking and Thumbnail Design</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-essentials-of-sharing-music-compilations-online/"><u>[New] The Essentials of Sharing Music Compilations Online</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-full-spectrum-alliance-an-mcn-decision-blueprint/"><u>[New] The Full Spectrum Alliance  An MCN Decision Blueprint</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-top-5-ios-friendly-apps-unlocking-facebooks-richest-media-library/"><u>[New] Top 5 iOS-Friendly Apps Unlocking Facebook's Richest Media Library</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-thumbnail-size-how-to-make-a-thumbnail-for-youtube/"><u>[Updated] Best YouTube Thumbnail Size  How to Make a Thumbnail for YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-viewership-responsibly-strategies-that-work-for-2024/"><u>[Updated] Boosting Viewership Responsibly  Strategies That Work for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-growth-strategy-going-with-studio-or-beta-progression-for-2024/"><u>[Updated] Channel Growth Strategy  Going with Studio or Beta Progression for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-insights-on-maximizing-roi-through-effective-youtube-banner-campaigns/"><u>[Updated] Expert Insights on Maximizing ROI Through Effective YouTube Banner Campaigns</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ahead-of-tomorrow-key-youtube-gatherings-post-vidcon/"><u>[Updated] In 2024, Ahead of Tomorrow  Key Youtube Gatherings (Post-VidCon)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-expansion-via-youtube-outros-maximizing-visibility/"><u>[Updated] In 2024, Channel Expansion via YouTube Outros  Maximizing Visibility</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-striking-channel-imagery-best-practices-for-success/"><u>[Updated] In 2024, Creating Striking Channel Imagery  Best Practices for Success</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-discord-profile-video-info-dimensions-codec-time-span/"><u>[Updated] In 2024, Discord Profile Video Info  Dimensions, Codec, Time Span</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elite-yoga-routines-youtubes-leading-fitness-sites/"><u>[Updated] In 2024, Elite Yoga Routines  YouTube's Leading Fitness Sites</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-iosandroid-comparison-youtube-app-explored/"><u>[Updated] IOS/Android Comparison  YouTube App Explored</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-leading-8-software-for-linux-video-editors/"><u>[Updated] Leading 8 Software for Linux Video Editors</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagram-video-load-times-desktop-advice/"><u>[Updated] Mastering Instagram Video Load Times  Desktop Advice</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-maximizing-hdr-photography-capabilities-on-iphone/"><u>[Updated] Maximizing HDR Photography Capabilities on iPhone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-content-distribution-a-close-look-at-igtv-and-youtube/"><u>[Updated] Navigating Content Distribution  A Close Look at IGTV and YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-real-time-viewership-metering-devices/"><u>[Updated] Real-Time Viewership Metering Devices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators/"><u>[Updated] The Art of Ad-Free Earning on YouTube  Strategies for Self-Reliance Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-best-8-free-editing-programs-to-streamline-your-youtube-projects/"><u>[Updated] The Best 8 Free Editing Programs to Streamline Your YouTube Projects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-top-8-linux-friendly-video-cutters/"><u>[Updated] Top 8 Linux-Friendly Video Cutters</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-high-definition-stream-cameras-explored/"><u>2024 Approved  High Definition Stream Cameras Explored</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-professional-mix-techniques-for-crossfading-sounds-with-audacity/"><u>2024 Approved  Professional Mix Techniques for Crossfading Sounds with Audacity</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-why-does-imovie-adjust-video-borders/"><u>2024 Approved  Why Does iMovie Adjust Video Borders?</u></a></li>
-<li><a href="https://win-forum.techidaily.com/a-closer-look-at-leading-social-media-sites-facebook-twitter-instagram-and-youtube-unveiled/"><u>A Closer Look at Leading Social Media Sites: Facebook, Twitter, Instagram and YouTube Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-rca-video-doorbell-camera-an-authoritative-security-device-assessment/"><u>Breaking Down the RCA Video Doorbell Camera: An Authoritative Security Device Assessment</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discovering-the-best-free-videodownloaders-for-pinterest/"><u>Discovering the Best Free Videodownloaders for Pinterest</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/fixing-multiple-unresponsive-audio-services-solutions-inside/"><u>Fixing Multiple Unresponsive Audio Services - Solutions Inside</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-sign-uot-file-document-with-digital-signature-tutorial-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .uot file document with Digital Signature - (Tutorial)</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-huawei-nova-y91-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Huawei Nova Y91 Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-plus-3-ways-to-unlock-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 8 Plus 3 Ways To Unlock</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-speech-refinement-kit-free-tools-for-flawless-audio-effects/"><u>In 2024, The Ultimate Speech Refinement Kit  Free Tools for Flawless Audio Effects</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-video-sharing-techniques-from-youtube-to-insta/"><u>In 2024, Video Sharing Techniques From YouTube to Insta</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/integrating-seamless-multimedia-elements-on-your-mac-screen/"><u>Integrating Seamless Multimedia Elements on Your Mac Screen</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-turn-your-memories-into-a-cinematic-video-experience/"><u>New 2024 Approved Turn Your Memories Into a Cinematic Video Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/perfect-video-gear-starting-with-beginner-cameras-for-2024/"><u>Perfect Video Gear  Starting with Beginner Cameras for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-channel-wrapping-with-expert-templates-and-how-tos-for-2024/"><u>Revolutionize Channel Wrapping with Expert Templates & How-Tos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/secure-free-mpow-bluetooth-driver-software-for-windows-users-compatible-with-11-8-7/"><u>Secure Free MPOW Bluetooth Driver Software for Windows Users: Compatible with 11, 8, 7</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/subscription-surge-entry-into-monetization-realm-for-2024/"><u>Subscription Surge  Entry Into Monetization Realm for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/website-creation-leveraging-gpts-4-key-strategies/"><u>Website Creation: Leveraging GPT's 4 Key Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-channels-for-filmmakers-to-learn-filmmaking-tips-and-tutorials-for-2024/"><u>YouTube Channels for Filmmakers to Learn Filmmaking Tips and Tutorials for 2024</u></a></li>
-</ul></div>
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -183,9 +158,18 @@ Follow @Shanoon Cox
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-inside-the-engine-room-the-apple-m1-unveiled/"><u>[New] Inside the Engine Room The Apple M1 Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-experts-guide-to-finding-cheap-sbd-solutions/"><u>[Updated] 2024 Approved Expert's Guide to Finding Cheap SBD Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-tips-for-producing-engaging-educational-content-for-youtube-for-2024/"><u>[Updated] Essential Tips for Producing Engaging Educational Content for YouTube for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-dissecting-apowersoft-an-in-depth-screen-recorder-study/"><u>[Updated] In 2024, Dissecting Apowersoft An In-Depth Screen Recorder Study</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-3d-lut-filters-a-photo-editing-essential/"><u>2024 Approved Mastering 3D LUT Filters A Photo Editing Essential</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/affordable-high-quality-lenovo-m10-tablet-with-large-hd-screen/"><u>Affordable High-Quality Lenovo M10 Tablet with Large HD Screen</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/eliminate-stutter-in-v-optimize-your-pc-setup-for-fluid-gaming-experience/"><u>Eliminate Stutter in 'V': Optimize Your PC Setup for Fluid Gaming Experience</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-winning-tools-the-top-five-windows-screen-cutters/"><u>In 2024, Winning Tools The Top Five Windows Screen Cutters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-discerning-true-from-false-insta-pals/"><u>Mastering the Art of Discerning True From False Insta Pals</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-motorola-moto-g14-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Motorola Moto G14 Location | Dr.fone</u></a></li>
+</ul></div>
+
