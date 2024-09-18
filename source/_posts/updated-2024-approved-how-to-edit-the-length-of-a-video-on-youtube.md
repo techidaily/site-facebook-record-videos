@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Edit the Length of a Video on YouTube\""
-date: 2024-09-11T23:30:32.747Z
-updated: 2024-09-12T23:30:32.747Z
+date: 2024-09-11T16:50:00.402Z
+updated: 2024-09-18T16:47:48.432Z
 tags:
   - ai video
   - ai youtube
@@ -36,13 +36,6 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -53,13 +46,6 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -68,25 +54,11 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -95,13 +67,6 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -118,14 +83,28 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-perfecting-iphone-footage-quick-trimming-sizing-hacks/"><u>[New] 2024 Approved Perfecting iPhone Footage Quick Trimming, Sizing Hacks</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-complete-guide-to-final-cut-pro-for-film-professionals/"><u>[New] Complete Guide to Final Cut Pro for Film Professionals</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-hashtags-for-youtube-to-get-your-views-to-6-figures-for-2024/"><u>[Updated] Best Hashtags for YouTube To Get Your Views to 6 Figures for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-profit-from-your-youtube-channels/"><u>[Updated] How to Profit From Your YouTube Channels</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-mac-visionaries-reveal-screenflow-secrets-and-benefits-for-2024/"><u>[Updated] Mac Visionaries Reveal ScreenFlow Secrets and Benefits for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-picturepuns-comic-creation-tool/"><u>[Updated] PicturePuns Comic Creation Tool</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-evolution-of-youtube-shorts-popularity-metrics/"><u>[Updated] The Evolution of YouTube Shorts Popularity Metrics</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-zte-nubia-z60-ultra-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring ZTE Nubia Z60 Ultra PC | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/cure-slowing-screen-speed-with-simple-steps/"><u>Cure Slowing Screen Speed with Simple Steps</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-a-guide-to-excellence-with-zd-soft-screen-capture/"><u>[New] 2024 Approved A Guide to Excellence with ZD Soft Screen Capture</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-key-concepts-in-quantum-hdr-mastery/"><u>[New] 2024 Approved Key Concepts in Quantum HDR Mastery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivate-viewers-social-media-strategies-for-youtube/"><u>[Updated] 2024 Approved Captivate Viewers Social Media Strategies for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-15-must-have-openers-for-maximum-youtube-engagement/"><u>[Updated] In 2024, 15 Must-Have Openers for Maximum YouTube Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-actors-insight-crafting-engaging-online-reactions-on-youtube-3-pro-tips/"><u>[Updated] In 2024, Actor's Insight Crafting Engaging Online Reactions on YouTube (3 Pro Tips)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decoding-dangerous-subscriber-scams-online/"><u>[Updated] In 2024, Decoding Dangerous Subscriber Scams Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>[Updated] In 2024, Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-luts-techniques-for-movie-visuals-enhancement-for-2024/"><u>[Updated] Luts Techniques for Movie Visuals Enhancement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/directdraw-error-resolution-tips-for-optimal-performance/"><u>DirectDraw Error Resolution Tips for Optimal Performance</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-canon-pixma-tr4580-windows-printer-software-and-drivers/"><u>Get the Latest Canon PIXMA TR4580 Windows Printer Software & Drivers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-honor-magic-6-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-t2-pro-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo T2 Pro 5G online without jailbreak</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/reel-them-in-a-step-by-step-approach-to-livestreaming-on-youtube/"><u>Reel Them In A Step-by-Step Approach to Livestreaming on Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-battle-of-sound-waves-echo-pop-vs-echo-dot-explained/"><u>The Battle of Sound Waves: Echo Pop vs Echo Dot Explained</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-guide-to-choosing-the-ideal-scanner-2024s-top-picks-unveiled/"><u>Ultimate Guide to Choosing the Ideal Scanner - 2024'S Top Picks Unveiled</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

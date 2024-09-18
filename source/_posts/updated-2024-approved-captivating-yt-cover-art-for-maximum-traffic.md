@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Captivating YT Cover Art for Maximum Traffic\""
-date: 2024-09-11T23:27:12.989Z
-updated: 2024-09-12T23:27:12.989Z
+date: 2024-09-15T17:06:25.898Z
+updated: 2024-09-18T16:20:58.379Z
 tags:
   - ai video
   - ai youtube
@@ -32,19 +32,6 @@ Making better YouTube thumbnails will help you get more views, and knowing the b
 2. [**Tips for Perfect Thumbnails**](#perfect)
 3. [**Making Better Thumbnails for YouTube**](#better)
 
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **1\. What's the ideal YouTube thumbnail Size and Dimension?**
 
 An essential thing that every YouTube video developer needs to know is about the selection of the right side of the thumbnail for any video. As per the guidelines circulated by Google itself, the most appropriate size for the thumbnail image is 1280x720 pixels, where the recommended minimal pixel width is 640 pixels. Generally, the 16:9 ratio is considered as an ideal choice for Most of YouTube previews and players.
@@ -54,13 +41,6 @@ Here is one interesting thing that you need to know; the thumbnail of videos app
 **You May Also Like:**
 [Top 12 Best Free YouTube Thumbnail Makers >>](https://tools.techidaily.com/wondershare/filmora/download/)  
 [ How to Download YouTube Thumbnail in 3 Ways \[Online/Win/Mac\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **2\. Tips for Perfect Thumbnails**
 
@@ -83,19 +63,6 @@ Mac users need to press Command+Shift+4 and then simply highlight the area that 
 Window users are advised to access Windows Key with Print Screen option to get their desired screenshot.
 
 Once you are ready with your video specific still image, then simply get it uploaded on YouTube using the edit video page.
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Making Better Thumbnails for YouTube
 
@@ -127,21 +94,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,19 +111,26 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-samsungs-rival-the-leading-cameras-to-match-your-gear-360-needs/"><u>[New] 2024 Approved Samsung’s Rival The Leading Cameras to Match Your Gear 360 Needs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweeted-cinematics-from-video-to-wavmp3-for-2024/"><u>[New] Tweeted Cinematics From Video to WAV/MP3 for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-10-critical-strategies-for-dynamic-cover-designs-for-2024/"><u>[Updated] 10 Critical Strategies for Dynamic Cover Designs for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-2023s-must-watch-alternatives-to-top-films/"><u>[Updated] 2024 Approved 2023'S Must-Watch Alternatives to Top Films</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-adsense-revenue-streams-on-youtube-for-every-1k-watcher-for-2024/"><u>[Updated] Exploring AdSense Revenue Streams on YouTube for Every 1K Watcher for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-clips-to-classrooms-harnessing-youtubes-potential-for-teaching/"><u>[Updated] From Clips to Classrooms Harnessing YouTube's Potential for Teaching</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-the-synergy-of-slack-and-filmora-for-effective-scheduling/"><u>[Updated] In 2024, The Synergy of Slack and Filmora for Effective Scheduling</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-jumpstart-your-journey-essential-youtubing-skills-course/"><u>[Updated] Jumpstart Your Journey Essential YouTubing Skills Course</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-premium-microphones-for-videographers/"><u>[Updated] Premium Microphones for Videographers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs/"><u>[Updated] Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-unlock-visual-impact-with-these-7-graders-secrets/"><u>2024 Approved Unlock Visual Impact with These 7 Graders' Secrets</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-honor-magic-5-pro-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Honor Magic 5 Pro via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-infinix-gt-10-pro-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Infinix GT 10 Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-best-youtube-makeup-artists-you-should-follow-for-2024/"><u>[Updated] 10 Best YouTube Makeup Artists You Should Follow for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-beyond-indexation-decoding-the-purpose-of-unlisted-videos-for-2024/"><u>[Updated] Beyond Indexation Decoding the Purpose of 'Unlisted' Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-photos-to-feeds-selecting-the-best-9-gear-upgrades/"><u>[Updated] From Photos to Feeds Selecting the Best 9 Gear Upgrades</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-top-5-websites-for-an-active-social-presence-for-2024/"><u>[Updated] Top 5 Websites for an Active Social Presence for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/decoding-the-variance-between-echo-pop-and-echo-dot-models/"><u>Decoding the Variance Between Echo Pop and Echo Dot Models</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-a2-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo A2 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-on-the-apple-iphone-6-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock On the Apple iPhone 6 Without Previous Owner?</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

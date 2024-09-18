@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-09-11T23:26:22.134Z
-updated: 2024-09-12T23:26:22.134Z
+date: 2024-09-12T16:46:16.922Z
+updated: 2024-09-18T16:36:53.223Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -75,13 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -90,19 +76,6 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -139,13 +112,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -161,15 +127,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-inside-the-engine-room-the-apple-m1-unveiled/"><u>[New] Inside the Engine Room The Apple M1 Unveiled</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-experts-guide-to-finding-cheap-sbd-solutions/"><u>[Updated] 2024 Approved Expert's Guide to Finding Cheap SBD Solutions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-tips-for-producing-engaging-educational-content-for-youtube-for-2024/"><u>[Updated] Essential Tips for Producing Engaging Educational Content for YouTube for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-dissecting-apowersoft-an-in-depth-screen-recorder-study/"><u>[Updated] In 2024, Dissecting Apowersoft An In-Depth Screen Recorder Study</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-3d-lut-filters-a-photo-editing-essential/"><u>2024 Approved Mastering 3D LUT Filters A Photo Editing Essential</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-high-quality-lenovo-m10-tablet-with-large-hd-screen/"><u>Affordable High-Quality Lenovo M10 Tablet with Large HD Screen</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/eliminate-stutter-in-v-optimize-your-pc-setup-for-fluid-gaming-experience/"><u>Eliminate Stutter in 'V': Optimize Your PC Setup for Fluid Gaming Experience</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-winning-tools-the-top-five-windows-screen-cutters/"><u>In 2024, Winning Tools The Top Five Windows Screen Cutters</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-discerning-true-from-false-insta-pals/"><u>Mastering the Art of Discerning True From False Insta Pals</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-motorola-moto-g14-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Motorola Moto G14 Location | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-lost-video-playback-sony-a6400-problems-explored/"><u>[New] Lost Video Playback Sony A6400 Problems Explored</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-perfecting-the-art-of-podcast-title-creation-essential-tips-and-inspirations-for-2024/"><u>[New] Perfecting the Art of Podcast Title Creation Essential Tips & Inspirations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-youtube-content-editing-in-adobe-premiere/"><u>[Updated] 2024 Approved Elevate Your YouTube Content Editing in Adobe Premiere</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-visual-storytelling-key-strategies-for-solo-videos-for-2024/"><u>[Updated] Boost Your Visual Storytelling Key Strategies for Solo Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enlarge-your-videos-thumbnail-on-youtube-easily-for-2024/"><u>[Updated] Enlarge Your Video's Thumbnail on YouTube Easily for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>[Updated] Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-swift-and-efficient-turning-youtube-vids-into-mp4-high-definition-via-online-service/"><u>2024 Approved Swift & Efficient Turning YouTube Vids Into MP4, High-Definition via Online Service</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-brightness-settings-unresponsive-on-windows-11/"><u>Fixing the Issue: Brightness Settings Unresponsive on Windows 11</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-14-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 14 Pro without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leaderboard-best-following-drone-technology-for-2024/"><u>Leaderboard Best-Following Drone Technology for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-blur-faces-like-a-pro-top-free-apps-and-tutorials-for-photos-and-videos/"><u>New 2024 Approved Blur Faces Like a Pro Top Free Apps and Tutorials for Photos and Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-youtube-shorts-what-it-all-means-for-2024/"><u>Unveiling YouTube Shorts What It All Means for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

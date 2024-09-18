@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-09-11T23:27:58.340Z
-updated: 2024-09-12T23:27:58.340Z
+date: 2024-09-13T16:55:27.675Z
+updated: 2024-09-18T17:40:20.297Z
 tags:
   - ai video
   - ai youtube
@@ -25,19 +25,6 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -67,13 +54,6 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -89,13 +69,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-online-fb-music-collection-now/"><u>[New] 2024 Approved Online FB Music Collection Now</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-softer-sounds-guide-for-pcos-users/"><u>[New] 2024 Approved Softer Sounds Guide for PC/OS Users</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-entry-level-expenditure-cost-effective-platforms-for-youtube-purchases/"><u>[Updated] 2024 Approved Entry-Level Expenditure Cost-Effective Platforms for YouTube Purchases</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-creating-dynamic-content-with-youtube-playlist-embedding-for-2024/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-finest-wedding-cinematography-youtube-and-vimeos-selection-for-2024/"><u>[Updated] Exploring the Finest Wedding Cinematography - Youtube & Vimeo's Selection for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-perfecting-the-art-of-twitter-broadcasts/"><u>[Updated] In 2024, Perfecting the Art of Twitter Broadcasts</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-oneplus-ace-2-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your OnePlus Ace 2 Location Settings | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-transform-your-browsing-with-ms-edges-pip/"><u>In 2024, Transform Your Browsing with MS Edge's PIP</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-unlocking-image-potential-smart-online-cropping-techniques/"><u>[New] 2024 Approved Unlocking Image Potential Smart Online Cropping Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discover-8-trusted-online-content-marketing-tools/"><u>[Updated] 2024 Approved Discover 8 Trusted Online Content Marketing Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-visibility-a-comprehensive-guide-to-video-tagging/"><u>[Updated] In 2024, Enhance Visibility A Comprehensive Guide to Video Tagging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-making-yt-thumbnails-pop-a-mac-centric-approach/"><u>[Updated] Making YT Thumbnails Pop A Mac-Centric Approach</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-picks-video-grabbers-on-microsofts-os/"><u>[Updated] Top Picks Video Grabbers on Microsoft's OS</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhance-your-mac-experience-the-ultimate-guide-to-premium-divx-video-conversion-tools/"><u>Enhance Your Mac Experience: The Ultimate Guide to Premium DivX Video Conversion Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/innovating-audio-visuals-podcast-covers-explained-for-2024/"><u>Innovating Audio Visuals Podcast Covers Explained for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
