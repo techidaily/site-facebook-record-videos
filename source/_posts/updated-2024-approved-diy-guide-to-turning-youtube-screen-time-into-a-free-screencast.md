@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Guide to Turning YouTube Screen Time Into a FREE Screencast\""
-date: 2024-09-11T16:18:54.638Z
-updated: 2024-09-18T16:39:53.890Z
+date: 2024-09-18T04:39:11.134Z
+updated: 2024-09-24T07:01:46.703Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -57,11 +64,25 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
@@ -86,6 +107,13 @@ Let's watch the video below to check how to record your screen with Filmora and 
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 With all impressive features, there is no doubt to say that Filmora can serve your screencasting needs in the best possible manner. Whether you are a crazy gamer interested to share your adventure videos with the world or want to create useful tutorials for your audience, Filmora is your best companion for all your needs.
@@ -107,19 +135,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-discovering-the-latest-lg-tv-trends-with-bp550/"><u>[Updated] In 2024, Discovering the Latest LG TV Trends with BP550</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-superior-satire-picture-styler/"><u>[Updated] In 2024, Superior Satire Picture Styler</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-safe-techniques-for-extracting-and-converting-youtube-audio-into-mp3/"><u>[Updated] Safe Techniques for Extracting and Converting YouTube Audio Into MP3</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-28-youtube-music-splitters-for-easy-audio-extraction/"><u>[Updated] Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/a-step-by-step-approach-to-cultivating-emotional-intelligence-with-chatgpt/"><u>A Step-by-Step Approach to Cultivating Emotional Intelligence with ChatGPT</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-process-for-performing-a-full-system-reset-on-lenovo-notebooks/"><u>Step-by-Step Process for Performing a Full System Reset on Lenovo Notebooks</u></a></li>
-<li><a href="https://blog-min.techidaily.com/44gp44gg44gz44km44gw5a6j5ywo44gl44gk6lplusf6ycf44gq5ouh5by144oa44km44oz44ot44o844oj44gm5yplusv6io944gl77yfic0g5bcc6zaa5a6244gu44ki44oj44oq44kk44k5/"><u>どうすれば安全かつ迅速な拡張ダウンロードが可能か？ - 専門家のアドバイス</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-maximizing-gaming-experience-record-games-on-win10/"><u>[New] 2024 Approved Maximizing Gaming Experience Record Games on Win10</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-mastering-durecorder-complete-breakdown-for-2024/"><u>[New] Mastering DuRecorder Complete Breakdown for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivating-viewers-youtubers-guide-to-dynamic-game-sessions/"><u>[Updated] 2024 Approved Captivating Viewers YouTubers’ Guide to Dynamic Game Sessions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-co-production-strategies-for-online-content-proliferation/"><u>[Updated] 2024 Approved Co-Production Strategies for Online Content Proliferation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-watchlist-experience-with-youtubes-av1-settings/"><u>[Updated] 2024 Approved Elevate Your Watchlist Experience with YouTube's AV1 Settings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-double-the-joy-master-looping-of-youtube-media-on-televisions-for-2024/"><u>[Updated] Double the Joy Master Looping of YouTube Media on Televisions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-get-the-facts-about-youtube-keyword-research/"><u>[Updated] Get the Facts About YouTube Keyword Research</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tips-for-efficient-zoom-meeting-arrangements-on-android/"><u>[Updated] Tips for Efficient Zoom Meeting Arrangements on Android</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/1725285352357-dvd/"><u>家庭用DVDコピーがプロにも扱える！無料、手軽パソコン/スマホ・タブ移行可能</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-motorola-edge-40-pro-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/cambiar-formato-de-archivo-mpe-a-aac-online-sin-coste-usando-movavi/"><u>Cambiar Formato De Archivo MPE a AAC Online Sin Coste - Usando Movavi</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/expert-insights-on-top-hdr-cameras-for-2024/"><u>Expert Insights on Top HDR Cameras for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-google-pixel-7a-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Google Pixel 7a FRP Bypass</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sense-your-wallet-while-enjoying-sound-with-activbuds/"><u>Sense Your Wallet While Enjoying Sound with ActivBuds</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

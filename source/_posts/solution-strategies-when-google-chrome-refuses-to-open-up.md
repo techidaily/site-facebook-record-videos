@@ -1,7 +1,7 @@
 ---
 title: "Solution Strategies: When Google Chrome Refuses to Open Up"
-date: 2024-09-13T17:02:21.516Z
-updated: 2024-09-18T17:38:32.369Z
+date: 2024-09-19T07:06:25.728Z
+updated: 2024-09-24T06:19:19.548Z
 tags:
   - win11
   - win10
@@ -43,6 +43,13 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **HDD Space**        | **20 GB**                                                    |
 | **DirectX**          | **DirectX 11.0**                                             |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  You may not have to try them all; just work your way down the list until you find the one that works for you.
@@ -71,16 +78,22 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/com.jpg)
 3. Click **OK** then run Fortnite to check.
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If this method doesn’t help, don’t worry, move to the next one.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method: Update your graphics card
 
@@ -115,6 +128,13 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Reboot your computer and run Fortnite to check the black screen issue will appear or not.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ---
 
 ### Method 4: Use your integrated graphics card
@@ -125,6 +145,13 @@ OR
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 5: Change scale and layout limit
 
  This solution has been proved by some users that help them fix the Fortnite black screen problem. Follow the steps below to change the display settings on your computer.
@@ -133,22 +160,15 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display.jpg)
 2. In the Display tab, find Scale and layout.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3. Change the scaling limit.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display1.jpg)
 4. Reboot Fortnite and check whether this problem is resolved.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 6: Unblock the game from Windows Firewall
@@ -159,32 +179,19 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall0.jpg)
 2. Click**Allow an app through firewall** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall.jpg)
 3. Find Fortnite and check whether it has been blocked or not.
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. Click**Change Settings** if it does and check all the boxes to enable the app through the firewall.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall-1.jpg)
 5. Reboot Fortnite and check whether this problem is resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
@@ -209,19 +216,18 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-your-ultimate-guide-to-downloading-youtube-on-ios/"><u>[New] Your Ultimate Guide to Downloading YouTube on iOS</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-autoplay-youtube-on-phones-without-interruption/"><u>[Updated] 2024 Approved Autoplay YouTube on Phones without Interruption</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-branding-hacks-10-must-use-online-tools/"><u>[Updated] 2024 Approved Channel Branding Hacks 10 Must-Use Online Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[Updated] 2024 Approved Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-youtube-presence-with-strategic-banners-for-2024/"><u>[Updated] Enhancing YouTube Presence with Strategic Banners for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficiently-shortening-youtube-content/"><u>[Updated] In 2024, Efficiently Shortening YouTube Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-your-content-creation-with-these-top-12-cameras/"><u>[Updated] In 2024, Enhance Your Content Creation with These Top 12 Cameras</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-excellence-in-tiktok-making-leveraging-templates-to-stand-out/"><u>[Updated] In 2024, Excellence in TikTok Making Leveraging Templates to Stand Out</u></a></li>
-<li><a href="https://games-able.techidaily.com/augment-gameplay-nvidias-cutting-edge-application-unveiled/"><u>Augment Gameplay: Nvidia’s Cutting-Edge Application Unveiled</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-insignia-driver-pack-for-windows-fast-and-easy-integration-steps/"><u>Download Insignia Driver Pack for Windows: Fast & Easy Integration Steps</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/explore-windows-and-mac-8-best-3d-video-apps-for-free/"><u>Explore Windows & Mac 8 Best 3D Video Apps for FREE</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/features-face-off-can-kobo-nia-outshine-amazons-beloved-kindle/"><u>Features Face-Off: Can Kobo Nia Outshine Amazon's Beloved Kindle?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/narrow-your-focus-on-elite-hdr-camera-systems/"><u>Narrow Your Focus on Elite HDR Camera Systems</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-iphone-8-plus-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On iPhone 8 Plus</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-gone-locating-the-disappeared-fans-for-2024/"><u>[New] Insta Gone? Locating the Disappeared Fans for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-your-channels-viewer-count-12-must-try-approaches/"><u>[Updated] 2024 Approved Boosting Your Channel's Viewer Count - 12 Must-Try Approaches</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-fast-forward-your-twitch-experience-for-2024/"><u>[Updated] Fast-Forward Your Twitch Experience for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channeling-creativity-get-green-screen-tips-from-youtube/"><u>[Updated] In 2024, Channeling Creativity Get Green Screen Tips From YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimize-online-presence-video-embellishment-with-logos-and-watermarks/"><u>[Updated] Optimize Online Presence Video Embellishment with Logos and Watermarks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quickcut-youtube-artist/"><u>[Updated] QuickCut YouTube Artist</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-on-the-spot-screen-savers-facebook-edition/"><u>2024 Approved On-the-Spot Screen Savers - Facebook Edition</u></a></li>
+<li><a href="https://win-blog.techidaily.com/battling-the-unexpected-shutdowns-in-battlefield-5-on-your-gaming-computer/"><u>Battling the Unexpected Shutdowns in Battlefield 5 on Your Gaming Computer</u></a></li>
+<li><a href="https://os-tips.techidaily.com/diving-into-vintage-video-games-on-my-iphone-a-weekend-of-discovery-and-lessons/"><u>Diving Into Vintage Video Games on My iPhone - A Weekend of Discovery and Lessons.</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722874550072-from-silicon-chips-to-printed-pages-discover-devices-and-books-for-every-enthusiast/"><u>From Silicon Chips to Printed Pages: Discover Devices and Books for Every Enthusiast</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-apple-iphone-15-plus-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From Apple iPhone 15 Plus? How to Fix it?</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-beginners-blueprint-for-youtube-success-setting-up-and-making-money/"><u>In 2024, Beginner’s Blueprint for YouTube Success Setting Up & Making Money</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-motorola-moto-g04-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Motorola Moto G04 Location on Skout | Dr.fone</u></a></li>
 </ul></div>
 

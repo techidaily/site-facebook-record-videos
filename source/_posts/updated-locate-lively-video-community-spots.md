@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Locate Lively Video Community Spots"
-date: 2024-09-17T16:48:13.181Z
-updated: 2024-09-18T16:09:17.246Z
+date: 2024-09-23T07:18:35.493Z
+updated: 2024-09-23T20:24:02.352Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,13 @@ It is one of the most user-friendly and ad-free random comment pickers available
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
 There are times when you regret what you've commented on in the past or wish to go back and look up your first message on YouTube. However, it is not always possible to recall the channel or video where you left the comment.
@@ -87,9 +94,23 @@ Everything you have to do now follows the steps below. For the following methods
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
@@ -108,13 +129,6 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -123,13 +137,6 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -143,6 +150,13 @@ The higher your video content's exposure on the internet, the more you'll be inc
 YouTube Comments Finder helps you keep track of the good and bad comments in your videos and definitely helps improve the SEO of your Channel. Thanks to YouTube's advanced tools and websites like Hadzy, YouTube comment Finder, YT Comment Finder and YouTube First Comment Finder, managing third-party interaction is a lot simpler today.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,14 +173,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-elites-8-the-speedy-video-channels/"><u>[Updated] 2024 Approved Digital Elites 8 The Speedy Video Channels</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-beginners-guide-top-10-youtube-editing-tricks-for-2024/"><u>[Updated] Beginner's Guide Top 10 YouTube Editing Tricks for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-cool-youtube-previews-in-imovie-easily/"><u>[Updated] In 2024, Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-optimal-visual-snatchers-for-videos-for-2024/"><u>[Updated] Optimal Visual Snatchers for Videos for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-conquer-podcast-production-with-garageband-skills/"><u>2024 Approved Conquer Podcast Production with GarageBand Skills</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/bringing-rhythm-to-instagrams-visual-narratives-for-2024/"><u>Bringing Rhythm to Instagram's Visual Narratives for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/online-aimp4/"><u>Online AIMP4 투영어 변환 편집기 - 무료 제공</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/speak-up-and-take-charge-controlling-chatgpt-using-just-your-voice/"><u>Speak Up and Take Charge: Controlling ChatGPT Using Just Your Voice</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/toms-insider-look-top-tier-tech-and-hardware-reviews/"><u>Tom’s Insider Look: Top-Tier Tech and Hardware Reviews</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-shades-core-methods-for-photos/"><u>[New] Mastering Shades Core Methods for PHOTOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-3-efficient-methods-for-saving-youtubes-standardized-images/"><u>[Updated] 2024 Approved 3 Efficient Methods for Saving YouTube's Standardized Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-avoiding-common-errors-perfect-tripod-usage-in-video-production/"><u>[Updated] 2024 Approved Avoiding Common Errors Perfect Tripod Usage in Video Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-diy-guide-to-turning-youtube-screen-time-into-a-free-screencast/"><u>[Updated] 2024 Approved DIY Guide to Turning YouTube Screen Time Into a FREE Screencast</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-digital-storyboard-studio-for-2024/"><u>[Updated] Digital Storyboard Studio for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-backward-glance-decoding-youtube-video-reversals/"><u>[Updated] In 2024, Backward Glance Decoding YouTube Video Reversals</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elite-gamers-capturing-solutions/"><u>[Updated] In 2024, Elite Gamers' Capturing Solutions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-marketers-methods-detecting-illusory-engagement-signals/"><u>[Updated] Marketers’ Methods Detecting Illusory Engagement Signals</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streaming-made-simple-convert-and-broadcast-mp3-songs-online/"><u>[Updated] Streaming Made Simple Convert and Broadcast MP3 Songs Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-facts-in-the-asmr-world/"><u>[Updated] Top Facts in the ASMR World</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-video-wizardry-your-guide-to-the-top-10-editing-hacks/"><u>[Updated] Video Wizardry Your Guide to the Top 10 Editing Hacks</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Huawei Nova Y91? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-reduce-webm-file-size-top-online-compressors/"><u>New In 2024, Reduce WebM File Size Top Online Compressors</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-technical-glitches-a-guide-to-getting-your-phasmophobia-vr-game-running-smoothly-again/"><u>Overcoming Technical Glitches - A Guide to Getting Your Phasmophobia VR Game Running Smoothly Again</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/synchronizing-soundscapes-a-guide-to-multi-service-moves/"><u>Synchronizing Soundscapes A Guide to Multi-Service Moves</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/tt560-lights-up-consistent-power-effortless-setup/"><u>TT560 Lights Up: Consistent Power, Effortless Setup</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/ultimate-fixes-for-a-seamless-halo-infinite-gaming-session/"><u>Ultimate Fixes for a Seamless Halo Infinite Gaming Session</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/winxvideo-ai-comment-enregistrer-simultanement-la-camera-laudio-et-lecran-sur-windows/"><u>WinXvideo AI: Comment Enregistrer Simultanément La Caméra, L'audio Et L'écran Sur Windows</u></a></li>
 </ul></div>
 

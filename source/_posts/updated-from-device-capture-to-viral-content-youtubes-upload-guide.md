@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Device Capture to Viral Content  YouTube's Upload Guide\""
-date: 2024-09-12T16:01:21.159Z
-updated: 2024-09-18T16:30:17.444Z
+date: 2024-09-22T23:57:57.253Z
+updated: 2024-09-23T18:53:03.422Z
 tags:
   - ai video
   - ai youtube
@@ -103,16 +103,16 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
@@ -124,6 +124,13 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -141,6 +148,13 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -148,16 +162,10 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -177,16 +185,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-extracting-music-tracks-from-fb/"><u>[New] In 2024, Extracting Music Tracks From Fb</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-leading-tips-to-record-videos-in-silence/"><u>[New] Leading Tips to Record Videos in Silence</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-all-in-youtube-shorts-guide/"><u>[Updated] 2024 Approved Discovering All in YouTube Shorts Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-thumbnail-imagery-fantasy-landscapes-and-effects-guide/"><u>[Updated] 2024 Approved Elevate Thumbnail Imagery Fantasy Landscapes & Effects Guide</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-a-journey-to-vivid-visuals-top-11-hue-enhancement-guides/"><u>[Updated] In 2024, A Journey to Vivid Visuals Top 11 Hue Enhancement Guides</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>[Updated] In 2024, Enhancing Your YouTube Content Basic Premiere Pro Edits</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/elevate-automation-capabilities-using-blue-prisms-best-in-class-process-intelligence-tools-for-optimization/"><u>Elevate Automation Capabilities Using Blue Prism's Best in Class Process Intelligence Tools for Optimization</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-samsung-galaxy-z-flip-5-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Samsung Galaxy Z Flip 5 to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-moto-g-power-analysis-exceptional-longevity-and-impressive-efficiency/"><u>In-Depth Moto G Power Analysis: Exceptional Longevity & Impressive Efficiency</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/innovative-ways-to-document-your-virtual-sessions-mac-and-pc-edition-for-2024/"><u>Innovative Ways to Document Your Virtual Sessions - Mac & PC Edition for 2024</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/resolving-the-unmountablebootvolume-bsod-issue-in-windows-11-comprehensive-guide/"><u>Resolving the UNMOUNTABLE_BOOT_VOLUME BSOD Issue in Windows 11 - Comprehensive Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-cutting-edge-game-recording-for-league-of-legends-lol-players-for-2024/"><u>[New] Cutting-Edge Game Recording for League of Legends LoL Players for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-briefvideo-creator/"><u>[Updated] 2024 Approved BriefVideo Creator</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-broadcasting-brilliance-in-final-fragments/"><u>[Updated] In 2024, Broadcasting Brilliance in Final Fragments</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-master-your-content-leading-free-video-opener-tools/"><u>[Updated] Master Your Content Leading Free Video Opener Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-directing-viewers-across-platforms-igtv-and-facebook/"><u>2024 Approved Directing Viewers Across Platforms IGTV & Facebook</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/breeze-through-direct3d-download-simple-steps-for-success/"><u>Breeze Through Direct3D Download – Simple Steps for Success</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-itel-p40-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Itel P40 Phones with/without a PC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-in-the-spotlight-top-viewers-choice/"><u>In 2024, In the Spotlight Top Viewers' Choice</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-windows-11-a-step-by-step-upgrade-guide-for-2024/"><u>Mastering Windows 11 A Step-by-Step Upgrade Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unsticking-your-minecraft-game-solutions-for-incessant-loading-issues/"><u>Unsticking Your Minecraft Game: Solutions for Incessant Loading Issues</u></a></li>
 </ul></div>
 

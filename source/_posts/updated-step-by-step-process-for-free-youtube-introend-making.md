@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-09-12T16:46:16.922Z
-updated: 2024-09-18T16:36:53.223Z
+date: 2024-09-21T02:49:00.907Z
+updated: 2024-09-24T06:51:18.498Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,6 +119,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -127,24 +141,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-lost-video-playback-sony-a6400-problems-explored/"><u>[New] Lost Video Playback Sony A6400 Problems Explored</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-perfecting-the-art-of-podcast-title-creation-essential-tips-and-inspirations-for-2024/"><u>[New] Perfecting the Art of Podcast Title Creation Essential Tips & Inspirations for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-youtube-content-editing-in-adobe-premiere/"><u>[Updated] 2024 Approved Elevate Your YouTube Content Editing in Adobe Premiere</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-visual-storytelling-key-strategies-for-solo-videos-for-2024/"><u>[Updated] Boost Your Visual Storytelling Key Strategies for Solo Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enlarge-your-videos-thumbnail-on-youtube-easily-for-2024/"><u>[Updated] Enlarge Your Video's Thumbnail on YouTube Easily for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-youtubes-potential-key-strategies-from-creator-studio-manual/"><u>[Updated] Unlock YouTube's Potential Key Strategies From Creator Studio Manual</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-swift-and-efficient-turning-youtube-vids-into-mp4-high-definition-via-online-service/"><u>2024 Approved Swift & Efficient Turning YouTube Vids Into MP4, High-Definition via Online Service</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-brightness-settings-unresponsive-on-windows-11/"><u>Fixing the Issue: Brightness Settings Unresponsive on Windows 11</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-14-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 14 Pro without Losing Anything? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/leaderboard-best-following-drone-technology-for-2024/"><u>Leaderboard Best-Following Drone Technology for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-blur-faces-like-a-pro-top-free-apps-and-tutorials-for-photos-and-videos/"><u>New 2024 Approved Blur Faces Like a Pro Top Free Apps and Tutorials for Photos and Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unveiling-youtube-shorts-what-it-all-means-for-2024/"><u>Unveiling YouTube Shorts What It All Means for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-discovering-the-best-streamers-for-real-time-tv/"><u>[New] 2024 Approved Discovering the Best Streamers for Real-Time TV</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps/"><u>[Updated] 2024 Approved Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-eluding-youtube-ban-protective-measures/"><u>[Updated] 2024 Approved Eluding YouTube Ban Protective Measures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-study-partners-in-history-top-10-youtubers-and-channels-for-2024/"><u>[Updated] Best Study Partners in History Top 10 Youtubers & Channels for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-eyesharp-hd-high-definition-chromecasting/"><u>[Updated] In 2024, EyeSharp HD High Definition Chromecasting</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-vimeo-end-screen-how-to-add-end-screen-to-video-on-vimeo/"><u>[Updated] In 2024, Vimeo End Screen How to Add End Screen to Video on Vimeo?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-key-approaches-to-microphone-and-computer-speaker-documentation/"><u>[Updated] Key Approaches to Microphone & Computer Speaker Documentation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-shorts-profitability-secrets/"><u>[Updated] Youtube Shorts Profitability Secrets</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-iphone-13-mini-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling iPhone 13 mini Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ag-wisdom-jumpstart-your-6-figure-youtube-rank/"><u>Hashtag Wisdom Jumpstart Your 6-Figure Youtube Rank</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/quick-bengali-skills-upgrade/"><u>Quick Bengali Skills Upgrade</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/resolved-fixing-steams-inaccessible-friend-list-issue/"><u>Resolved: Fixing Steam's Inaccessible Friend List Issue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/troubleshooting-tips-why-football-manager-2019-keeps-crashing-and-how-to-fix-it/"><u>Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

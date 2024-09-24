@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Size Solution to Boost Your Video's Online Performance"
-date: 2024-09-14T16:19:27.651Z
-updated: 2024-09-18T16:57:16.842Z
+date: 2024-09-17T20:33:32.767Z
+updated: 2024-09-24T02:48:03.008Z
 tags:
   - ai video
   - ai youtube
@@ -73,9 +73,35 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -85,6 +111,13 @@ To change the thumbnail on an already uploaded video you need to follow these st
 * From the menu go to **Videos** and then select the video you want to upload a custom thumbnail to via its title or thumbnail
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
@@ -120,10 +153,10 @@ Let's see how you can create your thumbnail using Wondershare Filmora:
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
@@ -139,16 +172,10 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
 <!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **To sum up**
@@ -172,20 +199,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-multitasking-made-simple-understanding-chrome-pip-integration/"><u>[New] In 2024, Multitasking Made Simple Understanding Chrome PIP Integration</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-compelling-videos-youtubes-best-thumbnail-practices/"><u>[Updated] 2024 Approved Crafting Compelling Videos YouTube's Best Thumbnail Practices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-dynamo-dames-the-next-generation-of-youtubes-powerhouses/"><u>[Updated] 2024 Approved Digital Dynamo Dames The Next Generation of YouTube's Powerhouses</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-expertly-slice-your-videos-macs-finest-mp4-applications/"><u>[Updated] Expertly Slice Your Videos Mac's Finest MP4 Applications</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-how-tseries-harnesses-revenue-from-online-viewer-base-youtube/"><u>[Updated] Exploring How TSeries Harnesses Revenue From Online Viewer Base (YouTube)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-audio-visual-caption-builder/"><u>[Updated] In 2024, Audio Visual Caption Builder</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-choosing-the-right-platform-a-look-at-vimeo-youtube-and-dailymotion/"><u>[Updated] In 2024, Choosing the Right Platform A Look at Vimeo, YouTube & DailyMotion</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-the-top-webcams-for-windows-10/"><u>[Updated] In 2024, The Ultimate Guide to the Top Webcams for Windows 10</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-your-setup-essential-shooting-accessories/"><u>[Updated] Mastering Your Setup Essential Shooting Accessories</u></a></li>
-<li><a href="https://techtrends.techidaily.com/youtube-and-vimeopc/"><u>最適な動画表示設定 - YouTube & VimeoでPC画面方向をフリーマネジメントツール</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-making-the-most-out-of-your-ipad-and-printer-connection-issues/"><u>Guide: Making the Most Out of Your iPad and Printer Connection Issues</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-tecno-pova-6-pro-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Tecno Pova 6 Pro 5GMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/quicken-video-playback-on-instagram-apps/"><u>Quicken Video Playback on Instagram Apps</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-realme-12-5g-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Realme 12 5G Phone Hassle-Free</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-top-10-best-gif-speed-changers/"><u>Updated 2024 Approved Top 10 Best GIF Speed Changers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-hashtags-for-youtube-to-get-your-views-to-6-figures-for-2024/"><u>[Updated] Best Hashtags for YouTube To Get Your Views to 6 Figures for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-profit-from-your-youtube-channels/"><u>[Updated] How to Profit From Your YouTube Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-craft-how-to-produce-mukbang-videos/"><u>[Updated] Mastering the Craft How to Produce Mukbang Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-evolution-of-youtube-shorts-popularity-metrics/"><u>[Updated] The Evolution of YouTube Shorts Popularity Metrics</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-crafting-engaging-full-degree-footage-with-adobe-premieres-state-of-the-art-tools/"><u>2024 Approved Crafting Engaging Full Degree Footage with Adobe Premiere's State-of-the-Art Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-maximizing-your-tiktok-impact-from-fans-to-followers-and-beyond/"><u>2024 Approved Maximizing Your TikTok Impact From Fans to Followers and Beyond</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/experience-the-power-of-mid-range-excellence-with-the-samsung-galaxy-a71-5g-an-insightful-comparison/"><u>Experience the Power of Mid-Range Excellence with the Samsung Galaxy A71 5G - An Insightful Comparison</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/garmins-ultra-30-action-camera-revealed-in-full-detail/"><u>Garmin's Ultra 30 Action Camera Revealed in Full Detail</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-guide-to-high-quality-cost-free-webm-viewers/"><u>In 2024, Ultimate Guide to High-Quality, Cost-Free WebM Viewers</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/solve-skype-connection-issues-in-windows-nanduity-10-using-these-5-simple-methods/"><u>Solve Skype Connection Issues in Windows Nanduity 10 Using These 5 Simple Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triple-threat-of-metas-social-supremacy/"><u>The Triple Threat of Meta's Social Supremacy</u></a></li>
 </ul></div>
 

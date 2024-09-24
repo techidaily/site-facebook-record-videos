@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Luminous Techniques for Engaging Vlogs"
-date: 2024-09-11T17:08:42.338Z
-updated: 2024-09-18T17:35:54.386Z
+date: 2024-09-17T05:47:46.344Z
+updated: 2024-09-23T16:14:01.311Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -72,6 +86,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -83,6 +104,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -99,25 +127,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-top-8-mobile-tools-transforming-slow-mo-to-fast-forward-for-2024/"><u>[New] Top 8 Mobile Tools Transforming Slow Mo to Fast-Forward for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beat-matchers-playlist-selecting-flawless-dj-videos/"><u>[Updated] 2024 Approved Beat Matcher's Playlist Selecting Flawless DJ Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-behind-the-scenes-how-much-creators-earn-from-youtube-shorts/"><u>[Updated] 2024 Approved Behind the Scenes How Much Creators Earn From YouTube Shorts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-fusion-of-youtube-beats-and-imovie-editing-magic/"><u>[Updated] Fusion of YouTube Beats and iMovie Editing Magic</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-secrets-to-super-views-hashtag-hacks-for-game-streams/"><u>[Updated] Secrets to Super Views Hashtag Hacks for Game Streams</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-shorts-description-everything-you-should-know/"><u>[Updated] YouTube Shorts Description Everything You Should Know</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-video-magic-comprehensive-editing-for-professionals/"><u>[Updated] YouTube Video Magic Comprehensive Editing for Professionals</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/digital-clarity-the-1-tools-for-clearing-up-photos-on-screen/"><u>Digital Clarity The #1 Tools for Clearing Up Photos on Screen</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-google-pixel-8-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Google Pixel 8 Pro? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-htc-u23-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock HTC U23 Phone Forgot Password</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-motorola-moto-g04-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-9-tech-tools-that-are-indispensable-for-your-education-journey/"><u>Top 9 Tech Tools That Are Indispensable for Your Education Journey</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-8-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking iPhone 8 Passcode without a Computer</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-reel-in-the-action-top-strategies-for-recording-your-minecraft-sessions-on-a-mac-for-2024/"><u>[New] Reel in the Action Top Strategies for Recording Your Minecraft Sessions on a Mac for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-expert-suggestions-to-make-your-yt-shorts-stand-out-for-2024/"><u>[Updated] 10 Expert Suggestions to Make Your YT Shorts Stand Out for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-video-tools-opt-for-studio-or-latest-beta-version/"><u>[Updated] 2024 Approved Cutting-Edge Video Tools Opt for Studio or Latest Beta Version</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-nano-drone-showdown-the-best-of-the-year/"><u>[Updated] 2024 Approved Nano Drone Showdown The Best of the Year</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-download-friends-8-top-rated-free-fb-extractors-for-2024/"><u>[Updated] Download Friends 8 Top-Rated Free FB Extractors for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieving-financial-independence-through-youtube-and-adsense/"><u>[Updated] In 2024, Achieving Financial Independence Through YouTube and AdSense</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-infographic-8-ways-to-make-money-on-youtube-for-beginners-for-2024/"><u>[Updated] Infographic - 8 Ways to Make Money on YouTube for Beginners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-stronger-exploring-the-best-15-video-intros/"><u>[Updated] Starting Stronger Exploring the Best 15 Video Intros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-your-monetization-mastering-youtube-adsense/"><u>[Updated] Streamlining Your Monetization Mastering YouTube AdSense</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-permanent-linkage-to-tiktok-profiles-without-hiccups/"><u>In 2024, Permanent Linkage to TikTok Profiles Without Hiccups</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-ultimate-checklist-for-installing-vrecorder/"><u>In 2024, Ultimate Checklist for Installing VRecorder</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-iphone-6-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking iPhone 6 Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/next-level-artificial-intelligence-googles-palm-2-stacked-against-openais-gpt-4/"><u>Next Level Artificial Intelligence: Google's PaLM 2 Stacked Against OpenAI's GPT-4</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-asus-rog-phone-8-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Asus ROG Phone 8 Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/starting-out-on-youtube-setting-up-starting-to-earn-for-2024/"><u>Starting Out on YouTube Setting Up, Starting to Earn for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

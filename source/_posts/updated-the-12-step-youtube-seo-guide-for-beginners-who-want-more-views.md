@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The 12-Step YouTube SEO Guide for Beginners Who Want More Views\""
-date: 2024-09-14T17:14:35.452Z
-updated: 2024-09-18T16:15:20.451Z
+date: 2024-09-17T21:51:34.507Z
+updated: 2024-09-23T23:47:41.862Z
 tags:
   - ai video
   - ai youtube
@@ -156,6 +156,19 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -190,6 +203,13 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -222,6 +242,19 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 11: Add Transcripts
 
 In addition to making your content accessible for people who don’t want to or can’t listen to the audio in your video, adding subtitles and closed captions will help YouTube understand the spoken content in your video.
@@ -246,6 +279,13 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -265,22 +305,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-mobile-moba-showdown-androids-best-games-list-for-2024/"><u>[New] Mobile MOBA Showdown - Android's Best Games List for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps/"><u>[Updated] 2024 Approved Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-study-partners-in-history-top-10-youtubers-and-channels-for-2024/"><u>[Updated] Best Study Partners in History Top 10 Youtubers & Channels for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-crafting-video-narratives-with-chiseled-chapters-on-vimeo/"><u>[Updated] In 2024, Crafting Video Narratives with Chiseled Chapters on Vimeo</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-shorts-profitability-secrets/"><u>[Updated] Youtube Shorts Profitability Secrets</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1726029612033-shotcut/"><u>動画切り取り入門：Shotcutでのカットと分割方法</u></a></li>
-<li><a href="https://fox-http.techidaily.com/demystifying-toolwizs-tools-for-modern-photo-editors-for-2024/"><u>Demystifying Toolwiz's Tools for Modern Photo Editors for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/prodigy-machines-top-quality-computers-available/"><u>Prodigy Machines Top-Quality Computers Available</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/seamless-avchd-viewing-tips-enhancing-your-iphone-experience/"><u>Seamless AVCHD Viewing Tips: Enhancing Your iPhone Experience</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-in-pursuit-of-dreamscapes-vr-travel-unleashed/"><u>[New] 2024 Approved In Pursuit of Dreamscapes VR Travel Unleashed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-7-uncomplicated-steps-for-skyrocketing-subscribers/"><u>[Updated] 2024 Approved 7 Uncomplicated Steps for Skyrocketing Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-delving-into-the-world-of-asmr-soundscapes/"><u>[Updated] 2024 Approved Delving Into the World of ASMR Soundscapes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-all-in-youtube-shorts-guide/"><u>[Updated] 2024 Approved Discovering All in YouTube Shorts Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-thumbnail-imagery-fantasy-landscapes-and-effects-guide/"><u>[Updated] 2024 Approved Elevate Thumbnail Imagery Fantasy Landscapes & Effects Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elite-7-dslr-options-superior-for-professional-videography/"><u>[Updated] 2024 Approved Elite 7 DSLR Options Superior for Professional Videography</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-easy-to-use-online-editors-for-quick-postings/"><u>[Updated] Free, Easy-to-Use Online Editors for Quick Postings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-depth-assessment-photo-editing-tool-for-creatives/"><u>[Updated] In-Depth Assessment Photo Editing Tool for Creatives</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-y17s-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo Y17s Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-comprehensive-list-of-budget-friendly-online-editors/"><u>In 2024, Comprehensive List of Budget-Friendly Online Editors</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Motorola Edge 40 Neo? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-vivo-v30-lite-5g-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Vivo V30 Lite 5G</u></a></li>
+<li><a href="https://win11.techidaily.com/terminal-vs-powershell-pinpointing-the-distinguishing-aspects/"><u>Terminal Vs. PowerShell: Pinpointing the Distinguishing Aspects</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-save-money-make-movies-4-simple-ways-to-get-filmora-discount-codes-for-2024/"><u>Updated Save Money, Make Movies 4 Simple Ways to Get Filmora Discount Codes for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Illumination Strategies for Filming"
-date: 2024-09-15T16:21:18.193Z
-updated: 2024-09-18T16:56:51.275Z
+date: 2024-09-20T23:18:18.146Z
+updated: 2024-09-23T22:08:07.474Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -72,6 +86,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -83,6 +104,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -99,26 +127,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-best-sniping-software-for-mac-users/"><u>[New] In 2024, Best Sniping Software for Mac Users</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-spark-conversation-with-personalized-instagram-story-queries-for-2024/"><u>[New] Spark Conversation with Personalized Instagram Story Queries for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-explore-and-evaluate-top-7-free-android-adblockers-unveiled/"><u>[Updated] 2024 Approved Explore & Evaluate Top 7 Free Android AdBlockers Unveiled</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-exploring-the-world-of-animated-lenses-in-snapchat/"><u>[Updated] 2024 Approved Exploring the World of Animated Lenses in Snapchat</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-content-curation-steps-towards-a-well-organized-watch-later-playlist-for-2024/"><u>[Updated] Efficient Content Curation Steps Towards a Well-Organized 'Watch Later' Playlist for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-video-cutting-techniques-to-boost-your-content-for-2024/"><u>[Updated] Efficient Video Cutting Techniques to Boost Your Content for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-5-headsets-a-youtube-gamers-guide/"><u>[Updated] In 2024, Best 5 Headsets A YouTube Gamer's Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elite-gamers-capturing-solutions/"><u>[Updated] In 2024, Elite Gamers' Capturing Solutions</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-guide-for-transforming-fragments-into-lasting-memories-for-2024/"><u>[Updated] The Ultimate Guide for Transforming Fragments Into Lasting Memories for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-video-setup-made-simple-your-step-by-step-logitech-guide/"><u>[Updated] Video Setup Made Simple Your Step-by-Step Logitech Guide</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-virtual-victory-channel-over-a-hundred-heroes-rise/"><u>2024 Approved Virtual Victory Channel Over a Hundred Heroes Rise</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-where-to-stream-what-to-watch-twitchs-challenge-to-youtube/"><u>2024 Approved Where To Stream, What to Watch? Twitch's Challenge to YouTube</u></a></li>
-<li><a href="https://some-tips.techidaily.com/boost-your-sites-analytics-capabilities-using-cookiebot-technology/"><u>Boost Your Site's Analytics Capabilities Using Cookiebot Technology</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-transform-your-canon-footage-a-comprehensive-guide-to-video-editing-for-2024/"><u>New Transform Your Canon Footage A Comprehensive Guide to Video Editing for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-comprehensive-techniques-for-moving-media-from-iphones/"><u>[Updated] Comprehensive Techniques for Moving Media From iPhones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-video-branding-the-art-and-science-of-youtube-image-designs-for-2024/"><u>[Updated] Elevating Video Branding The Art and Science of Youtube Image Designs for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-exploring-legal-restrictions-for-broadcasting-content-online/"><u>[Updated] Exploring Legal Restrictions for Broadcasting Content Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-get-the-facts-about-youtube-keyword-research/"><u>[Updated] Get the Facts About YouTube Keyword Research</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essential-manual-to-creating-youtube-playlists/"><u>[Updated] The Essential Manual to Creating YouTube Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-11-strategies-for-boosting-your-youtube-videos-seo/"><u>[Updated] Top 11 Strategies for Boosting Your YouTube Videos' SEO</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-most-recent-version-of-your-hp-laserjet-p1007-driver-start-with-these-tips/"><u>Get the Most Recent Version of Your HP LaserJet P1007 Driver - Start with These Tips</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-address-frequent-usb-connection-drops-and-keep-your-device-hooked-up/"><u>How to Address Frequent USB Connection Drops and Keep Your Device Hooked Up</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-reno-8t-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Reno 8T 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonic-vibes-3d-earpiece-assessment/"><u>Sonic Vibes 3D Earpiece Assessment</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-solutions-for-playing-origin-games-on-the-latest-windows-operating-systems/"><u>Step-by-Step Solutions for Playing Origin Games on the Latest Windows Operating Systems</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

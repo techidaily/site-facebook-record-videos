@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cultivating Confidence for Captivating Your YouTube Audience\""
-date: 2024-09-12T16:18:57.876Z
-updated: 2024-09-18T17:49:12.471Z
+date: 2024-09-20T06:37:59.719Z
+updated: 2024-09-23T20:37:53.716Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -57,13 +64,6 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -85,13 +85,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -101,6 +94,13 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -136,13 +136,20 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -160,16 +167,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-your-viewing-experience-onboarding-av1-in-youtube-for-2024/"><u>[Updated] Ace Your Viewing Experience Onboarding AV1 in YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-automate-playlist-retrieval-from-youtube-directly-for-2024/"><u>[Updated] Automate Playlist Retrieval From YouTube Directly for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-bringing-your-video-games-to-life-customizable-channel-headers-for-2024/"><u>[Updated] Bringing Your Video Games to Life Customizable Channel Headers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-8-tools-linux-based-edits-software-for-2024/"><u>[Updated] Essential 8 Tools Linux-Based Edits Software for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-viral-videos-on-youtube-a-strategic-plan/"><u>[Updated] In 2024, Crafting Viral Videos on YouTube A Strategic Plan</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-expert-insights-where-to-invest-in-youtube-creator-revenue/"><u>2024 Approved Expert Insights Where to Invest in YouTube Creator Revenue</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-uploading-to-tiktok-made-simple-insights-for-chromeandroidios/"><u>2024 Approved Uploading to TikTok Made Simple Insights for Chrome/Android/iOS</u></a></li>
-<li><a href="https://win-dash.techidaily.com/get-your-hands-on-the-updated-rio-pro-driver-game-for-pc-windows-11-81-and-7/"><u>Get Your Hands on the Updated Rio Pro Driver Game for PC (Windows 11, 8.1 & 7)</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-vivo-v27-pro-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Vivo V27 Pro Without PUK Codes</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-social-synergy-blueprint-for-ig-and-tiktok-pairing/"><u>In 2024, Social Synergy Blueprint for IG & TikTok Pairing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-oppo-a78-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Oppo A78 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-elite-android-3d-entertainment-hub/"><u>[New] 2024 Approved Elite Android 3D Entertainment Hub</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-the-complete-guide-to-soundtracking-vimeo-content/"><u>[New] 2024 Approved The Complete Guide to Soundtracking Vimeo Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-2023s-best-fb-link-exporters-available-for-free-online/"><u>[Updated] 2024 Approved 2023'S Best FB Link Exporters - Available for FREE Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivating-yt-cover-art-for-maximum-traffic/"><u>[Updated] 2024 Approved Captivating YT Cover Art for Maximum Traffic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-achieving-youtube-live-prominence-with-pro-level-tips-for-2024/"><u>[Updated] Achieving YouTube Live Prominence with Pro-Level Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-easily-disableremove-youtube-shorts-permanently-in-2024/"><u>[Updated] How to Easily Disable/Remove YouTube Shorts Permanently, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cutting-edge-pc-techniques-for-stellar-youtube-video-production/"><u>[Updated] In 2024, Cutting-Edge PC Techniques for Stellar YouTube Video Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-download-youtube-images-with-ease-online/"><u>[Updated] In 2024, Download YouTube Images with Ease Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-engagement-learn-to-dim-youtube-video-backgrounds/"><u>[Updated] In 2024, Enhance Engagement Learn to Dim YouTube Video Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expertly-crafted-video-making-software-iphone-android/"><u>[Updated] In 2024, Expertly Crafted Video-Making Software (iPhone, Android)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mp4-pc/"><u>初心者が始めるMP4ビデオファイル作成 - PCを使って覚える方法</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/effortless-dvd-to-mp4-avi-and-more-with-winx-dvd-convertisseur-gratuit-ideal-for-iphone-and-android/"><u>Effortless DVD-to-MP4, AVI & More with WinX DVD Convertisseur Gratuit - Ideal for iPhone and Android</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-elgoogs-reflection-a-detailed-analysis-of-the-unrivaled-mirror-site/"><u>Exploring ElgooG's Reflection: A Detailed Analysis of the Unrivaled Mirror Site</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/fcp-audio-editing-101-a-beginners-guide-to-better-sound-for-2024/"><u>FCP Audio Editing 101 A Beginners Guide to Better Sound for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-xiaomi-redmi-12-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Xiaomi Redmi 12</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-compact-guide-to-transforming-vocal-identity-quickly-in-pubg/"><u>In 2024, The Compact Guide to Transforming Vocal Identity Quickly in PUBG</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/kid-and-parent-approved-your-guide-to-understanding-the-maisto-rock-crawler-rc-car/"><u>Kid & Parent Approved? Your Guide to Understanding the Maisto Rock Crawler RC Car</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/triple-tactic-tracker-how-to-scrutinize-your-subscriber-earnings-on-googles-platform-youtube/"><u>Triple Tactic Tracker How to Scrutinize Your Subscriber Earnings on Google's Platform, YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile-for-2024/"><u>YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile) for 2024</u></a></li>
 </ul></div>
 

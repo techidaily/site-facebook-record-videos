@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Understanding YouTube's User Interaction Options"
-date: 2024-09-14T16:17:31.525Z
-updated: 2024-09-18T17:48:30.138Z
+date: 2024-09-22T04:36:48.771Z
+updated: 2024-09-24T04:46:17.135Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -110,7 +117,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -127,6 +148,13 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -157,21 +185,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-videos.techidaily.com/updated-click-and-groove-an-insiders-guide-to-making-tiktok-dance-videos-for-mac/"><u>[Updated] Click and Groove An Insider's Guide to Making TikTok Dance Videos for Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-watch-list-to-download-youtube-playlist-in-minutes/"><u>[Updated] From Watch List to Download YouTube Playlist in Minutes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-narrowing-down-the-video-platform-wars-youtube-shorts-against-tiktok/"><u>[Updated] Narrowing Down the Video Platform Wars YouTube Shorts Against TikTok</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-quickcut-youtube-artist/"><u>[Updated] QuickCut YouTube Artist</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-the-top-8-multiparty-android-conferencing-apps-for-2024/"><u>[Updated] The Top 8 Multiparty Android Conferencing Apps for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtube-melodies-safe-free-extraction-methods/"><u>[Updated] Unlocking YouTube Melodies Safe, Free Extraction Methods</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-tunes-prime-sites-for-got-ringtone-downloads/"><u>2024 Approved Top Tunes Prime Sites for GoT Ringtone Downloads</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/efficient-spotify-listening-safe-speed-adjustment-for-2024/"><u>Efficient Spotify Listening Safe Speed Adjustment for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod-phones-for-2024/"><u>[Updated] Best Camera Apps to Shoot and Record Videos on iPhone and Andriod Phones for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-12-premium-cameras-for-professional-vloggers-for-2024/"><u>[Updated] Exploring 12 Premium Cameras for Professional Vloggers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-strong-with-these-trendy-15-video-intros/"><u>[Updated] Starting Strong with These Trendy 15 Video Intros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-ideas-into-viral-video-hits-on-youtube/"><u>[Updated] Transforming Ideas Into Viral Video Hits on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-worldwide-rich-list-top-earning-youtubers/"><u>[Updated] Worldwide Rich List Top Earning YouTubers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-peaceful-playback-practices-for-pcos-users/"><u>2024 Approved Peaceful Playback Practices for PC/OS Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-realme-narzo-60-5g-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Realme Narzo 60 5G Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/gift-sending-restrictions-apple-device-owners-need-to-know-these-5-facts/"><u>Gift-Sending Restrictions: Apple Device Owners Need to Know These 5 Facts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-honor-magic-6-screen-sharing-drfone-by-drfone-android/"><u>How To Do Honor Magic 6 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-samsung-galaxy-s23-ultra-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Samsung Galaxy S23 Ultra to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-motorola-edge-2023-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Motorola Edge 2023 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/proven-strategies-for-creating-superb-igtv-videos-on-smartphonesdlsrs/"><u>Proven Strategies for Creating Superb IGTV Videos on Smartphones/DLSRs</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/1720600270207-windowsstellar-data-recovery/"><u>Windows用無料のStellar Data Recoveryソフトでデータを安全に復元</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-role-in-todays-dynamic-educational-landscape-for-2024/"><u>YouTube's Role in Today's Dynamic Educational Landscape for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

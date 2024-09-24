@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2024-09-16T17:01:15.942Z
-updated: 2024-09-18T16:37:48.954Z
+date: 2024-09-20T21:25:26.398Z
+updated: 2024-09-24T00:25:45.525Z
 tags:
   - ai video
   - ai youtube
@@ -69,9 +69,23 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -93,6 +107,13 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -104,13 +125,6 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -132,18 +146,18 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -162,19 +176,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-converting-youtube-to-gif-a-comprehensive-online-process/"><u>[New] Converting YouTube to GIF A Comprehensive Online Process</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-how-to-download-gif-images-from-twitter/"><u>[New] In 2024, How to Download GIF Images From Twitter</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-master-your-audience-smooth-screen-sharing-on-social-livestreams-for-2024/"><u>[New] Master Your Audience Smooth Screen Sharing on Social Livestreams for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-driving-income-through-youtube-shorts-crucial-elements-and-earnings-potential/"><u>[Updated] 2024 Approved Driving Income Through YouTube Shorts Crucial Elements and Earnings Potential</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-assembling-a-spectacular-screenplay-cut-out/"><u>[Updated] Assembling a Spectacular Screenplay Cut-Out</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-discover-9-affordable-online-editors-for-youtube-for-2024/"><u>[Updated] Discover 9 Affordable Online Editors for YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-youtube-presence-with-strategic-banners-for-2024/"><u>[Updated] Enhancing YouTube Presence with Strategic Banners for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-instagram-live-maintaining-privacy-while-streaming/"><u>[Updated] Instagram Live Maintaining Privacy While Streaming</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-your-youtube-earnings-with-smart-tactics/"><u>[Updated] Maximizing Your YouTube Earnings with Smart Tactics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-vr-wave-crafting-engaging-360-video-narratives-for-youtube-audiences/"><u>[Updated] The VR Wave Crafting Engaging 360 Video Narratives for YouTube Audiences</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thumbnails-unleashed-elevate-your-video-presence/"><u>[Updated] Thumbnails Unleashed Elevate Your Video Presence</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/determining-best-free-screen-recorder/"><u>Determining Best Free Screen Recorder</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-handle-runtime-errors-when-malwarebytes-cant-call-proc/"><u>How to Handle Runtime Errors when Malwarebytes Can't Call Proc</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-unbeatable-method-for-permanent-bio-link-integration-in-tiktok/"><u>In 2024, Unbeatable Method for Permanent Bio-Link Integration in TikTok</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-youtubes-everlasting-titles-with-millions-of-viewers/"><u>[New] 2024 Approved YouTube's Everlasting Titles with Millions of Viewers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-converting-zip-files-into-srt-subtitle-format-quickly/"><u>[New] Converting ZIP Files Into SRT Subtitle Format Quickly</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mp3-recording-guide-exclusive-to-free-skype-calls/"><u>[New] In 2024, MP3 Recording Guide Exclusive to Free Skype Calls</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-montages-made-easy-androidios-apps-for-creative-minds/"><u>[New] Top Montages Made Easy Android/iOS Apps for Creative Minds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-autoplay-youtube-on-phones-without-interruption/"><u>[Updated] 2024 Approved Autoplay YouTube on Phones without Interruption</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-the-art-of-advertising-earning-navigating-vimeos-revenue-landscape/"><u>[Updated] 2024 Approved The Art of Advertising Earning Navigating Vimeo's Revenue Landscape</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dslrs-rivalry-with-mirrorless-for-video-artistry-for-2024/"><u>[Updated] DSLR's Rivalry with Mirrorless for Video Artistry for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-video-credits-pro-the-best-suggestions-1-6/"><u>[Updated] Free Video Credits Pro - The Best Suggestions #1-6</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-secure-youtube-channels-audible-content/"><u>[Updated] How to Secure YouTube Channels' Audible Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-immutable-disabling-routine-for-youtubes-quick-content/"><u>[Updated] Immutable Disabling Routine for YouTube’s Quick Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dial-up-your-digital-presence-tips-for-confident-video-creators/"><u>[Updated] In 2024, Dial Up Your Digital Presence Tips for Confident Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-filming-flair-with-free-green-screen-insights-from-4-youtube-authorities/"><u>[Updated] In 2024, Elevate Your Filming Flair with Free Green Screen Insights From 4 YouTube Authorities</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-link-building-strategies/"><u>[Updated] Mastering YouTube Link-Building Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sourav-joshis-blueprint-for-youtube-2024-income/"><u>[Updated] Sourav Joshi's Blueprint for YouTube 2024 Income</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-guide-to-download-and-update-creative-camera-software-for-windows-systems/"><u>Easy Guide to Download & Update Creative Camera Software for Windows Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-itel-p55-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Itel P55 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/ultimate-speed-loading-windows-photo-displayer-for-2024/"><u>Ultimate Speed-Loading Windows Photo Displayer for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-honor-magic5-ultimate-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Honor Magic5 Ultimate? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

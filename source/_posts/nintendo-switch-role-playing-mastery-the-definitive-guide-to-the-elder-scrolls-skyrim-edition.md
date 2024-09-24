@@ -1,7 +1,7 @@
 ---
 title: "Nintendo Switch Role-Playing Mastery: The Definitive Guide to The Elder Scrolls Skyrim Edition"
-date: 2024-09-13T17:44:34.153Z
-updated: 2024-09-18T17:26:52.990Z
+date: 2024-09-22T07:08:18.152Z
+updated: 2024-09-23T22:08:02.895Z
 categories:
   - BestProducts
 description: "This Article Describes Nintendo Switch Role-Playing Mastery: The Definitive Guide to The Elder Scrolls Skyrim Edition"
@@ -90,6 +90,13 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Gameplay: Not as smooth as on other platforms**
 
  The first real interactive thing you do with the game is to create your character, and true to other Elder Scrolls games, you can change your character’s appearance in the most minute way. Pick your race, gender, hairstyle, eye color, and even tweak the height of your cheekbones and brows if you want. This is the first sign of just how encompassing and involved the role-playing aspects of Skyrim are.
@@ -109,24 +116,24 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -140,14 +147,14 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: A tad expensive**
 
@@ -156,6 +163,13 @@ Lifewire / Kelsey Simon
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
 
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other action RPGs**
 
@@ -167,18 +181,18 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,18 +216,20 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-your-online-identity-with-customized-youtube-urls/"><u>[Updated] 2024 Approved Craft Your Online Identity with Customized YouTube URLs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-expanding-your-reach-a-complete-guide-to-popularizing-youtube-shorts-for-2024/"><u>[Updated] Expanding Your Reach A Complete Guide to Popularizing YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-finest-wedding-cinematography-youtube-and-vimeos-selection-for-2024/"><u>[Updated] Exploring the Finest Wedding Cinematography - Youtube & Vimeo's Selection for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-flip-the-script-unique-approaches-to-retracing-yt-content/"><u>[Updated] Flip the Script Unique Approaches to Retracing YT Content</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-prime-old-school-techniques-elevating-edits/"><u>[Updated] Prime Old-School Techniques Elevating Edits</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-youtubes-user-interaction-options/"><u>[Updated] Understanding YouTube's User Interaction Options</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-deep-dive-into-the-performance-and-endurance-of-ankers-high-lumen-tactical-led-flashlight-review/"><u>A Deep Dive Into the Performance and Endurance of Anker's High-Lumen Tactical LED Flashlight Review</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/disabling-iphone-13-mini-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling iPhone 13 mini Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-oneplus-open-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on OnePlus Open</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/refurbished-apple-iphone-6s-plus-everything-you-need-to-know-drfone-by-drfone-transfer-from-ios/"><u>Refurbished Apple iPhone 6s Plus Everything You Need to Know | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-meizu-21-pro-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Meizu 21 Pro Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-ascend-video-rankings-top-seo-gadgets-revealed/"><u>[New] 2024 Approved Ascend Video Rankings – Top SEO Gadgets Revealed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-launch-your-clips-free-intro-downloads/"><u>[New] Launch Your Clips Free Intro Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beginners-guide-to-pro-youtube-tech/"><u>[Updated] 2024 Approved Beginner's Guide to Pro YouTube Tech</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dominating-viewers-spaces-channel-empire-rules/"><u>[Updated] 2024 Approved Dominating Viewers' Spaces Channel Empire Rules</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-guide-to-youtube-audio-editing-for-2024/"><u>[Updated] Cutting-Edge Guide to YouTube Audio Editing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-hd-benefits-turn-on-av1-in-youtube-settings-for-2024/"><u>[Updated] Exclusive HD Benefits Turn On AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-google-collage-made-fast-and-easy-essential-tips-unveiled/"><u>[Updated] Google Collage Made Fast & Easy - Essential Tips Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-the-complexities-of-youtube-copyright-claims/"><u>[Updated] Navigating the Complexities of YouTube Copyright Claims</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-converting-youtubes-into-vivid-gifs-no-save/"><u>[Updated] The Ultimate Guide to Converting YouTubes Into Vivid GIFs (No Save)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-images-without-spending-a-dime-quick-tips-here/"><u>[Updated] YouTube Images Without Spending a Dime – Quick Tips Here</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-listing-of-best-5-sd-cards-for-gopro-hero-cameras/"><u>2024 Approved Exclusive Listing of Best 5 SD Cards for GoPro HERO Cameras</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-perfecting-obs-output-common-fixes-explored/"><u>2024 Approved Perfecting OBS Output Common Fixes Explored</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-new-year-new-animations-the-10-best-2d-animation-software/"><u>In 2024, New Year, New Animations The 10 Best 2D Animation Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-ultimate-guide-to-sending-animated-gifs-on-snapchat/"><u>In 2024, The Ultimate Guide to Sending Animated Gifs on Snapchat</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transform-your-older-videos-upgrade-from-standard-definition-43-to-modern-hd-169/"><u>Transform Your Older Videos: Upgrade From Standard Definition 4:3 to Modern HD 16:9</u></a></li>
 </ul></div>
 

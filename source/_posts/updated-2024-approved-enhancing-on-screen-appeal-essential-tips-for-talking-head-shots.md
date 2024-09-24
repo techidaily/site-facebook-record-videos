@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing On-Screen Appeal  Essential Tips for Talking-Head Shots\""
-date: 2024-09-17T17:14:30.218Z
-updated: 2024-09-18T16:46:13.811Z
+date: 2024-09-19T06:44:25.490Z
+updated: 2024-09-24T00:02:44.567Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -68,10 +75,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -81,6 +88,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -104,14 +118,14 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -128,17 +142,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-integrating-masks-and-filters-to-improve-google-meet-engagement-for-2024/"><u>[New] Integrating Masks and Filters to Improve Google Meet Engagement for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-born-to-create-video-magic-mac-basics-for-beginners-on-youtube/"><u>[Updated] 2024 Approved Born to Create Video Magic Mac Basics for Beginners on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-one-youtube-showcase-mastering-media-merging/"><u>[Updated] One Youtube Showcase Mastering Media Merging</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-polling-puzzle-platforms-leading-politic-simulations/"><u>[Updated] Polling Puzzle Platforms Leading Politic Simulations</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-yt-previews-making-a-lasting-first-impression/"><u>[Updated] The Art of YT Previews Making a Lasting First Impression</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-premium-line-up-top-5-slow-motion-models/"><u>2024 Approved Premium Line-Up Top 5 Slow Motion Models</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/exhilarating-circuit-trials-selecting-the-top-5-titles-for-2024/"><u>Exhilarating Circuit Trials Selecting the Top 5 Titles for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Motorola Edge 40 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-y27-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo Y27 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/movavis-free-web-service-effortless-gsm-to-mp4-file-transformation-online/"><u>Movavi's Free Web Service: Effortless GSM to MP4 File Transformation Online</u></a></li>
-<li><a href="https://win-able.techidaily.com/stop-battlefield-5-from-freezing-fixes-that-work/"><u>Stop Battlefield 5 From Freezing: Fixes That Work</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-oppo-a1x-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Oppo A1x 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-excellent-online-destinations-for-budget-friendly-vectr-creations/"><u>[Updated] Excellent Online Destinations for Budget-Friendly Vectr Creations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-master-your-video-transforming-youtube-to-avi/"><u>[Updated] Master Your Video Transforming YouTube to AVI</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximize-content-impact-with-youtubes-movie-maker-tools/"><u>[Updated] Maximize Content Impact with YouTube's Movie Maker Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sparking-interest-with-the-top-8-most-effective-youtube-thumbnails/"><u>[Updated] Sparking Interest with the Top 8 Most Effective YouTube Thumbnails</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-filmmakers-edge-mastering-kinemasters-zoom-functionality-for-2024/"><u>[Updated] The Filmmaker's Edge Mastering Kinemaster's Zoom Functionality for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/creating-a-unified-pdf-from-multiple-jpg-photos-tips-and-techniques/"><u>Creating a Unified PDF From Multiple JPG Photos: Tips and Techniques</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-install-guide-for-brother-l2540dw-printer-on-windows-driver-download-included/"><u>Easy Install Guide for Brother L2540DW Printer on Windows - Driver Download Included</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/easy-steps-to-preflight-check-your-sites-pages-before-posting/"><u>Easy Steps to Preflight Check Your Site's Pages Before Posting</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-y100-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo Y100</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/infusing-interactive-elements-incorrante-youtube-music-into-videography-for-2024/"><u>Infusing Interactive Elements Incorrante YouTube Music Into Videography for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-lenovo-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Lenovo Device</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-huawei-nova-y71-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Huawei Nova Y71 for Parents | Dr.fone</u></a></li>
 </ul></div>
 

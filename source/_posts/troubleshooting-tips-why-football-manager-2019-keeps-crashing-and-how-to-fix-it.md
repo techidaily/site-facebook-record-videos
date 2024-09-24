@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It"
-date: 2024-09-17T17:05:13.867Z
-updated: 2024-09-18T17:02:05.085Z
+date: 2024-09-17T23:46:08.607Z
+updated: 2024-09-24T06:25:38.679Z
 tags:
   - win11
   - win10
@@ -42,6 +42,13 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-1-8.jpg)
 3. Click the**Update** button next to the flagged graphics card driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-2-9.jpg)
 
@@ -49,6 +56,13 @@ Football Manager 2021 is by far one of the most popular management simulator gam
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  The driver update should resolve the crashing issue and also boost the game’s performance. If not, try the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2 – Verify the integrity of game files
 
@@ -64,6 +78,19 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
  Wait until the process finishes and relaunch FM 21 to test. If your issue persists, take a look at more fixes below.
 
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 3 – Temporarily disable your antivirus
 
  Antivirus is known to interfere with Football Manager 2021 and your Steam or Epic game launcher. To see if that’s the case, you could disable the antivirus programs first. In case you don’t know how, below are some links for your reference.
@@ -76,13 +103,6 @@ Football Manager 2021 is by far one of the most popular management simulator gam
  Once you confirmed the antivirus is the culprit of Football Manager 2021 crashing, you need to add both the game launcher and FM 21 to its exceptions, or completely uninstall the program.
 
 If this method doesn’t help, go ahead with the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4 – Delete the Preferences and Caches folder
 
@@ -99,10 +119,16 @@ If this method doesn’t help, go ahead with the next fix below.
 So does the crash go away now? If not, there is the last fix to try.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 5 – Set launch options
@@ -117,14 +143,15 @@ So does the crash go away now? If not, there is the last fix to try.
 3. Click**Set Launch Options** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-1-3.jpg)
 4. Type**–config very\_low** in the text field and click**OK** .  
-![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-2-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-2-4.jpg)
 
  Such setting may render FM 2021 in lower performance, but it will mitigate the crashing effectively.
 
@@ -153,15 +180,24 @@ So does the crash go away now? If not, there is the last fix to try.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-watchability-adding-time-stamps-to-youtube-videos-for-2024/"><u>[Updated] Enhancing Watchability Adding Time Stamps to YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-highlighting-the-top-video-creation-apps-iphone-android/"><u>[Updated] Highlighting the Top Video Creation Apps (iPhone, Android)</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-step-by-step-guide-to-using-youtubes-creative-commons-license/"><u>[Updated] In 2024, A Step-by-Step Guide to Using YouTube's Creative Commons License</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-presence-the-best-5-practices-for-max-viewers/"><u>[Updated] In 2024, Elevate Your Presence The Best 5 Practices for Max Viewers</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-oppo-reno-8t-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Oppo Reno 8T 5G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Realme GT 3? | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/iphones-simple-methods-for-effective-screening/"><u>IPhone's Simple Methods for Effective Screening</u></a></li>
-<li><a href="https://win11.techidaily.com/optimize-your-powershell-experience-execution-policies-demystified/"><u>Optimize Your PowerShell Experience: Execution Policies Demystified</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/spk10-037-kicking-up-the-volume-with-bright-and-adaptable-studio-lights/"><u>SPK10-037 Kicking Up the Volume with Bright & Adaptable Studio Lights</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-guide-resolving-dll-file-not-found-issues/"><u>Troubleshooting Guide: Resolving 'DLL File Not Found' Issues</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-instantaneous-infiltration-of-lost-reddit-threads/"><u>[New] Instantaneous Infiltration of Lost Reddit Threads</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-simplified-guide-for-ios-users-transforming-images-to-pdfs/"><u>[New] Simplified Guide for iOS Users Transforming Images to PDFs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-experts-guide-to-finding-cheap-sbd-solutions/"><u>[Updated] 2024 Approved Expert's Guide to Finding Cheap SBD Solutions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-supreme-choices-for-inexpensive-film-assets/"><u>[Updated] 2024 Approved Supreme Choices for Inexpensive Film Assets</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-effortlessly-link-zoom-events-across-ios-android-and-desktops-for-2024/"><u>[Updated] Effortlessly Link Zoom Events Across iOS, Android, and Desktops for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-tips-for-producing-engaging-educational-content-for-youtube-for-2024/"><u>[Updated] Essential Tips for Producing Engaging Educational Content for YouTube for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-action-cam-showdown-2022-hero5-black-vs-ultra-30-streaming/"><u>[Updated] In 2024, Action Cam Showdown 2022 Hero5 Black Vs. Ultra 30 Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-direct-link-between-spotify-and-youtube-the-top-tools-for-music-sharing/"><u>[Updated] In 2024, Direct Link Between Spotify and YouTube The Top Tools for Music Sharing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-safe-techniques-for-extracting-and-converting-youtube-audio-into-mp3/"><u>[Updated] Safe Techniques for Extracting and Converting YouTube Audio Into MP3</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-checklist-for-confirming-yt-account/"><u>[Updated] The Ultimate Checklist for Confirming YT Account</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-28-youtube-music-splitters-for-easy-audio-extraction/"><u>[Updated] Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-iconic-counter-based-awards-system/"><u>[Updated] YouTube's Iconic Counter-Based Awards System</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-10-recruiting-gems-amp-up-engagement/"><u>2024 Approved Top 10 Recruiting Gems Amp Up Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/a-step-by-step-approach-to-cultivating-emotional-intelligence-with-chatgpt/"><u>A Step-by-Step Approach to Cultivating Emotional Intelligence with ChatGPT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/eliminate-stutter-in-v-optimize-your-pc-setup-for-fluid-gaming-experience/"><u>Eliminate Stutter in 'V': Optimize Your PC Setup for Fluid Gaming Experience</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-honor-magic-6-pro-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Honor Magic 6 Pro for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-elite-workstations-cutting-edge-desktops-unleashed/"><u>In 2024, Elite Workstations Cutting-Edge Desktops Unleashed</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-s6700-bdp-updates-explored/"><u>In 2024, S6700 BDP Updates Explored</u></a></li>
+<li><a href="https://games-able.techidaily.com/integrating-ps-remotes-into-switch-gameplay-successfully/"><u>Integrating PS Remotes Into Switch Gameplay Successfully</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Fix 'You Don't Have Permissions to Play Fortnite' Error
-date: 2024-09-11T17:13:47.452Z
-updated: 2024-09-18T17:54:04.807Z
+date: 2024-09-21T07:27:50.102Z
+updated: 2024-09-24T01:49:20.028Z
 tags:
   - win11
   - win10
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
  Run Fortnite again to check if you can log into the game or not. If it not, or there was no new game patch available, move on to Fix 2, below.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 2: Reboot your network
 
  By rebooting your network, your Internet connection speed may be back to normal. So maybe it will also resolve this issue. Here is how to do it:  
@@ -57,7 +64,23 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 1. **Unplug** your modem (and your wireless router, if it’s a separate device) from power for **60 seconds** .  
 ![modem](https://images.drivereasy.com/wp-content/uploads/2018/10/modem.jpg)  
 ![wireless router](https://images.drivereasy.com/wp-content/uploads/2018/10/wireless-router.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. **Plug in** your network devices again and wait until the indicator lights are back to its normal state.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3. Try launching Fortnite again.
 
 See if you can log in or not. if not, try the next fix, below.
@@ -80,13 +103,6 @@ See if you can log in or not. if not, try the next fix, below.
 ![Fix 5 step 1](https://images.drivereasy.com/wp-content/uploads/2018/09/Fix-5-step-1.jpg)
 2. In Command Prompt, type**netsh winsock reset**  and press **Enter** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![netsh winsock reset](https://images.drivereasy.com/wp-content/uploads/2018/10/netsh-winsock-reset.jpg)
 3. **Restart** your PC to complete the reset.
 
@@ -103,30 +119,29 @@ See if you can log in or not. if not, try the next fix, below.
 2. Type the command line**ipconfig /flushdns**  and press **Enter**  on your keyboard.  
 ![ipconfig flushdns](https://images.drivereasy.com/wp-content/uploads/2018/10/ipconfig-flushdns.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### To renew your IP
 
 1. On your keyboard, press**the Windows Logo Key** and **R** at the same time to open the Run dialog. Type **cmd**  and then press **Ctrl** , **Shift**  and **Enter**  on your keyboard at the same time to **run the Command Prompt as administrator** . You will be prompted for permission. Click **Yes** to run the **Command Prompt** .  
 ![Fix 5 step 1](https://images.drivereasy.com/wp-content/uploads/2018/10/Fix-5-step-1.jpg)
 2. Type the command line**ipconfig /release**  and press **Enter**  on your keyboard.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![ipconfig release](https://images.drivereasy.com/wp-content/uploads/2018/10/ipconfig-release.jpg)
 3. Type the command line**ipconfig /renew**  and press **Enter**  on your keyboard.  
 ![ipconfig renew](https://images.drivereasy.com/wp-content/uploads/2018/10/ipconfig-renew.jpg)
 4. Launch Fortnite.
+
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  See if you can log in or not. If this issue persists, try updating your network driver to the latest version.
 
@@ -150,6 +165,13 @@ See if you can log in or not. if not, try the next fix, below.
 2. Run Driver Easy and click the**Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Driver-Easy-Scan-screen.png)
 3. Click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. You need the Pro version of Driver Easy to do this, so you’ll be prompted to upgrade.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Don’t worry; it comes with a 30-day money-back guarantee, so if you don’t like it you can get a full refund, no questions asked.  
 
@@ -176,16 +198,24 @@ See if you can log in or not. if not, try the next fix, below.
 2. Navigate to the **Connections** tab. Select **Never dial a connection** if you see it (somewhere below **Choose Settings if you need…** ). Then click on **LAN settings** .  
 ![internet properties](https://images.drivereasy.com/wp-content/uploads/2018/10/internet-properties.jpg)
 3. **Uncheck** the box next to **Use a proxy server for your LAN** . If it is already unchecked, **check** the box next to **Automatically detect settings** . Then click **OK** .  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![LAN Settings](https://images.drivereasy.com/wp-content/uploads/2018/10/LAN-Settings.jpg)
 4. If you’re using a VPN or a third-party proxy sever,**disable** it.
 
  Launch Fortnite to see if you can log in or not. If not, try the next fix to change the DNS server.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 9: Change the DNS server
@@ -209,10 +239,10 @@ See if you can log in or not. if not, try the next fix, below.
 See if you can log in or not. If not, try the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 10: Close bandwidth hogging applications
@@ -248,18 +278,24 @@ Launch Fortnite to see if you can log in or not.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-key-steps-in-archiving-lol-gaming-history/"><u>[New] In 2024, Key Steps in Archiving LOL Gaming History</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-vector-art-basics-for-newcomers-diverse-forms-and-tools-for-2024/"><u>[New] Vector Art Basics for Newcomers, Diverse Forms and Tools for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivate-viewers-social-media-strategies-for-youtube/"><u>[Updated] 2024 Approved Captivate Viewers Social Media Strategies for YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-step-into-anti-time-original-techniques-to-rewind-yt-videos/"><u>[Updated] In 2024, A Step Into Anti-Time Original Techniques to Rewind YT Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-videos-that-vibe-a-novices-roadmap-on-a-mac-and-youtube/"><u>[Updated] Videos That Vibe A Novice's Roadmap on a Mac and YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-what-makes-youtube-and-dailymention-stand-out/"><u>[Updated] What Makes YouTube and DailyMention Stand Out?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/crafting-success-tips-from-ginger-islet-for-2024/"><u>Crafting Success Tips From Ginger Islet for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/directdraw-error-resolution-tips-for-optimal-performance/"><u>DirectDraw Error Resolution Tips for Optimal Performance</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-samsung-galaxy-f14-5g-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Samsung Galaxy F14 5G has native HEVC support?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/find-and-download-updated-canon-mx490-printer-drivers-compatible-with-windows-1087/"><u>Find & Download Updated Canon MX490 Printer Drivers Compatible with Windows 10/8/7</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/galaxy-f15-5g-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Galaxy F15 5G Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-vivo-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Vivo</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-poco-x5-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beginners-guide-to-pro-youtube-tech/"><u>[Updated] 2024 Approved Beginner's Guide to Pro YouTube Tech</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-discovering-the-latest-innovation-the-dell-p2715q-monitor/"><u>[Updated] 2024 Approved Discovering the Latest Innovation - The Dell P2715Q Monitor</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dominating-viewers-spaces-channel-empire-rules/"><u>[Updated] 2024 Approved Dominating Viewers' Spaces Channel Empire Rules</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevating-your-videography-youtube-enhancements-explained/"><u>[Updated] 2024 Approved Elevating Your Videography YouTube Enhancements Explained</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-cutting-edge-guide-to-youtube-audio-editing-for-2024/"><u>[Updated] Cutting-Edge Guide to YouTube Audio Editing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-hd-benefits-turn-on-av1-in-youtube-settings-for-2024/"><u>[Updated] Exclusive HD Benefits Turn On AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-out-youtubes-financial-strategy-for-nurturing-short-videos/"><u>[Updated] In 2024, Charting Out YouTube's Financial Strategy for Nurturing Short Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-the-complexities-of-youtube-copyright-claims/"><u>[Updated] Navigating the Complexities of YouTube Copyright Claims</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-converting-youtubes-into-vivid-gifs-no-save/"><u>[Updated] The Ultimate Guide to Converting YouTubes Into Vivid GIFs (No Save)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-images-without-spending-a-dime-quick-tips-here/"><u>[Updated] YouTube Images Without Spending a Dime – Quick Tips Here</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-infinix-hot-30i-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Infinix Hot 30i without App | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/pgmtiff-movavi/"><u>自由版移動網站：直接將PGM格式改為TIFF - Movavi提供解決方案</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/finding-the-best-meme-ideas-to-create-viral-content-for-2024/"><u>Finding the Best Meme Ideas to Create Viral Content for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/from-basic-to-brilliant-a-complete-hdr-portrait-guide-for-2024/"><u>From Basic to Brilliant A Complete HDR Portrait Guide for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/hablar-de-semana-en-espanol-descubrimiento-desde-lunes-al-domingo/"><u>Hablar De Semana en Español: Descubrimiento Desde Lunes Al Domingo</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-hevc-h-265-files-on-galaxy-s23-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How do you play HEVC/H.265 files on Galaxy S23?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-enhance-your-ig-visuals-with-three-effective-video-descriptions/"><u>In 2024, Enhance Your IG Visuals with Three Effective Video Descriptions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-navigating-the-route-to-social-stardom-a-quick-overview-of-6-key-steps-on-instagram/"><u>In 2024, Navigating the Route to Social Stardom A Quick Overview of 6 Key Steps on Instagram</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On OnePlus 11R | Dr.fone</u></a></li>
 </ul></div>
 

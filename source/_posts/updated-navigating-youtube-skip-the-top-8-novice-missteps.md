@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating YouTube  Skip the Top 8 Novice Missteps\""
-date: 2024-09-15T17:19:19.504Z
-updated: 2024-09-18T17:46:43.538Z
+date: 2024-09-17T16:53:34.847Z
+updated: 2024-09-23T18:48:50.502Z
 tags:
   - ai video
   - ai youtube
@@ -52,11 +52,25 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -66,13 +80,6 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -80,10 +87,10 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -91,6 +98,13 @@ Connecting with your audience shouldn’t just be limited to YouTube either. Use
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -101,13 +115,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,15 +131,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-the-insiders-guide-to-instagram-video-engagement-for-2024/"><u>[New] The Insider’s Guide to Instagram Video Engagement for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-breaking-the-internet-hashtag-wisdom-for-short-films/"><u>[Updated] In 2024, Breaking the Internet Hashtag Wisdom for Short Films</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-deciphering-youtubes-cost-per-mille-cpm-structure/"><u>[Updated] In 2024, Deciphering YouTube’s Cost Per Mille (CPM) Structure</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-playback-paradox-starting-at-the-finish-line-on-youtube/"><u>[Updated] The Playback Paradox Starting at the Finish Line on YouTube</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/meta/"><u>音楽および動画META情報取得・確認・編集方法とソフトウェアレビュー</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-exclusive-roundup-the-top-5-iphone-compatible-podcasts/"><u>In 2024, Exclusive Roundup The Top 5 iPhone-Compatible Podcasts</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solution-guide-resolve-missing-d3dxt9dll-file-issue/"><u>Solution Guide: Resolve 'Missing d3dxt9.dll' File Issue</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/step-by-step-guide-downloading-and-installing-razer-drivers-for-various-windows-versions/"><u>Step-by-Step Guide: Downloading and Installing Razer Drivers for Various Windows Versions</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/take-control-of-your-webinars-a-guide-to-zoom-screensharing/"><u>Take Control of Your Webinars A Guide to Zoom Screensharing</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/two-ways-to-track-my-boyfriends-apple-iphone-se-2022-without-him-knowing-drfone-by-drfone-virtual-ios/"><u>Two Ways to Track My Boyfriends Apple iPhone SE (2022) without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-boosting-traffic-elevating-your-pages-popularity-metric/"><u>[New] In 2024, Boosting Traffic Elevating Your Page's Popularity Metric</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>[Updated] 2024 Approved Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-views-mastering-hashtags-in-freefire-vids-for-2024/"><u>[Updated] Boosting Views Mastering Hashtags in FreeFire Vids for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dj-beats-unleashed-high-fidelity-templates-downloaded-easily/"><u>[Updated] In 2024, DJ Beats Unleashed High-Fidelity Templates Downloaded Easily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exclusive-deals-and-previews-from-creators/"><u>[Updated] In 2024, Exclusive Deals & Previews From Creators</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-tips-and-tricks-for-flawless-sims-4-recordings-for-2024/"><u>[Updated] Tips and Tricks for Flawless Sims 4 Recordings for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-vital-tips-to-preserve-lol-competitions/"><u>[Updated] Vital Tips to Preserve LOL Competitions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-top-performing-h265-video-encoder-utilizing-nvidia-gpus/"><u>1. Top-Performing H.265 Video Encoder Utilizing NVIDIA GPUs</u></a></li>
+<li><a href="https://win-able.techidaily.com/2024-league-of-legends-connectivity-glitch-patched-understanding-the-resolution/"><u>2024 League of Legends Connectivity Glitch Patched: Understanding the Resolution</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-troubleshooting-tips-for-overcoming-error-code-0x80004/"><u>Comprehensive Troubleshooting Tips for Overcoming Error Code 0X80004</u></a></li>
+<li><a href="https://techtrends.techidaily.com/pc-mastery-with-google-assistant-a-tutorial-for-smart-device-management/"><u>PC Mastery with Google Assistant: A Tutorial for Smart Device Management</u></a></li>
 </ul></div>
 
