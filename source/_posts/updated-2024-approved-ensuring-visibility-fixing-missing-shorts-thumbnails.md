@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Ensuring Visibility  Fixing Missing Shorts Thumbnails\""
-date: 2024-09-17T16:59:47.408Z
-updated: 2024-09-18T16:33:59.317Z
+date: 2024-10-04T12:50:47.675Z
+updated: 2024-10-06T00:51:12.489Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 [YouTuber on Reddit](https://www.reddit.com/r/youtube/comments/v51d93/youtube%5Fshorts%5Fthumbnails%5Fnot%5Fappearing%5Fcorrectly/)
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
@@ -111,23 +118,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### On a Mobile Phone
 
@@ -138,6 +131,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -150,6 +150,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -213,9 +220,29 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -479,13 +506,6 @@ Vibby allows you to not only share specific parts of videos from YouTube but oth
 
 ![create vib with YouTube videos](https://images.wondershare.com/filmora/article-images/create-vib-interface.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. When you reach the end of the part, click on Finish highlight. Repeat the process to highlight multiple parts of the video. All the highlighted parts will appear in a list on the right side of the screen.
 2. Add a description to each part and format it, you have the option to preview before hitting the Save vib button.
 3. Name the vib and assign a category and then publish it to Vibby or make it a private vib.
@@ -648,13 +668,6 @@ Linking to specific YouTube Timestamp Link is straightforward on both iPhone and
 
 Timestamping your YouTube videos may decrease the watch time, but it enhances the user experience, and they want to see more of your videos. Apart from this, adding Timestamps to your videos make your videos discoverable through Google search. YouTube and Google will reward you for the videos in form of a high search engine ranking.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Add YouTube Timestamp Link in YouTube Video Description
 
 Adding a YouTube Timestamp link in your video description is easy. Here are the steps to do so.
@@ -664,6 +677,13 @@ Adding a YouTube Timestamp link in your video description is easy. Here are the 
 3. You are redirected to the Video Details page. Here write 0:00 at the first part of the timecode, and then continue with the time of the key part of the video you want to add the Timestamp to in 2:40 format. You can add more Timestamp as well and then click on the Save button.
 
 ![add chapters to YouTube description](https://images.wondershare.com/filmora/article-images/add-chapter-youtube-description.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Reload the video page and you will see auto-generated Timestamp Links at the specific time you provided in the description.
 
@@ -706,6 +726,13 @@ In this fast-paced world where viewers have limited time at hand, YouTube Timest
 The Timestamps links allow you to put a link to a key moment in your YouTube video allowing the viewers and subscribers to view the video at the precise time specified. Your YouTube video maybe half an hour long or maybe your users do not have the time now or forget to later watch your video, but when you add Timestamp to the YouTube link, you provide them ways to get to the content quickly enhancing the user experience.
 
 In addition to this, you can even provide a reference in minutes and hours where necessary. The YouTube Timestamp link acts as a guide that directs viewers to the part of the video, which is most relevant to them without having to watch the entire video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Add a Timestamp to YouTube Video Link on Desktop?
 
@@ -762,10 +789,10 @@ You can use YouTube’s built-in feature to share the key parts of your YouTube 
 1. Anyone who clicks on this link will be instantly transported to the exact segment of your YouTube video.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Share Specific Parts of Videos with Vibby and Get YouTube Link with Timestamp
@@ -843,5 +870,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-50-top-tier-virtual-bgms-for-zoomgoogle/"><u>[New] 2024 Approved 50 Top-Tier Virtual BGMs for Zoom/Google</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-brighten-up-techniques-for-improving-video-lighting-on-youtube/"><u>[New] 2024 Approved Brighten Up Techniques for Improving Video Lighting on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhancing-video-discoverability-through-youtube-images/"><u>[New] Enhancing Video Discoverability Through Youtube Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-sports-channel-via-macos-step-by-step-guide/"><u>[New] In 2024, Building a Sports Channel via macOS Step by Step Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-game-capture-software-analysis-obs-vs-shadowplay/"><u>[New] In 2024, Game Capture Software Analysis OBS vs ShadowPlay</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-education-with-youtube-videos/"><u>[New] Streamlining Education with YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-tale-of-two-approaches-polite-vs-aggressive-asking-for-2024/"><u>[Updated] A Tale of Two Approaches Polite vs Aggressive Asking for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comic-crafting-mastering-7-cheeky-content-strategies-for-2024/"><u>[Updated] Comic Crafting Mastering 7 Cheeky Content Strategies for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-accessing-the-latest-events-streaming-facebook-live-through-roku/"><u>[Updated] In 2024, Accessing the Latest Events Streaming Facebook Live Through Roku</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-increasing-youtube-views-through-consistency-in-creative-commons-compliance/"><u>[Updated] Increasing YouTube Views Through Consistency in Creative Commons Compliance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-simplified-blue-screen-usage-guide/"><u>[Updated] Simplified Blue Screen Usage Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-10-leading-mobile-vr-headsets-ranked/"><u>2024 Approved 10 Leading Mobile VR Headsets Ranked</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726027520453-6/"><u>革新的なビデオ編集プログラム 日本語版6つのおすすめ - 高画質保持！</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/elevate-storytelling-free-soundtrack-options-available-in-2024/"><u>Elevate Storytelling - Free Soundtrack Options Available, In 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-audio-capture-from-skype-for-mp3-for-2024/"><u>Mastering Audio Capture From Skype for MP3 for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-youtube-tagging-for-content-visibility/"><u>Mastering YouTube Tagging for Content Visibility</u></a></li>
+<li><a href="https://techidaily.com/top-15-ubuntu-enhancements-effortless-tweaks-beyond-the-terminal/"><u>Top 15 Ubuntu Enhancements: Effortless Tweaks Beyond the Terminal</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2024-09-20T21:25:26.398Z
-updated: 2024-09-24T00:25:45.525Z
+date: 2024-10-04T14:46:41.626Z
+updated: 2024-10-06T09:44:59.894Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -69,22 +76,15 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
@@ -107,13 +107,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -125,6 +118,13 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -146,13 +146,6 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -160,6 +153,13 @@ Now that you know how to make a good YouTube banner, what will you do next?
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,5 +174,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-easy-access-to-no-cost-music-for-video-makers/"><u>[New] 2024 Approved Easy Access to No-Cost Music for Video Makers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-pro-level-insights-enhancing-your-interview-recordings-on-ios-devices/"><u>[New] 2024 Approved Pro-Level Insights Enhancing Your Interview Recordings on iOS Devices</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-capture-every-moment-the-power-of-spring-screenrecorder/"><u>[New] Capture Every Moment - The Power of Spring ScreenRecorder</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-your-channel-maximizing-adsense-on-youtube-for-2024/"><u>[New] Elevating Your Channel Maximizing AdSense on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-wave-goodbye-to-costs-with-our-50-free-banners-offer/"><u>[New] Wave Goodbye to Costs with Our 50 Free Banners Offer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dispelling-darkness-enhancing-youtube-views/"><u>[Updated] 2024 Approved Dispelling Darkness, Enhancing Youtube Views</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-copyright-aware-techniques-for-reposting-imagery/"><u>[Updated] In 2024, Copyright-Aware Techniques for Reposting Imagery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-your-content-strategy-discover-the-power-of-social-blade-and-youtube-data/"><u>[Updated] In 2024, Enhance Your Content Strategy - Discover the Power of Social Blade and YouTube Data</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snaps-boomerangs-mastering-and-tips/"><u>[Updated] In 2024, Snap's Boomerangs Mastering & Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-light-up-the-screen-techniques-for-stunning-youtube-visuals/"><u>[Updated] Light Up the Screen Techniques for Stunning YouTube Visuals</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sustained-disconnection-technique-from-youtube-shorts/"><u>[Updated] Sustained Disconnection Technique From YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-financial-impact-of-viewership-on-content-makers/"><u>[Updated] The Financial Impact of Viewership on Content Makers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-spark-interest-with-style-mixing-tiktoks-genius-techniques-for-insta/"><u>2024 Approved Spark Interest with Style Mixing TikTok's Genius Techniques for Insta</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-xiaomi-redmi-note-12-pro-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Xiaomi Redmi Note 12 Pro 5G? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-realme-narzo-60-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v15-document-with-digital-signature-service-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.5 document with digital signature service</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Realme 12 Pro+ 5G</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-speaker-change-tech-for-internet-showbiz-pros-for-2024/"><u>Ultimate Speaker Change Tech for Internet Showbiz Pros for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-top-5-tools-to-convert-text-to-audio-online-for-free/"><u>Updated Top 5 Tools to Convert Text to Audio Online for Free</u></a></li>
+</ul></div>
 

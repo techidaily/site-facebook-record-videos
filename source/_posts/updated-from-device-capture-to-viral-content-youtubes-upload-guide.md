@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Device Capture to Viral Content  YouTube's Upload Guide\""
-date: 2024-09-27T20:57:03.390Z
-updated: 2024-09-30T22:01:04.878Z
+date: 2024-10-04T21:14:00.929Z
+updated: 2024-10-05T20:23:40.964Z
 tags:
   - ai video
   - ai youtube
@@ -76,6 +76,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -91,10 +98,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
@@ -104,10 +111,10 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
@@ -142,27 +149,20 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -179,24 +179,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-asmr-benefits-unveiled-your-mental-gain/"><u>[New] 2024 Approved ASMR Benefits Unveiled – Your Mental Gain</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-earning-in-the-limelight-without-ads-a-comprehensive-guide-to-youtube-income/"><u>[New] 2024 Approved Earning in the Limelight without Ads A Comprehensive Guide to YouTube Income</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-avoiding-files-enjoying-animated-gifs-youtube-video-mastery-for-2024/"><u>[New] Avoiding Files, Enjoying Animated GIFs YouTube Video Mastery for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-powerful-partnerships-a-guide-to-choosing-youtube-allies-for-2024/"><u>[New] Crafting Powerful Partnerships A Guide to Choosing YouTube Allies for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-8-youtube-fitness-hacks-that-energize-audiences/"><u>[New] In 2024, Exploring 8 YouTube Fitness Hacks That Energize Audiences</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[Updated] 2024 Approved A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-exposure-do-buy-views-accelerate-channel-growth/"><u>[Updated] In 2024, Enhancing Exposure Do Buy Views Accelerate Channel Growth?</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-maximizing-engagement-how-to-pick-perfect-youtube-collaborators/"><u>[Updated] In 2024, Maximizing Engagement How to Pick Perfect YouTube Collaborators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-key-screen-snapping-programs-for-content-sharing/"><u>[Updated] Key Screen-Snapping Programs for Content Sharing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-vloggers-ultimate-guide-to-best-gaming-microphones/"><u>[Updated] Vloggers' Ultimate Guide to Best Gaming Microphones</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harnessing-funimates-downloading-prowess-quickly/"><u>2024 Approved Harnessing Funimate's Downloading Prowess Quickly</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/how-to-solve-delayed-or-failed-video-sending-in-facebooks-mobile-messaging-service/"><u>How to Solve Delayed or Failed Video Sending in Facebook's Mobile Messaging Service</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-realme-12-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Realme 12 5G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-control-speed-of-instagram-videos-effortlessly/"><u>In 2024, How To Control Speed of Instagram Videos Effortlessly</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-5-playstation-vr-games-to-look-forward-to/"><u>In 2024, Top 5 Playstation VR Games to Look Forward To</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-top-rated-dj-templates-free-access-for-music-makers/"><u>In 2024, Top-Rated DJ Templates Free Access for Music Makers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-complete-guide-to-eradicating-youtube-keep-queue-for-2024/"><u>The Complete Guide to Eradicating YouTube Keep Queue for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-role-of-chatgpt-in-facilitating-malware-design-a-possibility-or-myth/"><u>The Role of ChatGPT in Facilitating Malware Design: A Possibility or Myth?</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-xiaomi-redmi-13c-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Xiaomi Redmi 13C Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-survival-housing-in-minecraft-6-10-guide/"><u>[New] 2024 Approved Survival Housing in Minecraft #6-10 Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-exploring-genres-a-collection-of-15-innovative-musician-focused-videos-for-2024/"><u>[New] Exploring Genres A Collection of 15 Innovative Musician-Focused Videos for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-sundae-surveillance-insightful-review-of-frozen-film-software-for-2024/"><u>[New] Sundae Surveillance Insightful Review of Frozen Film Software for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-your-own-path-on-youtube-a-course-guide/"><u>[Updated] 2024 Approved Creating Your Own Path on YouTube A Course Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-deciphering-adsense-profits-on-youtube-revenue-per-kv-watched/"><u>[Updated] 2024 Approved Deciphering AdSense Profits on YouTube Revenue per KV Watched</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-6-youtuber-quizzes-to-know-which-youtuber-you-are-for-2024/"><u>[Updated] 6 YouTuber Quizzes to Know Which YouTuber You Are for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-compelling-youtube-narratives-with-chapters-and-subsections-for-2024/"><u>[Updated] Crafting Compelling YouTube Narratives with Chapters and Subsections for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-captivating-visuals-with-diy-filming-methods/"><u>[Updated] In 2024, Creating Captivating Visuals with DIY Filming Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-offline-entertainment-how-to-load-youtube-video-onto-your-apple-gear/"><u>[Updated] Offline Entertainment How to Load YouTube Video Onto Your Apple Gear</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-financial-frontier-youtubes-pay-structure-at-the-1m-mark/"><u>2024 Approved The Financial Frontier Youtube's Pay Structure at the 1M Mark</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-live-pro-tips-outfitting-with-excellent-webcams/"><u>2024 Approved YouTube Live Pro Tips Outfitting with Excellent Webcams</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-lava-blaze-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-initiating-engagement-start-your-live-on-instagram/"><u>In 2024, Initiating Engagement Start Your Live on Instagram</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-navigating-the-world-of-fb-video-content-production/"><u>In 2024, Navigating the World of FB Video Content Production</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-prime-selections-cutting-edge-iphone-tune-makers/"><u>In 2024, Prime Selections Cutting-Edge iPhone Tune Makers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-oppo-find-x6-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Oppo Find X6? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/top-rated-photo-management-software-for-windows-11-users/"><u>Top Rated Photo Management Software for Windows 11 Users</u></a></li>
 </ul></div>
 
