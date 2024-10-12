@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Videographer's Essentials - Top 9 Gear Upgrades for Mobile Filming\""
-date: 2024-10-02T23:37:20.535Z
-updated: 2024-10-05T22:26:57.744Z
+date: 2024-10-08T20:04:45.229Z
+updated: 2024-10-12T05:31:37.080Z
 tags:
   - ai video
   - ai youtube
@@ -37,41 +37,55 @@ As smartphone camera technology is rapidly advancing, more and more people are u
 
 Vlogging uses a lot more power. If you’re planning to vlog all throughout your day with your phone, you need a portable way to charge it back up. RAVPower has a great line up of portable chargers with multiple USB inputs that hold a total charge of more than 20,000 mAh. With that amount, you can fully charge your smartphone more than 6 times! I own one myself and it’s been great for me during my travels. A 22,000 mAh charger goes for about $42 USD.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Arkon Tripod Mount
 
 ![Arkon Tripod Mount](https://images.wondershare.com/filmora/article-images/best-smartphone-camera-accessories-tripod-mount.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Arkon tripod mount is a great portable tripod option that you can get at the fair price of around $20 USD. Not only does it have bendable legs, like the more expensive Joby GorillaPod tripod, that you can wrap around all kinds of structures, but it also comes with the smartphone mount, which Joby sells separately. Another great thing about the Arkon tripod is that its smartphone mount can be rotated so that you can position your phone to film in either widescreen or portrait mode.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Mega Tiny Anti-Gravity Case
 
 ![Mega Tiny Anti-Gravity Case](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-anti-gravity-case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 For all the flat surfaces that the bendable legs of the Arkon tripod mount can’t wrap around, Mega Tiny’s anti-gravity cases will do the job of holding your iPhone or Android phone in one fixed position. These cases can stick to glass, mirrors, metal, and more. They range from $20 to $30 USD.
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. FLII Selfie Ring Light
 
 ![FLII Selfie Ring Light](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-selfie-ring-light.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 As much as smartphone camera technology has advanced, phone cameras still underperform when it comes to filming video in low-light. In low-light, your footage is very grainy because your phone is equipped with a small camera sensor, an engineering choice by the manufacturers to keep the size of the phone small. A handy accessory that you can use to get more light is the FLII selfie ring light. This ring light clamps onto your phone and emits a neutral white light. You can clamp this light to either side of your phone, depending on whether you want to use your rear-facing camera or your front-facing camera. This selfie ring light sells for around $16 USD.
@@ -92,45 +106,17 @@ Aukey makes a 3-in-1 lens set that you can clamp onto your smartphone so that yo
 
 ![iOgrapher Go](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-iographer-go.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There’s many more accessories that you can take advantage of if you don’t limit yourself to just smartphone camera accessories. Sound and lighting equipment made for stand-alone cameras perform much better too. Many of these accessories are meant to connect to the camera “shoe” (a bracket on top of the camera that accessories can be attached to). Smartphones don’t come with these kinds of shoes. So, to take advantage of these higher quality accessories, you’ll need some kind of camera rig for your smartphone that also comes with shoes. The iOgrapher Go offers this at around $60 USD. This accessory comes with three shoes.
 
 ### 8\. Manfrotto TwistGrip System
 
 ![Manfrotto TwistGrip System](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-twist-grip-system.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Manfrotto’s TwistGrip System does a similar job to the above iOgrapher Go. This system also comes with three shoes. An advantage the TwistGrip System has over the iOgrapher Go is that it is much more portable. Its three connected parts can be detached to take up less space in your bag. This system sells for around $50 USD.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9\. Zhiyun Smooth-Q 3-Axis Handheld Gimbal Stabilizer for Smartphones
 
 ![Zhiyun Smooth-Q](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-gimbal-stabilizer.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 My favorite smartphone camera accessory that I own is the Zhiyun Smooth-Q gimbal stabilizer. This gimbal is very effective in helping you record smooth video. Using the app that it comes with, you can even preset this gimbal to smoothly pan and rotate from a starting position to an ending position, giving you the opportunity to film beautiful time lapses. You can get this device at around $100 USD.
 
@@ -140,7 +126,21 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -157,18 +157,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-efficiency-in-conversion-a-compact-list-of-the-top-10-video-transformers/"><u>[New] 2024 Approved Efficiency in Conversion A Compact List of the Top 10 Video Transformers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-top-screen-capturing-solutions-by-tunefab-experts/"><u>[New] In 2024, Top Screen Capturing Solutions by Tunefab Experts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-amplify-youtube-performance-rapid-video-rendering-guide-for-2024/"><u>[Updated] Amplify YouTube Performance - Rapid Video Rendering Guide for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-comprehensive-list-securing-monetized-youtube-content/"><u>[Updated] Comprehensive List Securing Monetized YouTube Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-a-sports-youtube-channel-on-mac/"><u>[Updated] How to Create a Sports YouTube Channel on Mac?</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-expert-advice-how-to-share-your-imovie-videos-on-vimeo/"><u>[Updated] In 2024, Expert Advice How to Share Your iMovie Videos on Vimeo</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-notes-from-iphone-12-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Notes from iPhone 12? | Stellar</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-apple-iphone-11-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fix Apple iPhone 11 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-jocular-joke-crafting-a-step-by-step-guide-to-memelore/"><u>In 2024, Jocular Joke-Crafting A Step-by-Step Guide to Memelore</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>In 2024, Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-tp-links-re305-range-extender-a-simple-approach-to-enhanced-connectivity/"><u>In-Depth Review of TP-Link's RE305 Range Extender: A Simple Approach to Enhanced Connectivity</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mac/"><u>Macユーザーにお勧め:高速で軽量、そして上質な方法で動画エンコード完了</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-ultimate-guide-to-longer-instagram-videos/"><u>The Ultimate Guide to Longer Instagram Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dodging-doubts-a-guide-to-vloggings-most-common-anxieties/"><u>[New] 2024 Approved Dodging Doubts A Guide to Vlogging's Most Common Anxieties</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-establishing-a-mac-based-sports-media-outlet-for-2024/"><u>[New] Establishing a Mac-Based Sports Media Outlet for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-premium-photo-vault-services/"><u>[New] Premium Photo Vault Services</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-universal-synchronization-zoom-on-phones-tablets-pcs-all/"><u>[New] Universal Synchronization Zoom on Phones, Tablets, PCs All</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-your-own-youtube-auto-subscribe-url/"><u>[Updated] 2024 Approved Building Your Own YouTube Auto-Subscribe URL</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-youtube-productions-with-effective-video-lighting-for-2024/"><u>[Updated] Elevating YouTube Productions with Effective Video Lighting for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-the-obscured-realm-of-youtube-a-methodical-approach/"><u>[Updated] Navigating the Obscured Realm of YouTube A Methodical Approach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-premier-content-creators-colloquy/"><u>[Updated] Premier Content Creators Colloquy</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-prime-10-video-edits-boost-your-webcam-experience-for-2024/"><u>[Updated] Prime 10 Video Edits Boost Your Webcam Experience for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-imovies-cropping-an-in-depth-look/"><u>2024 Approved IMovie's Cropping An In-Depth Look</u></a></li>
+<li><a href="https://win-studio.techidaily.com/comprehensive-instructions-effective-strategies-for-hyper-v-virtual-machine-snapshots-and-restores/"><u>Comprehensive Instructions: Effective Strategies for Hyper-V Virtual Machine Snapshots and Restores</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/emerging-leader-abbyy-named-key-player-in-document-intelligence-by-aragon-research-2nd-edition-of-2019/"><u>Emerging Leader: ABBYY Named Key Player in Document Intelligence by Aragon Research, 2nD Edition of 2019</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/immediate-access-buy-and-fix-your-images-with-stellar/"><u>Immediate Access: Buy and Fix Your Images with Stellar!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Realme 10T 5G | Dr.fone</u></a></li>
 </ul></div>
 

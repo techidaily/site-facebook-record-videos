@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Effective Approach to Swiftly Eliminate Video Comments for 2024"
-date: 2024-09-14T16:28:42.258Z
-updated: 2024-09-18T16:58:59.606Z
+date: 2024-10-09T21:01:39.589Z
+updated: 2024-10-12T05:11:39.077Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -68,6 +75,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -82,13 +96,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -110,6 +117,20 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -127,21 +148,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -162,5 +169,24 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-empowered-by-numbers-decoding-youtube-analytics/"><u>[New] 2024 Approved Empowered by Numbers Decoding YouTube Analytics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-youtubes-financial-blueprint-for-short-form-video-success/"><u>[New] 2024 Approved Exploring YouTube's Financial Blueprint for Short-Form Video Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-name-wizardry-brainstorm-and-create/"><u>[New] Channel Name Wizardry Brainstorm & Create!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-innovators-choice-best-gimbal-systems-for-video-creators/"><u>[Updated] 2024 Approved The Innovator’s Choice Best Gimbal Systems for Video Creators</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unleashing-creative-potential-with-pixiz-for-photo-videos/"><u>[Updated] 2024 Approved Unleashing Creative Potential with Pixiz for Photo Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[Updated] In 2024, A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-your-course-building-plays-on-youtube/"><u>[Updated] In 2024, Charting Your Course Building Plays on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-brainstroming-techniques-for-channels-names/"><u>[Updated] Innovative Brainstroming Techniques for Channels' Names</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-standard-youtube-license-vs-creative-commons/"><u>[Updated] Standard YouTube License Vs. Creative Commons</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-free-guide-to-youtube-ad-videos/"><u>[Updated] The Ultimate Free Guide to YouTube Ad Videos</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/essential-streamers-guide-top-10-sports-apps-for-real-time-action-for-2024/"><u>Essential Streamers' Guide Top 10 Sports Apps for Real-Time Action for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-crop-photo-online/"><u>How To Crop Photo Online?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-movie-magic-on-your-device-top-10-trailer-apps-for-iphone-and-ipad/"><u>New Movie Magic on Your Device Top 10 Trailer Apps for iPhone and iPad</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oppo-find-x7-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Find X7 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/synchronisierung-von-icloud-kontakten-mit-iphone-und-ipad-losung-fur-haufige-probleme/"><u>Synchronisierung Von iCloud-Kontakten Mit iPhone Und iPad - Lösung Für Häufige Probleme</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-the-perfect-gaming-experience-kinemaster-on-android-for-2024/"><u>Unveiling the Perfect Gaming Experience KineMaster on Android for 2024</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-redmi-note-12-pro-4g-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Xiaomi Redmi Note 12 Pro 4G won’t play MP4 files</u></a></li>
+</ul></div>
 

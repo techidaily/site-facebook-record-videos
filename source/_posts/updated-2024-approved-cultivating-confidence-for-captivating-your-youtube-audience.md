@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cultivating Confidence for Captivating Your YouTube Audience\""
-date: 2024-10-03T06:16:26.789Z
-updated: 2024-10-05T16:23:16.394Z
+date: 2024-10-08T02:52:15.269Z
+updated: 2024-10-12T05:58:09.851Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,10 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -66,10 +66,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -92,13 +92,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -109,13 +102,6 @@ Good preparation includes having all your gear ready for filming when you need i
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -125,6 +111,13 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -150,6 +143,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -167,16 +167,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-dataguardian-consultants-insights-for-2024/"><u>[New] DataGuardian Consultants Insights for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elite-6-most-watched-shorter-video-repositories/"><u>[New] In 2024, Elite 6 Most Watched Shorter Video Repositories</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-varied-ideas-for-daily-vlogging-talks/"><u>[New] Varied Ideas for Daily Vlogging Talks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-10-leading-flv-to-youtube-video-converters/"><u>[Updated] 2024 Approved 10 Leading FLV to YouTube Video Converters</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-get-ahead-in-call-capturing-20plus-techniques-for-windowsmac-users/"><u>[Updated] 2024 Approved Get Ahead in Call Capturing 20+ Techniques for Windows/Mac Users</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-melodic-memory-bank-save-and-analyze-music-files/"><u>[Updated] 2024 Approved Melodic Memory Bank Save & Analyze Music Files</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-celebrating-clickers-channel-and-buttons-incentives-for-2024/"><u>[Updated] Celebrating Clickers Channel & Buttons Incentives for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-insights-into-procuring-freeness-in-frame-vids/"><u>2024 Approved Insights Into Procuring Freeness in Frame Vids</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-linking-your-favorite-tiktoks-seamlessly-to-facebook/"><u>2024 Approved Linking Your Favorite TikToks Seamlessly to Facebook</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-starfield-game-crashes-and-stalls-on-windows-solutions/"><u>Resolved: Starfield Game Crashes & Stalls on Windows - Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-is-channel-growth-primarily-a-product-of-organic-effort-or-paid-strategies/"><u>[New] Is Channel Growth Primarily a Product of Organic Effort or Paid Strategies?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-no-more-youtube-shorts-a-detailed-breakdown/"><u>[New] No More YouTube Shorts A Detailed Breakdown</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-download-youtube-beats-on-android-the-ultimate-6-app-guide-for-2024/"><u>[Updated] Download YouTube Beats on Android The Ultimate 6-App Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quality-audio-awaits-with-these-premium-asmr-mics/"><u>[Updated] Quality Audio Awaits with These Premium ASMR Mics</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-premier-mac-mkv-solvers-list/"><u>2024 Approved Premier Mac MKV Solvers List</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/amplitude-variation/"><u>Amplitude Variation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lava-yuva-2-pro-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Lava Yuva 2 Pro Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-essential-guide-to-documentary-storytelling-mechanics/"><u>In 2024, The Essential Guide to Documentary Storytelling Mechanics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-your-pathway-to-sharing-high-quality-videos-on-youtube/"><u>In 2024, Your Pathway to Sharing High-Quality Videos on YouTube</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-ringtone-essential-tips-and-fixes-for-iphones-incoming-call-problems/"><u>Revive Your Ringtone: Essential Tips & Fixes for iPhone’s Incoming Call Problems</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solve-game-crashes-troubleshooting-stardew-valley-pc-instability/"><u>Solve Game Crashes: Troubleshooting Stardew Valley PC Instability</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-turning-youtube-media-on-its-head-for-2024/"><u>The Art of Turning YouTube Media on Its Head for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-vivo-x100-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Vivo X100 for Parents | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-constant-collapses-in-remnant-the-definitive-edition/"><u>Troubleshooting Constant Collapses in 'Remnant: The Definitive Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/xbox-series-s-vs-gamestreaming-on-firestick-which-offers-more-value/"><u>Xbox Series S Vs. GameStreaming on Firestick: Which Offers More Value?</u></a></li>
 </ul></div>
 

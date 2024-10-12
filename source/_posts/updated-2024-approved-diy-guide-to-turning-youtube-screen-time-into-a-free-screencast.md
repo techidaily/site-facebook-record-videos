@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Guide to Turning YouTube Screen Time Into a FREE Screencast\""
-date: 2024-10-04T03:05:46.432Z
-updated: 2024-10-06T09:00:00.876Z
+date: 2024-10-06T21:02:29.744Z
+updated: 2024-10-12T03:31:32.988Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,6 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -65,10 +58,10 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
@@ -77,14 +70,14 @@ Step 4: Hit the screen share button from the left toolbox and choose the desktop
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## A better way to record Screencast and Upload to YouTube
 
@@ -93,10 +86,16 @@ For those who are interested in capturing screencast with high-quality videos an
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Top Features
@@ -113,6 +112,13 @@ There are so many benefits of using Filmora for YouTube screencast video recordi
 Let's watch the video below to check how to record your screen with Filmora and upload the recorded video to YouTube.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -135,17 +141,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-video-production-mastering-green-screens-on-yt/"><u>[New] 2024 Approved Dive Into Video Production Mastering Green Screens on YT</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-roadmap-to-youtube-fame-accruing-more-subscribers/"><u>[New] The Roadmap to YouTube Fame Accruing More Subscribers</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-ultimate-speed-and-quality-picture-reader-for-2024/"><u>[New] Ultimate Speed & Quality Picture Reader for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-collect-premium-audio-for-video-editors-for-2024/"><u>[Updated] Collect Premium Audio for Video Editors for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-optimal-youtube-aesthetics-for-maximum-engagement/"><u>[Updated] Navigating Optimal YouTube Aesthetics for Maximum Engagement</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-14-pro-max-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 14 Pro Max and iPad Securely | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/protect-photos-our-picks-for-superior-watermarkers-for-2024/"><u>Protect Photos - Our Picks for Superior Watermarkers for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/step-by-step-upgrading-drivers-for-your-canon-lide-123-series-scanners/"><u>Step-by-Step: Upgrading Drivers for Your Canon LiDE 123 Series Scanners</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-great-livestream-debate-facebook-vs-youtube-live-and-twitter-periscope-for-2024/"><u>The Great Livestream Debate FACEbook Vs. YOUTube Live & Twitter Periscope for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/ultimate-faqs-on-understanding-and-managing-your-mkv-media-collection/"><u>Ultimate FAQs on Understanding and Managing Your MKV Media Collection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tips-for-successful-youtube-broadcasts-for-2024/"><u>[New] Essential Tips for Successful YouTube Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-6-alternative-platforms-for-high-quality-youtube-graphics-for-2024/"><u>[New] Explore 6 Alternative Platforms for High-Quality YouTube Graphics for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-satirize-a-guide-to-parody-production-for-2024/"><u>[New] How to Satirize A Guide to Parody Production for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-haul-vlog-empire-key-strategies/"><u>[New] In 2024, Building a Haul Vlog Empire Key Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-earnings-audit-the-monetization-process/"><u>[New] YouTube Earnings Audit The Monetization Process</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-metavision-uncovered-analyzing-6-compelling-metaverse-cases/"><u>[Updated] 2024 Approved Metavision Uncovered Analyzing 6 Compelling Metaverse Cases</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expressive-youtube-aesthetics-at-no-cost/"><u>[Updated] Expressive YouTube Aesthetics at No Cost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-tips-on-camera-lens-selection-for-professional-vloggers/"><u>[Updated] In 2024, Expert Tips on Camera Lens Selection For Professional Vloggers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-suggestions-best-iphone-audio-innovators/"><u>2024 Approved Leading Suggestions Best iPhone Audio Innovators</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726026343977-dvd/"><u>DVD再生不可能？損傷せずに修正方法を丁寧解明</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723209692827-essential-videoaudio-hardware-driver-not-installed-on-your-system-fixed/"><u>Essential Video/Audio Hardware Driver Not Installed on Your System, Fixed!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-12-pro-max-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone 12 Pro Max Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/masterful-persona-design-on-tiktok-the-ultimate-how-to/"><u>Masterful Persona Design on TikTok - The Ultimate How To</u></a></li>
+<li><a href="https://windows11.techidaily.com/preserve-your-tailored-powertoys-environment-at-new-devices/"><u>Preserve Your Tailored PowerToys Environment at New Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-vivo-y78plus-t1-edition-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Vivo Y78+ (T1) Edition to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-masterclass-crafting-youtube-trailers-using-filmora-for-2024/"><u>Video Masterclass Crafting YouTube Trailers Using Filmora for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-first-step-designing-attractive-videos-on-a-mac-for-2024/"><u>Your First Step Designing Attractive Videos on a Mac for 2024</u></a></li>
 </ul></div>
 

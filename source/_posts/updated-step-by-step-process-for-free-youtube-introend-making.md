@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-10-04T21:29:54.005Z
-updated: 2024-10-06T12:48:39.571Z
+date: 2024-10-08T03:17:22.496Z
+updated: 2024-10-11T22:22:57.715Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,24 +141,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/0-second-teasers-explained/"><u>[New] 10-Second Teasers Explained</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-the-revised-youtube-earnings-criteria-for-2024/"><u>[New] Decoding the Revised YouTube Earnings Criteria for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-perfect-youtube-thumbnails-on-macos/"><u>[New] In 2024, Crafting Perfect YouTube Thumbnails on macOS</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-art-of-color-correction-best-practices-top-11-for-2024/"><u>[New] The Art of Color Correction Best Practices (Top 11) for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-flash-clip-content-wizard/"><u>[Updated] Flash Clip Content Wizard</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-how-to-maximize-your-cricket-viewing-with-premium-livestreams-for-2024/"><u>[Updated] How to Maximize Your Cricket Viewing with Premium Livestreams for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-behind-the-scenes-top-tactics-for-consistent-vlogging/"><u>[Updated] In 2024, Behind the Scenes Top Tactics for Consistent Vlogging</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-precision-playback-aligning-video-views-in-real-time/"><u>[Updated] Precision Playback Aligning Video Views in Real-Time</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-supreme-choices-for-inexpensive-film-assets/"><u>[Updated] Supreme Choices for Inexpensive Film Assets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-power-of-pausing-incorporating-effective-chapters-in-your-youtube-series/"><u>[Updated] The Power of Pausing Incorporating Effective Chapters in Your YouTube Series</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-yt-shorts-soundtrack-hits-top-10-trending-sounds/"><u>[Updated] YT Shorts Soundtrack Hits Top 10 Trending Sounds</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-path-to-engaging-content-dive-into-our-free-youtube-ad-gallery/"><u>2024 Approved Your Path to Engaging Content – Dive Into Our Free YouTube Ad Gallery</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-lava-blaze-2-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Lava Blaze 2 5G? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-microsoft-windows-8-plus-amd-radeon-gpu-support-for-free/"><u>Download Microsoft Windows 8 + AMD Radeon GPU Support for Free!</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/gratuito-e-seguro-online-conversao-de-arquivos-mkv-com-o-software-movavi/"><u>Gratuito E Seguro: Online Conversão De Arquivos MKV Com O Software Movavi</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlink-your-iphone-14-plus-from-your-apple-id-by-drfone-ios/"><u>How To Unlink Your iPhone 14 Plus From Your Apple ID</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mp4dvd-windows11mp4-dvd/"><u>MP4からDVDへの自由な変換! Windows11向け最強MP4 DVD作成ソフトウェア</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/techniques-for-blurring-and-excising-picture-borders-for-2024/"><u>Techniques for Blurring and Excising Picture Borders for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-behind-the-curtains-a-guide-to-youtubes-hidden-videos/"><u>[New] In 2024, Behind the Curtains A Guide to YouTube’s Hidden Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-unforgettable-experiences-for-more-subscribers-with-these-6-tips/"><u>[New] In 2024, Craft Unforgettable Experiences for More Subscribers with These 6 Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-uncovering-youtubes-star-comment/"><u>[New] Uncovering YouTube's Star Comment</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-a-path-to-success-exploring-15-top-youtube-beginnings/"><u>[Updated] 2024 Approved Charting a Path to Success Exploring 15 Top YouTube Beginnings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exclusive-youtube-snippet-access-high-quality-free-download/"><u>[Updated] 2024 Approved Exclusive YouTube Snippet Access - High Quality, Free Download</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-video-gear-for-youtube-starters/"><u>[Updated] In 2024, Essential Video Gear for YouTube Starters</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-redefine-small-screen-experience-explore-these-top-6-freely-available-youtube-shorts-downloader-tools/"><u>[Updated] In 2024, Redefine Small Screen Experience Explore These Top 6 Freely Available YouTube Shorts Downloader Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-views-uncover-the-best-video-hacks-for-success/"><u>[Updated] Transforming Views Uncover the Best Video Hacks for Success</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-11x-5g-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on 11X 5G.</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/easy-peasy-guide-to-capturing-online-events-for-mac-and-windows-users-for-2024/"><u>Easy-Peasy Guide to Capturing Online Events For Mac & Windows Users for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-review-how-the-new-apple-iphone-12-sets-the-bar-higher-than-ever/"><u>Expert Review: How the New Apple iPhone 12 Sets the Bar Higher Than Ever</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-ultimate-checklist-for-twitter-video-posts/"><u>In 2024, The Ultimate Checklist for Twitter Video Posts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photoshop-basics-for-beginners-10-must-know-tricks/"><u>Photoshop Basics for Beginners 10 Must-Know Tricks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/smooth-responsive-windows-11-update/"><u>Smooth, Responsive Windows 11 Update</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-adding-subtitles-in-fcpx-a-beginners-tutorial-updated-2023-for-2024/"><u>Updated Adding Subtitles in FCPX A Beginners Tutorial (Updated 2023) for 2024</u></a></li>
 </ul></div>
 

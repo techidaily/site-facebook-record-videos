@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-08-18T01:49:35.988Z
-updated: 2024-08-19T01:49:35.988Z
+date: 2024-10-05T21:28:55.164Z
+updated: 2024-10-12T00:00:04.753Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -110,11 +117,28 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,8 +156,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -148,16 +176,11 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -165,3 +188,19 @@ Follow @Liza Brown
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-youtube-productions-best-mac-mp4-editors-guide-for-2024/"><u>[New] Boosting YouTube Productions Best Mac MP4 Editors Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-fifa-highlights-and-trends-charting-on-youtube-for-2024/"><u>[New] FIFA Highlights & Trends Charting on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-fundamentals-of-creating-persuasive-social-media-messages/"><u>[New] Fundamentals of Creating Persuasive Social Media Messages</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-learning-legends-esteemed-ed-streams-online/"><u>[New] Learning Legends Esteemed Ed Streams Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-strategies-for-measuring-igtv-popularity-indicators/"><u>[New] Strategies for Measuring IGTV Popularity Indicators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-engaging-streams-for-success-the-ultimate-youtube-broadcast-blueprint-using-wirecast/"><u>[Updated] 2024 Approved Craft Engaging Streams for Success The Ultimate Youtube Broadcast Blueprint Using WireCast</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhance-visual-appeal-edit-videos-for-instagram-success-for-2024/"><u>[Updated] Enhance Visual Appeal Edit Videos for Instagram Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dive-into-the-art-of-asmr-recording-a-comprehensive-overview/"><u>[Updated] In 2024, Dive Into the Art of ASMR Recording – A Comprehensive Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722561250796-amazfit-helio-ring-find-out-how-much-when-it-drops-and-whats-inside/"><u>Amazfit Helio Ring - Find Out How Much, When It Drops, and What's Inside</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/decoding-the-performance-edge-of-asus-rog-rapture-pro-wifi-7-router-review-peak-capabilities-and-customizable-options/"><u>Decoding the Performance Edge of Asus ROG Rapture Pro WIFI 7 Router Review: Peak Capabilities & Customizable Options</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Oppo F23 5G? | Dr.fone</u></a></li>
+</ul></div>
+

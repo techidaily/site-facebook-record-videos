@@ -1,7 +1,7 @@
 ---
 title: "\"The Expert' Market Approach  Rapid Eradication on YouTube for 2024\""
-date: 2024-07-31T04:20:17.203Z
-updated: 2024-08-01T04:20:17.203Z
+date: 2024-10-06T17:47:30.849Z
+updated: 2024-10-12T00:51:26.312Z
 tags:
   - ai video
   - ai youtube
@@ -36,9 +36,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -51,8 +48,12 @@ In this section, we will tell you how you can do it from your desktop.
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -63,9 +64,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -110,14 +108,8 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -127,6 +119,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -135,16 +134,33 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -152,11 +168,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplifying-video-reach-the-ultimate-guide-for-youtube-enthusiasts/"><u>[New] 2024 Approved Amplifying Video Reach The Ultimate Guide for YouTube Enthusiasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beginners-guide-to-pro-youtube-tech/"><u>[New] 2024 Approved Beginner's Guide to Pro YouTube Tech</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-custom-soundtracks-simplified-converting-from-spotify-playlists-to-youtube-music/"><u>[New] 2024 Approved Custom Soundtracks Simplified Converting From Spotify Playlists to YouTube Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-drive-traffic-and-growth-with-youtube-analytic-insights/"><u>[New] 2024 Approved Drive Traffic and Growth with YouTube Analytic Insights</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-premium-5-display-picks-for-immersive-gameplay/"><u>[New] 2024 Approved Premium 5 Display Picks for Immersive Gameplay</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-directors-diary-filmo-qanda-series/"><u>[Updated] 2024 Approved Director's Diary Filmo Q&A Series</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-building-inspiring-lifestyle-content-for-viewers-for-2024/"><u>[Updated] Building Inspiring Lifestyle Content for Viewers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-content-for-success-a-step-by-step-channel-guide/"><u>[Updated] In 2024, Crafting Content for Success A Step-by-Step Channel Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decrypting-the-mystery-understanding-unlisted-content-on-youtube/"><u>[Updated] In 2024, Decrypting the Mystery Understanding 'Unlisted' Content on YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-samsung-galaxy-m34-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Samsung Galaxy M34 5G Device</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-visionaries-shaping-marvel-online-experience/"><u>In 2024, Visionaries Shaping Marvel Online Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/premium-black-dashboard-pro-advanced-bootstrap-4-administrator-template-by-creative-tim/"><u>Premium Black Dashboard PRO: Advanced Bootstrap 4 Administrator Template by Creative Tim</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/pro-video-recording-methods-for-multiple-systems-for-2024/"><u>Pro Video Recording Methods for Multiple Systems for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/securing-lsa-settings-a-step-by-step-tutorial-for-improved-protection/"><u>Securing LSA Settings – A Step-by-Step Tutorial for Improved Protection</u></a></li>
+<li><a href="https://android-frp.techidaily.com/top-5-realme-narzo-n53-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Realme Narzo N53 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://driver-error.techidaily.com/win10-and-seagate-connection-woes-fix-now/"><u>Win10 & Seagate Connection Woes - Fix Now</u></a></li>
+</ul></div>
+

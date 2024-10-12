@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Classic Cinematography  Step-by-Step Guide for 2024\""
-date: 2024-10-02T12:12:11.430Z
-updated: 2024-10-06T00:44:40.164Z
+date: 2024-10-06T08:11:18.830Z
+updated: 2024-10-12T05:18:49.378Z
 tags:
   - ai video
   - ai youtube
@@ -60,19 +60,6 @@ Lots of black points in the video are not ideal for a vintage effect. The suitab
 
 Bringing down the saturation levels is another tip to create a vintage effect. The old videos are also absent in bright colors. Don't go too crazy about reduction as 20%-30% saturation level is more than enough.
 
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Create a Stunning Vintage Video?
 
 What you need to get started as both beginner and professional is Wondershare Filmora Video Editor. It is a highly recommended software to create vintage videos. The intuitive user interface and lots of editing functions are helpful for a video editor. It has both primary as well as advanced editing programs to check. It has various advanced color tuning tools to promote the making of original videos. It features tint, temperature, Vignette, 3D Luts, Lights, and so on.
@@ -85,13 +72,6 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -101,6 +81,13 @@ The Old Video filter will immediately appear in the list of filters. Tap the **"
 **Step 2:** Apply White & Black Filters
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The second step is to apply the Black & White filters. Go to the **Effects** tab and explore five Black & White filters available. Each of these filters is quite different and must be applied accordingly. Check the aesthetic of your video clip before any filter application to retro videos.
 
@@ -122,6 +109,13 @@ Now, you need to desaturate the video clip with Ash & Willow filters. We have ty
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
 **Step 5:** Apply Black & White and Old Film Color Correction Presets to the video
@@ -129,13 +123,6 @@ Then, we have combined the black & white filter with an overlay of Film Reel Hor
 You can also access the Advanced color correction Tab of Filmora from the Color button. It also features Preset and Adjusts Tabs to desaturate footage. The Preset presents a variety of options, including Black & White and Old Film. You just need to right-click the particular preset and select the Apply option.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
 
@@ -148,6 +135,13 @@ Following the helpful tips would assist you in creating awesome retro videos.
 * Lower the frame rate or FPS to create an excellent vintage look. You can make it to 18 or 14 FPS depending upon the aesthetic requirements.
 * Keep an eye on black and white filters you have used. It's because more of a black and white can ruin the actual vintage experience.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Conclusion
 
 So, this is an ultimate tutorial on the creation of vintage videos. We Hope you have admired the steps and our recommended video editing software. Vintage means grand, and thus you should make it amazing as well. It is the reason we have stated all facts regarding the vintage effect in our post above. Wondering how to add such effect in FCPX? check this article:[How to Create a Vignette in Final Cut Pro X?](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -157,10 +151,10 @@ Surely give a read and thank us later!
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -178,22 +172,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-analyzing-youtubes-process-for-selective-comment-showcasing/"><u>[New] 2024 Approved Analyzing YouTube's Process for Selective Comment Showcasing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-exploring-media-top-ranking-camera-apps-for-iphonesandroid-devices/"><u>[New] 2024 Approved Exploring Media Top-Ranking Camera Apps for iPhones/Android Devices</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-faster-footage-in-powerpoint-filters/"><u>[New] Faster Footage in PowerPoint Filters</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>[New] In 2024, A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-secret-ingredient-to-success-15-activities-that-enhance-learning-while-listening-to-talk-shows/"><u>[New] The Secret Ingredient to Success 15 Activities that Enhance Learning While Listening to Talk Shows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youth-empowerment-your-life-story-can-inspire/"><u>[New] Youth Empowerment Your Life Story Can Inspire</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortless-webm-creation-10-best-youtube-video-transformers/"><u>[Updated] 2024 Approved Effortless WebM Creation 10 Best YouTube Video Transformers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-best-practices-in-choosing-the-perfect-format-for-youtube-videos-for-2024/"><u>[Updated] Best Practices in Choosing the Perfect Format for YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-cutting-edge-voice-altering-apps-for-vloggers/"><u>[Updated] Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-raw-footage-to-highlight-hits/"><u>[Updated] From Raw Footage to Highlight Hits</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>[Updated] In 2024, Chart Your Course Navigating the Waters of YouTube Subscription Surges</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-enhance-youtube-trademarks-tips-on-logo-and-watermark-addition/"><u>[Updated] In 2024, Enhance YouTube Trademarks Tips on Logo and Watermark Addition</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-precision-in-sound-10-tips-for-professional-audio-quality/"><u>[Updated] Precision in Sound 10 Tips for Professional Audio Quality</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-into-success-beginners-guide-to-hosting-tech-product-discussions-online/"><u>[Updated] Step-Into Success Beginner’s Guide to Hosting Tech Product Discussions Online</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/battle-of-brains-comparing-perplex-to-chatgpt-plus-for-top-tier-ai-chatting-experience/"><u>Battle of Brains: Comparing Perplex to ChatGPT Plus for Top-Tier AI Chatting Experience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/essential-guidelines-for-creating-emotional-connection-in-client-spots/"><u>Essential Guidelines for Creating Emotional Connection in Client Spots</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fast-fix-resolve-your-apps-origin-crash-problem-with-simple-steps/"><u>Fast Fix: Resolve Your App's 'Origin Crash Problem' With Simple Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-edit-like-a-pro-10-must-know-tips-for-newbies/"><u>[New] 2024 Approved Edit Like a Pro 10 Must-Know Tips for Newbies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-premium-listing-high-performing-15-camcorders/"><u>[New] 2024 Approved Premium Listing High-Performing 15 Camcorders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-voyage-to-victory-secrets-from-youtube-stars/"><u>[New] Video Voyage to Victory Secrets From YouTube Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-keeping-cameras-steady-in-motion-landscapes/"><u>[Updated] Keeping Cameras Steady in Motion Landscapes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pantheon-of-youtubes-all-time-highest-views/"><u>[Updated] Pantheon of YouTube's All-Time Highest Views</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-prime-video-capturing-applications/"><u>[Updated] Prime Video Capturing Applications</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tailor-your-narrative-crafting-engaging-youtube-descriptions-using-pre-set-templates/"><u>[Updated] Tailor Your Narrative Crafting Engaging YouTube Descriptions Using Pre-Set Templates</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-beyond-the-hype-facebooks-most-critical-24-trends/"><u>2024 Approved Beyond the Hype – Facebook's Most Critical '24 Trends</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/explore-tomorrows-technology-at-ces-201/"><u>Explore Tomorrow's Technology at CES 201</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722996649091-overcome-game-crashes-during-halo-infinite-sessions-on-pcs-now-fixed/"><u>Overcome: Game Crashes During Halo Infinite Sessions on PCs - Now Fixed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/quick-tips-for-saving-and-storing-vimeo-videos/"><u>Quick Tips for Saving and Storing Vimeo Videos</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/seamlessly-connect-with-ai-your-comprehensive-guide-on-leveraging-quora-chatbot-platforms-and-large-language-models/"><u>Seamlessly Connect with AI: Your Comprehensive Guide on Leveraging Quora, Chatbot Platforms & Large Language Models</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-installing-the-sportsdevil-extension-in-kodi/"><u>Step-by-Step Guide: Installing the SportsDevil Extension in Kodi</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/understanding-youtube-post-upload-process-for-2024/"><u>Understanding YouTube Post-Upload Process for 2024</u></a></li>
 </ul></div>
 

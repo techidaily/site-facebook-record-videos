@@ -1,7 +1,7 @@
 ---
 title: How to Improve Latency & Frame Rate in Counter-Strike 2 for Better Gameplay
-date: 2024-09-30T22:02:38.675Z
-updated: 2024-10-05T23:36:55.631Z
+date: 2024-10-07T18:33:50.330Z
+updated: 2024-10-12T04:08:48.407Z
 tags:
   - win11
   - win10
@@ -28,6 +28,13 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
 5. **[Adjust the in-game graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Configure your graphics card settings](https://tools.techidaily.com/drivereasy/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1 – Update your graphics driver
 
  The most common cause of Escape from Tarkov FPS drops is a faulty or outdated graphics driver. GPU manufacturers keep optimizing their drivers for the latest titles. So we recommend you check for the driver update regularly to ensure smooth gameplay.
@@ -42,19 +49,6 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
 3. Click**Update** **All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click**Update** **All** ). Or you can click**Update** to update the graphics driver for free, but it’s partly manual.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/amd-6800xt.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -75,10 +69,10 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
  If no programs are consuming your CPU or GPU but FPS drops reoccur, try the third fix.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3 – Change the PC power plan
@@ -90,26 +84,19 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
 2. Select**High** **performance** . (If you don’t see it, expand**Hide additional plans** .)  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-power-plan-2-1.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If you’re on a high-end PC, the**Ultimate Performance** mode may help you fully unleash the potential of your machine. Here’s how to enable this mode.
 
@@ -123,7 +110,21 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/ultimate-performance-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Check how the game works. If the issue persists, proceed to the next method.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 4 – Disable fullscreen optimizations
 
@@ -137,13 +138,26 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/disable-fullscreen-optimizations-1.jpg)
 4. Tick**Override high DPI scaling behaviour** and choose**Application** from the drop-down menu. Then, click**OK** to save the changes.  
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/disable-fullscreen-optimizations-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Launch EFT to check the game performance. If this gives you no luck, there are two more fixes to try.
@@ -158,10 +172,10 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 3. Scroll down to turn on**Mip Streaming** .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4. Navigate to the**GAME** tab and uncheck**Always show interface elements** ,**Auto RAM Cleaner** as well as**Use only the physical cores** .  
@@ -172,13 +186,6 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 6. Click**Save** to apply the changes.
 
  Test the issue again. If you’re still facing low FPS in Escape from Tarkov, continue to the next fix.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 6 – Configure the graphics card settings
 
@@ -191,19 +198,6 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 2. Select**3D settings** \>**Manage 3D settings** from the left pane.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/5-2-1.jpg)
 3. Navigate to the**Program Settings** and select the**EscapeFromTarkov.exe file** from the drop-down list.  
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/nvidia-settings.jpg)
 4. Modify the settings as below:  
@@ -251,17 +245,16 @@ Restart the game to test, and you should find the FPS increases now.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-become-a-youtube-partner/"><u>[New] How to Become A YouTube Partner</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-achieving-million-sub-milestone-the-youtube-guide-for-2024/"><u>[Updated] Achieving Million-Sub Milestone The YouTube Guide for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-breaking-down-t-series-income-mechanism-on-youtube-for-2024/"><u>[Updated] Breaking Down T-Series Income Mechanism on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-embark-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger-for-2024/"><u>[Updated] Embark on a Wanderlust Adventure Becoming A Professional Travel Vlogger for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>[Updated] Unlimited Christmas Classics 9 Films Available for No Charge</u></a></li>
-<li><a href="https://blog-min.techidaily.com/cdflac/"><u>「無料アプリで音楽を高品質にリマスター: CDからFlacへの変換ガイド」</u></a></li>
-<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-xiaomi-redmi-note-12-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Xiaomi Redmi Note 12 Pro 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/comprehending-generative-ai-an-introduction/"><u>Comprehending Generative AI: An Introduction</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Honor 90 GT? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Infinix Hot 40i | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/supercharge-your-content-editing-and-enhancing-youtube-tags-for-2024/"><u>Supercharge Your Content Editing and Enhancing YouTube Tags for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-for-repairing-your-hyperx-cloud-alphas-malfunctioning-mic/"><u>Troubleshooting Tips for Repairing Your HyperX Cloud Alpha's Malfunctioning Mic</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-propel-traffic-and-engagement-with-smart-youtube-backlink-strategies/"><u>[New] 2024 Approved Propel Traffic and Engagement with Smart YouTube Backlink Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-avoiding-pitfalls-in-sub4sub-key-lessons-from-a-seasoned-guide-for-2024/"><u>[New] Avoiding Pitfalls in Sub4sub Key Lessons From a Seasoned Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-efficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed/"><u>[New] In 2024, Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-melding-audio-with-visuals-digitally/"><u>[New] Melding Audio With Visuals Digitally</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-streamlit-splendor-hues-and-highlights-technique/"><u>[New] Streamlit Splendor Hues and Highlights Technique</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-capturing-every-detail-best-practices-for-hp-laptop-recording/"><u>[Updated] 2024 Approved Capturing Every Detail Best Practices for HP Laptop Recording</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-create-fantastic-youtube-description-with-templates-to-get-more-viewers-for-2024/"><u>[Updated] Create Fantastic YouTube Description With Templates To Get More Viewers for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-dive-into-fixes-for-your-troublesome-instagram-video/"><u>[Updated] In 2024, Dive Into Fixes for Your Troublesome Instagram Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-production-workflow-elevate-video-quality/"><u>[Updated] Streamline Production Workflow Elevate Video Quality</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-discover-the-most-reliable-android-apps-to-replay-your-favorite-ps2-games/"><u>2024 Approved Discover the Most Reliable Android Apps to Replay Your Favorite PS2 Games</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
 </ul></div>
 

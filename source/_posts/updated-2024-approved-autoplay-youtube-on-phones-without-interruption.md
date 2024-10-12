@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Autoplay YouTube on Phones without Interruption\""
-date: 2024-09-30T16:24:06.478Z
-updated: 2024-10-06T00:46:45.618Z
+date: 2024-10-07T03:15:32.700Z
+updated: 2024-10-11T17:00:21.646Z
 tags:
   - ai video
   - ai youtube
@@ -44,33 +44,39 @@ What makes YouTube Music popular among the premium subscribers is its ability to
 
 Once you have subscribed for the YouTube Premium Individual plan, and downloaded and installed the YouTube Music app, you can follow the instructions given below to **play YouTube in background Android or iPhone** smartphone.
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 1: Launch YouTube Music and Start Streaming
 
 Launch **YouTube Music**, search for your favorite music using the **Search** icon at the top-right corner, tap the song in the suggestions list, and then tap the name of the track to start playing.
 
 ![ YouTube Premium Play Music background](https://images.wondershare.com/filmora/article-images/youtube-premium-play-music-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Switch to Audio Only (Optional)
 
 Tap anywhere on the video player window, and tap **Audio** from the top of the screen to switch to the audio only mode where the video of the song won’t be played.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 3: Play YouTube in Background
 
 Use your phone-specific button or option to minimize YouTube Music. You can then either continue using your smartphone normally, or turn off the screen to **play YouTube in background**.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Play YouTube Videos in Background on iPhone
 
@@ -82,15 +88,22 @@ Launch Safari on your iPhone, and go to [**www.youtube.com**](https://www.youtub
 
 Use the regular method to search for the video you want to play in the background, and tap the **Play** button to start streaming.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Open a New Tab
 
 Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap **+** from the bottom-center. Notice how the YouTube video continues to play even when you are on the new tab.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Play YouTube in Background
@@ -107,19 +120,6 @@ Launch Google Chrome (default) on your Android phone, and go to [**www.youtube.c
 
 ![ Switch to YouTube desktop site on Android](https://images.wondershare.com/filmora/article-images/switch-to-desktop-site-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 2: Search for and Stream a Video
 
 Use the **Search** bar at the top of the interface to search for and tap the video you want to stream.
@@ -131,15 +131,41 @@ Once the video starts streaming, get back to the Home screen, pull down the **No
 ![ Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### [VLC for Android](https://play.google.com/store/apps/details?id=org.videolan.vlc&hl=en%5Fus)
 
@@ -153,23 +179,9 @@ This app does exactly what its name suggests. The program has a ‘Minimize play
 
 Yet another app available on Google Play Store that lets you search for your favorite videos on YouTube, stream them, and then minimize the player to a floating window that goes down to the bottom of the screen. This lets you **play YouTube in background** in order to allow you to use your phone for other tasks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Best Video Editing Software for YouTube
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -192,22 +204,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-photo-to-cartoon-software-for-windows-and-mac/"><u>[New] 2024 Approved Best Photo to Cartoon Software for Windows & Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-video-experience-best-youtube-to-avi-companions/"><u>[New] 2024 Approved Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-setting-up-seamless-network-video-broadcasts-with-vlc/"><u>[New] 2024 Approved Setting Up Seamless Network Video Broadcasts with VLC</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-evaluating-mr-beasts-monetary-world/"><u>[New] In 2024, Evaluating Mr. Beast's Monetary World</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-explore-the-top-7-innovative-apps-for-effortless-youtube-live-broadcasts-on-iphone-and-android/"><u>[New] In 2024, Explore the Top 7 Innovative Apps for Effortless YouTube LIVE Broadcasts on iPhone and Android</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-how-to-make-asmr-videos-all-you-need-to-know/"><u>[Updated] In 2024, How to Make ASMR Videos All You Need to Know</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-video-discovery-boosting-viewership-cost-free/"><u>[Updated] Strategies for Video Discovery Boosting Viewership Cost-Free</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-honor-x50-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Honor X50 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2023s-premier-ios-emulators-excellent-psp-gaming-choices-for-2024/"><u>2023'S Premier iOS Emulators Excellent PSP Gaming Choices for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-guide-to-making-your-youtube-content-stand-out/"><u>2024 Approved Step-by-Step Guide to Making Your YouTube Content Stand Out</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-collection-top-9-premium-wedding-movies-online/"><u>Essential Collection Top 9 Premium Wedding Movies Online</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/how-to-archive-your-nintendo-switch-gameplay-for-2024/"><u>How to Archive Your Nintendo Switch Gameplay for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-text-temporal-tinkering-tools/"><u>In 2024, Text Temporal Tinkering Tools</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solving-audio-problems-in-windows-10-a-comprehensive-5-step-guide/"><u>Solving Audio Problems in Windows 10: A Comprehensive 5-Step Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-top-5-non-youtube-editing-choices-for-2024/"><u>Unveiling the Top 5 Non-YouTube Editing Choices for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/who-holds-sway-over-youtube-subscribers-in-2024/"><u>Who Holds Sway Over YouTube Subscribers, In 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-editing-tips-and-tricks-for-shorter-videos-for-2024/"><u>YouTube Editing Tips and Tricks for Shorter Videos for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-flv-conversion-for-content-creators-top-10-youtubes-alternatives-unveiled/"><u>[New] 2024 Approved Flv Conversion for Content Creators Top 10 YouTubes Alternatives Unveiled</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-essential-choice-top-11-beginner-friendly-kids-camera-options/"><u>[New] Essential Choice Top 11 Beginner-Friendly Kids' Camera Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-brisk-technique-converting-photos-to-high-impact-youtube-desktop-thumbnails/"><u>[New] In 2024, Brisk Technique Converting Photos to High-Impact YouTube Desktop Thumbnails</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-frugal-flight-experts-choice-under-500-drone-guide/"><u>[New] In 2024, Frugal Flight Experts' Choice Under $500 Drone Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-finding-free-christian-ringtone-sources/"><u>[Updated] 2024 Approved Finding Free Christian Ringtone Sources</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-can-buying-likes-improve-youtube-rankings/"><u>[Updated] In 2024, Can Buying Likes Improve YouTube Rankings?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-the-budding-filmmakers-companion-understanding-display-quality-101-for-2024/"><u>[Updated] The Budding Filmmaker’s Companion Understanding Display Quality 101 for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-rights-infringement-abrupt-content-elimination/"><u>2024 Approved Rights Infringement Abrupt Content Elimination</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-oppo-find-x7-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Oppo Find X7?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-rotation-simplified-techniques-for-any-degree-updated-edition/"><u>In 2024, YouTube Rotation Simplified Techniques for Any Degree [Updated Edition]</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/streamline-your-game-logs-advanced-camcapturing-techniques-for-2024/"><u>Streamline Your Game Logs Advanced CamCapturing Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tips-and-tricks-for-creating-engaging-collab-videos-on-youtube-for-2024/"><u>Tips and Tricks for Creating Engaging Collab Videos on YouTube for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Examining Video Comments on YouTube"
-date: 2024-08-18T01:49:28.116Z
-updated: 2024-08-19T01:49:28.116Z
+date: 2024-10-05T03:00:26.252Z
+updated: 2024-10-12T04:46:21.703Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -74,8 +81,18 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -102,18 +119,12 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -125,13 +136,27 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -155,16 +180,11 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -172,3 +192,27 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-compelling-narratives-with-strategic-youtube-banners-for-2024/"><u>[New] Crafting Compelling Narratives with Strategic YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-masterclass-crafting-cinematic-youtube-videos-with-adobe-premiere/"><u>[New] Masterclass Crafting Cinematic YouTube Videos with Adobe Premiere</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-secrets-attracting-youtube-affiliates-with-minimal-channel-size/"><u>[New] Secrets Attracting YouTube Affiliates with Minimal Channel Size</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elite-gaming-setup-essentials-revealed/"><u>[Updated] 2024 Approved Elite Gaming Setup Essentials Revealed</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweeted-timeline-capture-securing-your-social-media-videos/"><u>[Updated] 2024 Approved Tweeted Timeline Capture Securing Your Social Media Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-popular-video-threads-for-2024/"><u>[Updated] Discovering Popular Video Threads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-mix-text-and-video-on-a-shoestring-budget/"><u>[Updated] How to Mix Text & Video on a Shoestring Budget</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exploring-t-series-youtube-profit-strategy/"><u>[Updated] In 2024, Exploring T-Series YouTube Profit Strategy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-witness-youtube-techniques-for-rapid-rendering/"><u>[Updated] Quick-Witness YouTube Techniques for Rapid Rendering</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-15-online-photo-editors-2023free-for-2024/"><u>Best 15 Online Photo Editors 2023[Free] for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/easing-the-way-we-pay-how-paypal-envisions-utilizing-stablecoin-cryptocurrencies-for-convenient-payments/"><u>Easing the Way We Pay: How PayPal Envisions Utilizing Stablecoin Cryptocurrencies for Convenient Payments</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-quickly-and-efficiently-trim-mp4-files-for-free-compatible-with-any-device/"><u>How To Quickly and Efficiently Trim MP4 Files for Free – Compatible with Any Device</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-apple-iphone-6s-plus-location-without-installing-software-drfone-by-drfone-virtual-ios/"><u>How to Track Apple iPhone 6s Plus Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/quick-guide-to-patch-up-erratic-filmmaker-productions/"><u>Quick Guide to Patch Up Erratic Filmmaker Productions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube-for-2024/"><u>The Content Dilemma Deciding on the Best Platform - IGTV or YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-rising-tide-of-infographics-for-social-insights-for-2024/"><u>The Rising Tide of Infographics for Social Insights for 2024</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-honor-90-gt-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Honor 90 GT Reset Code | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-hub-your-guide-to-computer-hardware/"><u>Tom's Tech Hub: Your Guide to Computer Hardware</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-4-ways-for-apple-iphone-15-pro-to-mac-mirroring-drfone-by-drfone-ios/"><u>Top 4 Ways for Apple iPhone 15 Pro to Mac Mirroring | Dr.fone</u></a></li>
+</ul></div>
+
