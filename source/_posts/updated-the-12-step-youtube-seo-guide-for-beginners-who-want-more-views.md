@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The 12-Step YouTube SEO Guide for Beginners Who Want More Views\""
-date: 2024-10-09T01:46:47.293Z
-updated: 2024-10-12T02:59:16.040Z
+date: 2024-10-16T23:16:57.488Z
+updated: 2024-10-18T01:59:08.030Z
 tags:
   - ai video
   - ai youtube
@@ -157,10 +157,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 **Branded**: Gordon Ramsay scrambled eggs
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Make The Best Darn Video Possible
@@ -197,13 +197,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -214,6 +207,13 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -221,6 +221,13 @@ Don’t want to pay money for a photo editing software such as Photoshop?
 You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
 
@@ -235,13 +242,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -268,16 +268,10 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -299,21 +293,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-creating-memorable-youtube-shorts-10-must-do-tips-for-2024/"><u>[New] Creating Memorable YouTube Shorts - 10 Must-Do Tips for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-differences-between-srgb-and-rgb/"><u>[New] Exploring the Differences Between Srgb & Rgb</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-flawless-free-download-of-youtube-video-covers-no-hurdles/"><u>[New] Flawless Free Download of YouTube Video Covers - No Hurdles!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beauty-blogging-101-starting-up-as-an-aesthetic-vlogger/"><u>[Updated] 2024 Approved Beauty Blogging 101 Starting Up as an Aesthetic Vlogger</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-efficiently-coordinating-group-activities-via-zoom/"><u>[Updated] 2024 Approved Efficiently Coordinating Group Activities via Zoom</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhance-brand-recognition-inserting-watermarklogo-in-youtube-videos/"><u>[Updated] 2024 Approved Enhance Brand Recognition Inserting Watermark/Logo in Youtube Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-is-screening-youtube-footage-illegal/"><u>[Updated] Is Screening YouTube Footage Illegal?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-antiquated-visuals-for-modern-audienciplines/"><u>[Updated] The Art of Antiquated Visuals for Modern Audienciplines</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-best-3d-software-perfect-for-youtube-openers/"><u>[Updated] The Best 3D Software Perfect for YouTube Openers</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-resolved-fixing-drive-readwrite-failures-due-to-inputoutput-disruptions/"><u>1. Resolved: Fixing Drive Read/Write Failures Due to Input/Output Disruptions</u></a></li>
-<li><a href="https://common-error.techidaily.com/beat-the-bugs-masterful-techniques-to-get-oddworld-soulstorm-running-on-windows-and-mac/"><u>Beat the Bugs! Masterful Techniques to Get Oddworld: Soulstorm Running on Windows and Mac</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-poco-c55-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Poco C55 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-infinix-smart-8-pro-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Infinix Smart 8 Pro Device</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-top-10-timecode-conversion-tools-for-accurate-timing-web-ios-android/"><u>New In 2024, Top 10 Timecode Conversion Tools for Accurate Timing (Web, iOS, Android)</u></a></li>
-<li><a href="https://driver-error.techidaily.com/resolving-nvidia-driver-setup-issue/"><u>Resolving Nvidia Driver Setup Issue</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/selecting-your-ideal-ready-to-play-custom-built-computer-system-a-comprehensive-guide/"><u>Selecting Your Ideal Ready-to-Play Custom-Built Computer System: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-yt-masterpieces-for-igtv-showcase/"><u>[New] 2024 Approved Crafting YT Masterpieces for IGTV Showcase</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-building-interest-with-budget-friendly-youtube-video-intros-for-2024/"><u>[New] Building Interest with Budget-Friendly YouTube Video Intros for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-bypassing-blackouts-with-video-tips-for-2024/"><u>[New] Bypassing Blackouts with Video Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>[New] YouTube Subscriber Awards The Play Button Awards for Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dialing-up-deliverables-a-comprehensive-guide-to-gainful-vlogging/"><u>[Updated] 2024 Approved Dialing Up Deliverables A Comprehensive Guide to Gainful Vlogging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-fresh-funds-finds-economical-monetization-platforms-for-beginners/"><u>[Updated] Fresh Funds Finds Economical Monetization Platforms for Beginners</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-become-the-brand-you-want-with-our-exclusive-set-of-free-graphics/"><u>[Updated] In 2024, Become the Brand You Want With Our Exclusive Set of FREE Graphics</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-enhance-yi-4k-video-quality-with-essential-kits/"><u>[Updated] In 2024, Enhance YI 4K Video Quality with Essential Kits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-to-design-lively-and-uplifting-content-shows/"><u>[Updated] Strategies to Design Lively and Uplifting Content Shows</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/avoiding-pitfalls-smart-strategies-for-acquiring-youtubes/"><u>Avoiding Pitfalls Smart Strategies for Acquiring Youtubes</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-the-key-to-unlocking-advanced-conversion-tracking/"><u>Cookiebot: The Key to Unlocking Advanced Conversion Tracking</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/explore-audio-customization-on-sony-playstation-devices-for-2024/"><u>Explore Audio Customization on Sony PlayStation Devices for 2024</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/1723199747968-genetics-play-a-significant-role-in-an-individuals-risk-of-developing-coronary-artery-disease-alongside-lifestyle-factors/"><u>Genetics Play a Significant Role in an Individual's Risk of Developing Coronary Artery Disease, Alongside Lifestyle Factors</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-iphone-11-pro-device-from-icloud-by-drfone-ios/"><u>How to Remove iPhone 11 Pro Device from iCloud</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-beginners-bliss-how-to-set-up-and-manage-a-podcast-live-stream-easily/"><u>In 2024, Beginner's Bliss How to Set Up and Manage a Podcast Live Stream Easily</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/quick-guide-on-duplicating-windows-server-2019-for-upgrading-to-ssd-hardware/"><u>Quick Guide on Duplicating Windows Server 2019 for Upgrading to SSD Hardware</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-gain-techniques-to-expand-your-channels-audience-for-2024/"><u>Quick-Gain Techniques to Expand Your Channel's Audience for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-honor-x50i-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Honor X50i Device</u></a></li>
 </ul></div>
 

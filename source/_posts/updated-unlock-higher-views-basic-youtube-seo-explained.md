@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlock Higher Views  Basic YouTube SEO Explained\""
-date: 2024-10-07T05:57:25.782Z
-updated: 2024-10-11T16:01:51.638Z
+date: 2024-10-12T16:06:14.883Z
+updated: 2024-10-17T21:52:08.427Z
 tags:
   - ai video
   - ai youtube
@@ -156,13 +156,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -197,6 +190,19 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -208,10 +214,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -228,6 +234,13 @@ Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -235,13 +248,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -267,16 +273,16 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -293,22 +299,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-boredom-learn-to-shuffle-youtube-lists/"><u>[New] In 2024, Avoid Boredom Learn to Shuffle YouTube Lists</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-becoming-a-confident-content-creator-youtubes-top-tips/"><u>[New] In 2024, Becoming a Confident Content Creator YouTube's Top Tips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-compreeve-youtube-extraction-11-tools-reviewed/"><u>[New] In 2024, Compreeve YouTube Extraction 11 Tools Reviewed</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-twittersphere-treasures-primes-top-watchers-and-likes/"><u>[Updated] 2024 Approved Twittersphere Treasures Prime’s Top Watchers & Likes</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-audacity-workshop-eloquent-silent-transitions/"><u>[Updated] Audacity Workshop Eloquent Silent Transitions</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-comprehensive-review-by-inclusive-experts-for-2024/"><u>[Updated] Comprehensive Review by Inclusive Experts for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-audiovisual-excellence-youtube-videos-in-premiere-pro/"><u>[Updated] In 2024, Audiovisual Excellence YouTube Videos in Premiere Pro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dancefloor-directives-expert-dj-video-downloads/"><u>[Updated] In 2024, Dancefloor Directives Expert DJ Video Downloads</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatxt-influence-on-modern-media-production/"><u>ChaTxt Influence on Modern Media Production</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-change-credit-card-from-your-iphone-se-apple-id-and-apple-pay-by-drfone-ios/"><u>How to Change Credit Card from Your iPhone SE Apple ID and Apple Pay</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-smile-smarter-crafting-text-memes-like-a-pro/"><u>In 2024, Smile Smarter Crafting Text Memes Like a Pro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-unlock-brand-potential-access-50-banners-at-no-cost/"><u>In 2024, Unlock Brand Potential - Access 50 Banners at No Cost!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/source-unlimited-stock-media-from-top-tier-4-youtube-channels-for-2024/"><u>Source Unlimited Stock Media From Top-Tier 4 YouTube Channels for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-comprehensive-guide-to-enhancing-your-video-gaming-channels-for-2024/"><u>The Comprehensive Guide to Enhancing Your Video Gaming Channels for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-resolving-recurring-fortnite-crashes-on-your-computer/"><u>Troubleshooting Guide: Resolving Recurring Fortnite Crashes on Your Computer</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-asus-rog-phone-8-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Asus ROG Phone 8 FRP Bypass</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-25-ultimate-android-and-ios-downloading-tools-reviewed-for-2024/"><u>[New] 25 Ultimate Android & iOS Downloading Tools Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-3-part-blueprint-to-monitor-and-maximize-your-youtube-profits/"><u>[New] In 2024, 3-Part Blueprint to Monitor and Maximize Your YouTube Profits</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhance-creativity-on-a-budget-pick-from-these-8-zero-price-edits-for-2024/"><u>[Updated] Enhance Creativity on a Budget Pick From These 8 Zero Price Edits for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-determining-vertical-or-horizontal-video-posts-on-fb/"><u>[Updated] In 2024, Determining Vertical or Horizontal Video Posts on FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-vlogging-nuances-with-confidence-and-clarity/"><u>[Updated] Navigating Vlogging Nuances with Confidence and Clarity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-music-library-mp3s-direct-to-youtube-playlist/"><u>[Updated] Streamline Your Music Library MP3s Direct to YouTube Playlist</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-pulse-of-printed-words-2-methods-of-bouncing-text/"><u>[Updated] The Pulse of Printed Words 2 Methods of Bouncing Text</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimal-methods-for-viewing-nba-games-online/"><u>2024 Approved Optimal Methods for Viewing NBA Games Online</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-unleash-your-inner-tech-wizard-xbox-one-snapshot-secrets-revealed/"><u>2024 Approved Unleash Your Inner Tech Wizard Xbox One Snapshot Secrets Revealed</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ais-influence-on-the-future-of-employment/"><u>AI's Influence on the Future of Employment</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-on-iphone-14-pro-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out On iPhone 14 Pro How to Bypass?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/effortlessly-remove-notes-on-your-iphone-with-the-stellar-eraser-available-now/"><u>Effortlessly Remove Notes on Your iPhone with the Stellar Eraser - Available Now!</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-disabled-apple-iphone-13-miniipad-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Disabled Apple iPhone 13 mini/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/movavi-aifwav-ai/"><u>MOVAVI 在線 AIF到WAV簡單轉換器 - 最新AI語音分析與保存技術</u></a></li>
 </ul></div>
 

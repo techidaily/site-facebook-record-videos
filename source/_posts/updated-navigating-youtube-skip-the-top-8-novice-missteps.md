@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating YouTube  Skip the Top 8 Novice Missteps\""
-date: 2024-10-05T22:43:00.118Z
-updated: 2024-10-12T01:00:35.535Z
+date: 2024-10-15T17:35:30.962Z
+updated: 2024-10-17T18:38:42.062Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,10 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ###  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -65,13 +65,6 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -80,6 +73,13 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -87,10 +87,10 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -110,10 +110,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -131,21 +131,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-crafting-authenticity-secrets-of-successful-video-endorsements/"><u>[New] 2024 Approved Crafting Authenticity Secrets of Successful Video Endorsements</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-add-a-professional-touch-youtube-video-image-crafting/"><u>[New] In 2024, Add a Professional Touch YouTube Video Image Crafting</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-harmonize-your-hours-synchronized-video-playback-across-platforms/"><u>[New] In 2024, Harmonize Your Hours Synchronized Video Playback Across Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-infographic-premier-fifa-videos-popularity-spotlight/"><u>[New] Infographic Premier FIFA Videos Popularity Spotlight</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-video-sources-and-uploading-on-instagram-for-2024/"><u>[New] Navigating Video Sources and Uploading on Instagram for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[Updated] 2024 Approved Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beginning-creators-guide-top-8-free-youtube-tutorials/"><u>[Updated] In 2024, Beginning Creator's Guide Top 8 Free YouTube Tutorials</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-binge-worthy-content-crafting-episodes-that-viewers-love/"><u>[Updated] In 2024, Binge-Worthy Content Crafting Episodes That Viewers Love</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-navigating-the-world-of-digital-sound-capture-a-deep-dive/"><u>[Updated] In 2024, Navigating the World of Digital Sound Capture A Deep Dive</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-master-the-art-of-tiktok-tidying-up-smart-strategies-for-oversized-drafts/"><u>2024 Approved Master the Art of TikTok Tidying Up Smart Strategies for Oversized Drafts</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-zte-nubia-z60-ultra-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of ZTE Nubia Z60 Ultra</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/boost-performance-optimizing-nvidias-3d-settings-via-control-panel/"><u>Boost Performance: Optimizing NVIDIA's 3D Settings via Control Panel</u></a></li>
-<li><a href="https://driver-download.techidaily.com/latest-nvidia-geforce-rtx-1080-driver-update-for-windows-11-made-easy/"><u>Latest Nvidia GeForce RTX 1080 Driver Update for Windows 11 Made Easy</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/shifting-paradigms-non-youtube-video-hosts-for-2024/"><u>Shifting Paradigms Non-Youtube Video Hosts for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-realme-gt-5-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Realme GT 5 | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/streamlined-video-grabber-your-free-downloader-companion-for-2024/"><u>Streamlined Video Grabber Your Free Downloader Companion for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-bridging-the-gap-youtube-editing-mastered-in-imovie-workflows/"><u>[New] 2024 Approved Bridging the Gap YouTube Editing Mastered in iMovie Workflows</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-guide-to-finding-clean-high-quality-images/"><u>[New] 2024 Approved Guide to Finding Clean, High-Quality Images</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-achieving-instagram-recognition-swiftly-for-2024/"><u>[New] Achieving Instagram Recognition Swiftly for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[New] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[New] In 2024, Dissolving Details Techniques to Anonymize YouTube Media</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-streamlined-techniques-blur-background-on-chrome-os-and-ios/"><u>[New] In 2024, Streamlined Techniques Blur Background on Chrome OS & iOS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-ultimate-guide-freepaid-screen-recorders-for-meet-video-for-2024/"><u>[New] Ultimate Guide Free/Paid Screen Recorders for Meet Video for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>[Updated] __Local Labor Costs__ The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-7-dslr-vlogging-cameras/"><u>[Updated] 2024 Approved Best 7 DSLR Vlogging Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos/"><u>[Updated] In 2024, Ace Your Edits In-Depth Guide to High-Quality YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneering-brands-spotlight-on-top-9-free-youtube-logos-craftors/"><u>[Updated] Pioneering Brands Spotlight on Top 9 Free YouTube Logos Craftors</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-secrets-of-the-savvy-the-ultimate-guide-to-the-best-12-free-image-banks/"><u>[Updated] Secrets of the Savvy - The Ultimate Guide to the Best 12 Free Image Banks</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-or-upgrade-the-tp-link-ub400-bluetooth-adapter-software-now/"><u>Install or Upgrade the TP-Link UB400 Bluetooth Adapter Software Now!</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-checklist-choosing-the-right-components-for-an-optimal-gaming-rig/"><u>The Ultimate Checklist: Choosing the Right Components for an Optimal Gaming Rig</u></a></li>
 </ul></div>
 

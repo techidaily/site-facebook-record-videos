@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Monetization Metrics  Viewers' Contribution to Earnings\""
-date: 2024-07-31T04:15:56.955Z
-updated: 2024-08-01T04:15:56.955Z
+date: 2024-10-12T00:25:19.439Z
+updated: 2024-10-18T05:42:51.235Z
 tags:
   - ai video
   - ai youtube
@@ -39,9 +39,6 @@ The reason is that YouTubers are not paid per view, they are paid per ad impress
 
 Want a fast answer about how much money a YouTuber makes? [Check out these calculators](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Types of YouTube Ads – What is an Ad Impression?
 
 If you ask YouTubers about how much they make per thousand views, you'll probably get a different answer depending on the person on who you ask. You may have already heard things like $5 per thousand views or $1,000 per 1 million views, but neither of these is for sure.
@@ -51,8 +48,12 @@ Google’s AdSense service, through which YouTubers make money, pays YouTubers f
 YouTubers do not make money on the views of their videos, because not all viewers click on ads. Many viewers bypass ads completely using ad-blockers. The amount of money YouTubers earn from a single ad impression is called their CPI or "cost per impression."
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## CPI Rates Explained
 
 YouTube advertising is currently managed inside the AdSense platform. In case you're not familiar with AdSense, you can have 2 different kinds of ads - the cost per click (CPC) or the cost per view (CPV).
@@ -73,9 +74,6 @@ How much you make from an ad on YouTube depends on your CPI, cost per impression
 
 Most people tend to assume that CPI rates are between $0.05 and $10\. This huge difference is justified by YouTube by saying that they use a very complicated algorithm to determine your CPI rate. According to them, it includes evaluating factors like the ads, the type of audience who views your video, audience engagement, audience retention, and the price of the ads.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## How Much Do Big YouTubers Make?
 
 Many people are aspiring to make money as famous YouTubers, but it is not an easy task. You have a long way to go before you start making any money at all.
@@ -86,10 +84,14 @@ Even though most people think that YouTube channels with 1 million subscribers a
 
 According to Google, when an advertiser pays $100 to Google, Google pays $68 to the publisher (in this case, the publisher is a YouTube creator).
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![How Much Do YouTuber Makes](https://images.wondershare.com/filmora/article-images/how-much-do-youtubers-make.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _This graphic won't apply to every situation because every situation is unique. It's just an example using assumed numbers._
 
@@ -122,8 +124,12 @@ Instead of relying on YouTube to pay them, YouTubers need to seek out other ways
 We all agree that being a YouTube star isn't an easy path. However, if you honestly love what you do, then you will be willing to put effort into making great videos regularly. Part of that is also being willing to take the time to promote them and yourself, as well as putting time and effort into forging a good relationship with your audience.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Why No Longer 10,000 Views?
 
 YouTube used to let anybody monetize their videos, but that has now changed. Then for a while, you'll qualify for monetization after reaching 10,000-lifetime views on your channel. But as of 2018, the rules to YouTube monetization has gotten more challenging.
@@ -138,10 +144,14 @@ The reason for this is that YouTube was having trouble with channels that were t
 
 _Are you finding it difficult to earn money on YouTube? Subscribe to the [Filmora.io YouTube channel](https://www.youtube.com/channel/UCuD18o7XuDBqMlDTCrJ2ReA) for more tips on channel monetization._
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,12 +159,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-audience-allure-spinning-solo-podcasts-that-go-viral/"><u>[New] Audience Allure Spinning Solo Podcasts That Go Viral</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discovering-youtube-studio-where-ideas-become-engaging-content-for-2024/"><u>[New] Discovering YouTube Studio Where Ideas Become Engaging Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-engaging-exchange-zones-for-2024/"><u>[New] Explore Engaging Exchange Zones for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-amplify-your-brands-voice-the-power-of-shaped-videos/"><u>[New] In 2024, Amplify Your Brand’s Voice The Power of Shaped Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-best-youtube-ad-creators/"><u>[Updated] 2024 Approved Best YouTube Ad Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-culinary-callings-innovative-naming-for-foodie-channels/"><u>[Updated] 2024 Approved Culinary Callings Innovative Naming for Foodie Channels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-your-essential-gift-a-compact-bundle-of-50-banners/"><u>[Updated] 2024 Approved Your Essential Gift A Compact Bundle of 50 Banners!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-content-seo-mastery-starts-here-for-2024/"><u>[Updated] Elevate Your Content SEO Mastery Starts Here for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieve-perfect-youtube-broadcasts-with-superior-webcams/"><u>[Updated] In 2024, Achieve Perfect YouTube Broadcasts with Superior Webcams</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-insider-guide-recording-full-desktop-scenes-in-w8-for-2024/"><u>[Updated] Insider Guide Recording Full Desktop Scenes in W8 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-join-ytp2024-strategies-for-thriving-on-youtube/"><u>[Updated] Join YTP2024 Strategies for Thriving on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rise-in-the-rankings-essential-seo-for-video-creators/"><u>[Updated] Rise in the Rankings Essential SEO for Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-full-spectrum-alliance-an-mcn-decision-blueprint/"><u>[Updated] The Full Spectrum Alliance An MCN Decision Blueprint</u></a></li>
+<li><a href="https://win11.techidaily.com/addressing-connection-dropouts-with-steam-remote/"><u>Addressing Connection Dropouts with Steam Remote</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-iphone-x-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from iPhone X</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/whats-new-with-bandicam-the-2023-expert-analysis-for-2024/"><u>What's New with Bandicam – The 2023 Expert Analysis for 2024</u></a></li>
+</ul></div>
 

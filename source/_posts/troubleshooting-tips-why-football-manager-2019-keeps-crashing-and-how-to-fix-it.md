@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It"
-date: 2024-10-10T03:58:35.157Z
-updated: 2024-10-11T20:57:45.431Z
+date: 2024-10-16T20:04:42.189Z
+updated: 2024-10-18T00:00:00.635Z
 tags:
   - win11
   - win10
@@ -29,13 +29,6 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
  Before you continue to the following fixes, please make sure your PC specs meet the **[minimum requirements](https://www.footballmanager.com/games/football-manager-2021)**  to play Football Manager 2021.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1 – Update your graphics driver
 
  If you’re using the wrong graphics driver or it’s outdated, it’s very likely that Football Manager 2021 will crash and malfunction. To run FM 21 smoothly, you should always keep your graphics driver up to date.
@@ -48,6 +41,13 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-1-8.jpg)
 3. Click the**Update** button next to the flagged graphics card driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-2-9.jpg)
@@ -64,6 +64,14 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 1. Launch Steam and navigate to the**Library** tab.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-1-5.jpg)
 2. Right-click**Football Manager 2021** from the game list and click**Properties** .  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
 3. Select**Local Files** and then click**Verify Integrity of Game Files** .  
 
@@ -84,19 +92,6 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
 If this method doesn’t help, go ahead with the next fix below.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 4 – Delete the Preferences and Caches folder
 
  According to Sports Interactive, Football Manager 2021 crashing may be caused by the custom data, and the very solution is to remove the preferences and caches folder. Don’t worry as this will not affect your game progress.
@@ -106,17 +101,17 @@ If this method doesn’t help, go ahead with the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/4-2-5.jpg)
 3. Navigate to the following locations:  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2021**
 4. Delete the**Preferences** and**Caches** folder.
 
 So does the crash go away now? If not, there is the last fix to try.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 5 – Set launch options
 
@@ -126,27 +121,33 @@ So does the crash go away now? If not, there is the last fix to try.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-1-5.jpg)
 2. Right-click**Football Manager 2021** and click**Properties** .  
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
 3. Click**Set Launch Options** .  
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-1-3.jpg)
 4. Type**–config very\_low** in the text field and click**OK** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-2-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Such setting may render FM 2021 in lower performance, but it will mitigate the crashing effectively.
 
@@ -175,22 +176,24 @@ So does the crash go away now? If not, there is the last fix to try.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-deep-dive-into-youtube-app-features-on-smartphones/"><u>[New] 2024 Approved A Deep Dive Into YouTube App Features on Smartphones</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-decode-the-mysteries-in-depth-guide-to-stardews-ginger-island-for-2024/"><u>[New] Decode the Mysteries In-Depth Guide to Stardew's Ginger Island for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-delve-into-discussions-of-dedicated-viewers-for-2024/"><u>[New] Delve Into Discussions of Dedicated Viewers for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transforming-your-shots-with-ease-in-photoshop/"><u>[New] Transforming Your Shots with Ease in Photoshop</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>[New] Transforming YouTube Footage The Essentials of WM Maker Use</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-essential-tools-for-efficient-mp4-segmentation-on-mac/"><u>[Updated] Essential Tools for Efficient MP4 Segmentation on Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cut-beyond-youtube-unveiling-the-top-5-video-editor-options/"><u>[Updated] In 2024, Cut Beyond Youtube Unveiling the Top 5 Video Editor Options</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-youtube-watching-with-list-rearrangement/"><u>[Updated] In 2024, Enhancing YouTube Watching with List Rearrangement</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneering-8-youtube-groups-with-steady-surge/"><u>[Updated] Pioneering 8 YouTube Groups with Steady Surge</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-unleashed-a-creators-guide-to-greatness/"><u>[Updated] YouTube Unleashed A Creator's Guide to Greatness</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-preloaded-extensions-exploring-uses-and-benefits/"><u>ChatGPT’s Preloaded Extensions: Exploring Uses and Benefits</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/exploring-telegram-why-its-different-from-other-messaging-services/"><u>Exploring Telegram – Why It's Different From Other Messaging Services</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-samsung-galaxy-a05s-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Samsung Galaxy A05s Phone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-nokia-c110-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Nokia C110 Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/sites-where-virtual-worlds-come-alive-for-2024/"><u>Sites Where Virtual Worlds Come Alive for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-5-innovative-iphone-os-18-updates-unveiled-at-wwdc-2024-the-dawn-of-enhanced-ai-capabilities-techspot/"><u>Top 5 Innovative iPhone OS 18 Updates Unveiled at WWDC 2024: The Dawn of Enhanced AI Capabilities | TechSpot</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-live-thumbnails-a-comprehensive-look-for-2024/"><u>YouTube Live Thumbnails A Comprehensive Look for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-android-sound-logging-without-rooting-need/"><u>[New] 2024 Approved Android Sound Logging - Without Rooting Need</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-art-of-humor-in-video-tips-for-facebook-and-instagram-memes/"><u>[New] 2024 Approved The Art of Humor in Video Tips for Facebook and Instagram Memes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tools-top-8-mirrorless-cams-for-professional-filmmakers-for-2024/"><u>[New] Essential Tools Top 8 Mirrorless Cams For Professional Filmmakers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-echoes-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger/"><u>[New] In 2024, Echoes of Exploration Your Step-by-Step Blueprint to Becoming a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-navigate-and-neutralize-your-own-overly-green-spectrum-in-youtube-videos-mac/"><u>[New] In 2024, Navigate and Neutralize Your Own Overly Green Spectrum in YouTube Videos (Mac)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-premier-recorder-clean-and-clear-android-edition/"><u>[New] In 2024, Premier Recorder Clean and Clear Android Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-the-music-merger-for-captivating-social-media-vids/"><u>[New] Mastering the Music Merger for Captivating Social Media Vids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-team-ups-finding-perfect-co-stars/"><u>[New] Mastering YouTube Team-Ups Finding Perfect Co-Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-doubt-into-action-channeling-vlogger-excellence/"><u>[New] Transforming Doubt Into Action Channeling Vlogger Excellence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-end-game-for-youtube-content-pros-secrets-and-templates-for-2024/"><u>[Updated] End Game for YouTube Content Pros' Secrets & Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discover-the-top-7-free-youtube-tag-extractor-vendors/"><u>[Updated] In 2024, Discover the Top 7 Free YouTube Tag Extractor Vendors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-youtube-video-splitting/"><u>[Updated] The Ultimate Guide to YouTube Video Splitting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unveiling-how-t-series-earnings-growth-on-youtube-works/"><u>[Updated] Unveiling How T-Series Earnings Growth on YouTube Works</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/from-ordinary-to-outstanding-mastering-instagram-editing-skills/"><u>From Ordinary to Outstanding Mastering Instagram Editing Skills</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-logitech-g29-software-downloads-compatible-with-win-10-8-and-7/"><u>Latest Logitech G29 Software Downloads Compatible with Win 10, 8, and 7</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-auditory-alteration-aids-for-streamers-and-clips-for-2024/"><u>Top Auditory Alteration Aids for Streamers and Clips for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/turn-zip-into-srt-a-step-by-step-conversion-process-for-2024/"><u>Turn ZIP Into SRT A Step-by-Step Conversion Process for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-the-full-potential-of-youtubes-adsense-features-for-2024/"><u>Unlocking the Full Potential of YouTube's AdSense Features for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unveiling-20-must-try-youtube-tricks-to-boost-views/"><u>Unveiling 20 Must-Try YouTube Tricks to Boost Views</u></a></li>
 </ul></div>
 
