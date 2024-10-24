@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-10-13T22:24:05.322Z
-updated: 2024-10-18T05:37:56.228Z
+date: 2024-10-20T20:47:12.146Z
+updated: 2024-10-24T00:11:38.664Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,17 +141,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-brand-battlegrounds-mastery-of-marketing-metrics-on-youtube-for-2024/"><u>[New] Brand Battlegrounds Mastery of Marketing Metrics on YouTube for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-filmoquery-your-guide-to-video-editing-insights-for-2024/"><u>[New] FilmoQuery Your Guide to Video Editing Insights for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-maximize-attention-try-these-7-budget-friendly-tools/"><u>[New] Maximize Attention - Try These 7 Budget-Friendly Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-traffic-elevate-rankings-essential-youtube-seo-for-2024/"><u>[Updated] Boost Traffic, Elevate Rankings - Essential YouTube SEO for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-explore-the-finest-free-luts-of-the-year/"><u>[Updated] Explore the Finest FREE LUTs of the Year</u></a></li>
-<li><a href="https://discover-comparisons.techidaily.com/5bci5a626yg45poh77ya5aac5l2v5ywn6lk75l255so5pya5l2z56gs56kf5ykz5lu96luf6auu77ym5a6m576o5zyw5a2y5yplusw5yuv5owl56ob56kf5y23/"><u>專家選擇：如何免費使用最佳硬碟備份軟體，完美地存取動態磁碟卷</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-iphone-se-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On iPhone SE? 7 Mehtods You Cant-Miss</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-can-you-unlock-iphone-13-pro-after-forgetting-the-passcode-by-drfone-ios/"><u>In 2024, Can You Unlock iPhone 13 Pro After Forgetting the Passcode?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-capturing-the-skies-in-depth-mavic-pro-discussion/"><u>In 2024, Capturing the Skies - In-Depth Mavic Pro Discussion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-how-to-make-a-playlist-on-youtube/"><u>In 2024, How to Make a Playlist on YouTube</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/precision-image-editing-on-iphone-with-best-apps-for-object-elimination/"><u>Precision Image Editing on iPhone with Best Apps for Object Elimination</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-full-spectrum-alliance-an-mcn-decision-blueprint-for-2024/"><u>The Full Spectrum Alliance An MCN Decision Blueprint for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-rearrangement-of-your-personalized-lists/"><u>[New] 2024 Approved Effortless Rearrangement of Your Personalized Lists</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-direct-youtube-file-access-tips-for-2024/"><u>[New] Direct YouTube File Access Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-your-youtube-comments-with-emoji-skills/"><u>[New] In 2024, Elevating Your YouTube Comments with Emoji Skills</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-a-fanbase-with-youtube-streams/"><u>[Updated] 2024 Approved Building a Fanbase with YouTube Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-the-world-of-aspect-ratios-in-youtube-content/"><u>[Updated] 2024 Approved Exploring the World of ASPECT RATIOS in YOUTUBE Content</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-top-download-sites-showcasing-exquisite-text-effects/"><u>[Updated] 2024 Approved Top Download Sites Showcasing Exquisite Text Effects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-banner-bonanza-unlimited-50-free-youtube-designs-for-2024/"><u>[Updated] Banner Bonanza Unlimited 50 FREE YouTube Designs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-design-your-closure-the-best-free-youtube-tutorials-for-2024/"><u>[Updated] Design Your Closure The Best Free YouTube Tutorials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-7-free-video-editing-programs-that-work-flawlessly/"><u>[Updated] In 2024, 7 Free Video Editing Programs That Work Flawlessly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-best-10-yogic-instructional-networks-for-wellness/"><u>[Updated] Unlocking the Best 10 Yogic Instructional Networks for Wellness</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-still-shots-to-dynamic-visuals-using-ai-effects/"><u>2024 Approved From Still Shots to Dynamic Visuals Using AI Effects</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-infinix-hot-40i-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Infinix Hot 40i</u></a></li>
+<li><a href="https://blog-min.techidaily.com/entendendo-a-garantia-do-movavi-condicoes-e-procedimentos-de-reembolso-clarificados/"><u>Entendendo a Garantia Do Movavi: Condições E Procedimentos De Reembolso Clarificados</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-infinix-hot-30i-by-drfone-android/"><u>How to Show Wi-Fi Password on Infinix Hot 30i</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-cutting-edge-techniques-for-youtube-video-edits-via-wm-maker/"><u>In 2024, Cutting-Edge Techniques for YouTube Video Edits via WM Maker</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exemplary-video-capture-top-5-slow-motion-cams/"><u>In 2024, Exemplary Video Capture Top 5 Slow Motion Cams</u></a></li>
+<li><a href="https://win-web.techidaily.com/step-by-step-guide-saving-and-recovering-your-outlook-2010-pop3-imap-and-smtp-settings/"><u>Step-by-Step Guide: Saving and Recovering Your Outlook 2010 POP3, IMAP & SMTP Settings</u></a></li>
 </ul></div>
 

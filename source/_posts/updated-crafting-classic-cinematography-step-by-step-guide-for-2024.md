@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Classic Cinematography  Step-by-Step Guide for 2024\""
-date: 2024-10-11T18:35:32.435Z
-updated: 2024-10-17T16:19:23.806Z
+date: 2024-10-16T22:46:06.532Z
+updated: 2024-10-23T21:35:15.099Z
 tags:
   - ai video
   - ai youtube
@@ -66,24 +66,24 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Steps for the vintage effect to videos on Wondershare Filmora Video Editor**
 
 **Step 1:** Upload video & make specific changes
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
@@ -95,11 +95,25 @@ The Old Video filter will immediately appear in the list of filters. Tap the **"
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The second step is to apply the Black & White filters. Go to the **Effects** tab and explore five Black & White filters available. Each of these filters is quite different and must be applied accordingly. Check the aesthetic of your video clip before any filter application to retro videos.
 
 **Step 3:** Add the Sun Kissed or Sepia Tone Rise Filters to the video clip
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-3.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There are various other categories of filters you can apply, such as Retro, Sun Kissed, and Sepia Tone, etc. The features of Filmora also present several subcategories such as Faux Film or Shake.
 
@@ -116,10 +130,10 @@ Now, you need to desaturate the video clip with Ash & Willow filters. We have ty
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
@@ -129,20 +143,6 @@ Then, we have combined the black & white filter with an overlay of Film Reel Hor
 You can also access the Advanced color correction Tab of Filmora from the Color button. It also features Preset and Adjusts Tabs to desaturate footage. The Preset presents a variety of options, including Black & White and Old Film. You just need to right-click the particular preset and select the Apply option.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
 
@@ -178,14 +178,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-epic-12-action-recorders-equipped-with-precision-gps-coordinates/"><u>[New] Epic 12 Action Recorders Equipped With Precision GPS Coordinates</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-user-engagement-with-detailed-video-chapters-in-youtube/"><u>[New] In 2024, Elevating User Engagement with Detailed Video Chapters in YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enlightenment-streams-foremost-ed-resources-online/"><u>[New] In 2024, Enlightenment Streams Foremost Ed Resources Online</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveil-exclusive-video-snippets-all-at-zero-cost/"><u>[New] Unveil Exclusive Video Snippets – All at Zero Cost</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-androidiphone-instruction-adding-music-files-to-fb-profile-for-2024/"><u>[Updated] Android/iPhone Instruction Adding Music Files to FB Profile for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-import-photos-and-videos-in-windows-10-deepest-secret/"><u>[Updated] How to Import Photos and Videos in Windows 10 (Deepest Secret)</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-key-revelations-from-the-facebook-papers/"><u>7 Key Revelations From The Facebook Papers</u></a></li>
-<li><a href="https://win-web3.techidaily.com/guide-facile-et-detaille-pour-restaurer-une-carte-compactflash-endommagee-sur-windows/"><u>Guide Facile Et Détaillé Pour Restaurer Une Carte CompactFlash Endommagée Sur Windows</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/rapid-learning-path-for-keying-mastery-for-2024/"><u>Rapid Learning Path for Keying Mastery for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleash-views-the-most-effective-30-freefire-tags-for-gamers/"><u>[New] Unleash Views The Most Effective 30 FreeFire Tags for Gamers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-group-gallery-video-extractor-for-2024/"><u>[Updated] Group Gallery Video Extractor for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cost-effective-recording-devices-the-ultimate-list/"><u>[Updated] In 2024, Cost-Effective Recording Devices The Ultimate List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-video-success-top-8-yt-thumbnail-strategies/"><u>[Updated] In 2024, Enhancing Video Success Top 8 YT Thumbnail Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-steps-towards-joining-filmoras-certified-creative-circle/"><u>[Updated] Steps Towards Joining Filmora's Certified Creative Circle</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-subtitles-made-simple-top-10-zero-cost-downloaders/"><u>[Updated] Subtitles Made Simple Top 10 Zero-Cost Downloaders</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effective-strategies-for-premiere-sound-transitioning/"><u>Effective Strategies for Premiere Sound-Transitioning</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-set-up-with-your-hp-officejet-3830-windows-driver-download-steps/"><u>Get Set Up with Your HP OfficeJet ^3830: Windows Driver Download Steps</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-from-vivo-by-drfone-android/"><u>How to Bypass FRP from Vivo?</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-poco-c55-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Poco C55 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/leading-green-visual-effects-recorders-operating-guide-for-2024/"><u>Leading Green Visual Effects Recorders Operating Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reviving-retro-film-techniques-detailed-instructions-for-2024/"><u>Reviving Retro Film Techniques Detailed Instructions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/speedy-screen-grab-creation-techniques-for-2024/"><u>Speedy Screen Grab Creation Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-reaction-gurus-playbook-crafting-unforgettable-videos-in-under-5-minutes-each-for-2024/"><u>The Reaction Guru's Playbook Crafting Unforgettable Videos in Under 5 Minutes Each for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-honor-play-7t-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Honor Play 7T</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-what-sets-apples-airpods-fourth-generation-aside-detailed-model-to-model-insights/"><u>Unveiling What Sets Apple's AirPods ˈFourth Generation Aside - Detailed Model-to-Model Insights</u></a></li>
 </ul></div>
 

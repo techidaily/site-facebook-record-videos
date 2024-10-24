@@ -1,7 +1,7 @@
 ---
 title: "[New] The Art of Disregarding Harmful YouTube Comments"
-date: 2024-07-31T04:05:54.042Z
-updated: 2024-08-01T04:05:54.042Z
+date: 2024-10-19T18:05:43.937Z
+updated: 2024-10-23T20:45:31.342Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a0
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a0
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/eba0a5b42c98b9f5083f688e46f3bb9b2578fe7a0
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,12 +60,39 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-building-gear-a-quick-start-guide/"><u>[New] 2024 Approved Channel-Building Gear A Quick Start Guide</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-unveil-the-8-greatest-places-to-download-3d-text-psd-files/"><u>[New] 2024 Approved Unveil the 8 Greatest Places to Download 3D Text PSD Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-aspects-of-sound-and-sight-in-asmr-recording-for-2024/"><u>[New] Elevate Your Aspects of Sound and Sight in ASMR Recording for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-imageslice-cutter/"><u>[Updated] ImageSlice Cutter</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-becoming-a-vlogger-voice-confident-content-creation-strategies/"><u>[Updated] In 2024, Becoming a Vlogger Voice Confident Content Creation Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-master-fast-sharing-youtube-playlists-made-simple/"><u>[Updated] Master Fast Sharing YouTube Playlists Made Simple</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-infinix-hot-30i-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/converge-your-viewing-proficiently-using-netflix-pip-mode/"><u>Converge Your Viewing Proficiently Using Netflix PIP Mode</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/instagram-images-deciphered-your-source-hunting-companion/"><u>Instagram Images Deciphered Your Source Hunting Companion</u></a></li>
+<li><a href="https://extra-support.techidaily.com/newcomers-pathway-maximizing-money-on-periscope-platform-for-2024/"><u>Newcomer's Pathway Maximizing Money on Periscope Platform for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-steps-for-unresponsive-corsair-icue-on-latest-windows-versions/"><u>Troubleshooting Steps for Unresponsive Corsair iCUE on Latest Windows Versions</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-step-by-step-process-for-expeditiously-converting-whatsapp-audio-recordings-into-mp3/"><u>Updated Step-by-Step Process for Expeditiously Converting WhatsApp Audio Recordings Into MP3</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

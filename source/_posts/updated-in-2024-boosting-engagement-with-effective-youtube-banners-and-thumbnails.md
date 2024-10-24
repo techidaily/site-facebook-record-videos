@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Boosting Engagement with Effective YouTube Banners & Thumbnails"
-date: 2024-07-31T04:06:24.602Z
-updated: 2024-08-01T04:06:24.602Z
+date: 2024-10-17T22:00:34.442Z
+updated: 2024-10-24T00:33:24.307Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/FS9_kF5MJpIZzmUCUp5-14NjFaQ=/400x300/fi
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://www.lifewire.com/thmb/FS9_kF5MJpIZzmUCUp5-14NjFaQ=/400x300/fi
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,23 +63,14 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -94,12 +79,40 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplify-engagement-utilizing-youtube-analytics-wisely/"><u>[New] 2024 Approved Amplify Engagement Utilizing YouTube Analytics Wisely</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-chrome-os-4-screenshots-tricks/"><u>[New] 2024 Approved Mastering Chrome OS 4 Screenshots Tricks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-creating-click-enticing-youtube-thumbnails/"><u>[New] The Ultimate Guide to Creating Click-Enticing YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-broadcasting-strategies-for-youtube-facebook-twitch-and-others/"><u>[Updated] 2024 Approved Broadcasting Strategies for YouTube, Facebook, Twitch, and Others</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-compelling-videos-youtubes-best-thumbnail-practices-for-2024/"><u>[Updated] Crafting Compelling Videos YouTube's Best Thumbnail Practices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[Updated] In 2024, Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-key-videographers-in-asmr-landscape/"><u>[Updated] Key Videographers in ASMR Landscape</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-online-money-tally-for-youtube-creators/"><u>[Updated] Online Money Tally for YouTube Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-guide-to-dynamic-sports-filmmaking/"><u>[Updated] Step-by-Step Guide to Dynamic Sports Filmmaking</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unveiling-youtubes-earnings-for-1m-views/"><u>[Updated] Unveiling YouTube's Earnings for 1M Views</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-vsf-video-capture-insights-a-critical-look/"><u>2024 Approved VSF Video Capture Insights A Critical Look</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/apple-watch-sos-alerts-and-more-a-comprehensive-guide-to-reaching-family-or-friends-anywhere-anytime/"><u>Apple Watch SOS Alerts & More: A Comprehensive Guide to Reaching Family or Friends Anywhere, Anytime</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-elevate-ig-stories-with-seamless-audio-integration/"><u>In 2024, Elevate IG Stories With Seamless Audio Integration</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-samsung-galaxy-a15-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Samsung Galaxy A15 5G FRP</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ng-5-audio-caps-for-streaming-enthusiasts-for-2024/"><u>Leading 5 Audio Caps for Streaming Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-the-self-play-feature-in-facebook-videos/"><u>Mastering the Self-Play Feature in Facebook Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-lenovo-thinkphone-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Lenovo ThinkPhone Android SIM Unlock APK</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-personalized-playlist-blueprint-for-youtube-for-2024/"><u>Your Personalized Playlist Blueprint for YouTube for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2024-07-31T04:09:13.983Z
-updated: 2024-08-01T04:09:13.983Z
+date: 2024-10-22T20:50:27.277Z
+updated: 2024-10-23T23:12:23.862Z
 tags:
   - ai video
   - ai youtube
@@ -35,16 +35,27 @@ You have a great idea for a video, but you’re just not sure how to express it 
 3. [After Writing Your YouTube Video Script](#after)
 4. [Bonus Tip- Add Subtitles to Your YouTube Video with Wondershare Filmora](#bonus)
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -54,9 +65,6 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
@@ -69,13 +77,6 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 4\. Make sure that the script is well structured
 
 It’s important to learn how to write a script that is well structured. Divide the script into four parts: Opening, Primer, Body, and Closing.
@@ -99,8 +100,12 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -111,15 +116,22 @@ These are the tips to keep in mind when considering how to write a script for a 
 
 Creating subtitles with Wondershare Filmora is very easy and a newbie can easily add relevant texts to the video they are trying to edit with Filmora. You just simply need to launch Wondershare Filmora and import the video that you want to edit. Now, go to the Titles tab and select the template that you want to pick and drag it on the timeline and click Apply. This way you can easily start adding texts and titles to your videos and let the alphabets narrate your story.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,12 +139,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-budding-buyers-guide-monetization-platforms-for-novice-channels/"><u>[New] 2024 Approved Budding Buyers Guide Monetization Platforms for Novice Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-free-introduction-software-for-youtubers-for-2024/"><u>[New] Best Free Introduction Software for Youtubers for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-how-to-create-amazing-mosaic-photo-collage/"><u>[New] How to Create Amazing Mosaic Photo Collage</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-maximize-viewing-experience-best-4k-downloader-apps/"><u>[New] In 2024, Maximize Viewing Experience Best 4K Downloader Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-journey-through-high-definition-with-lgs-31mu97-b-screen-review-for-2024/"><u>[New] Journey Through High Definition with LG’s 31MU97-B Screen Review for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-break-free-from-the-norms-crafting-your-own-streamer-identity/"><u>[Updated] In 2024, Break Free From The Norms Crafting Your Own Streamer Identity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-to-stellar-custom-shorts-thumbnails/"><u>[Updated] Step-by-Step to Stellar Custom Shorts Thumbnails</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/bluetooth-harmony-linking-airpods-with-windows/"><u>Bluetooth Harmony: Linking AirPods with Windows</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-correctly-address-physxloaderdll-not-found-issues-on-your-pc/"><u>How to Correctly Address 'PhysXLoader.dll Not Found' Issues on Your PC</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-complete-haul-video-manual-from-shopping-to-screen-time/"><u>In 2024, The Complete Haul Video Manual From Shopping to Screen Time</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-the-realm-of-time-lapses-gopro-hero-10-in-action-for-2024/"><u>Navigating the Realm of Time Lapses GoPro Hero 10 in Action for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rich-streamers-of-the-world/"><u>Superrich Streamers of the World</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-plan-for-building-your-ideal-youtube-playlist-for-2024/"><u>The Ultimate Plan for Building Your Ideal YouTube Playlist for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/what-is-aether-comprehensive-overview-and-how-to-participate-in-its-community/"><u>What Is Aether? Comprehensive Overview & How to Participate in Its Community</u></a></li>
+</ul></div>
 

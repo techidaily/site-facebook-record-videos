@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube's Visual Impact  Crafting Effective Thumbnails for 2024\""
-date: 2024-10-13T06:52:16.788Z
-updated: 2024-10-17T16:42:02.945Z
+date: 2024-10-18T00:43:47.109Z
+updated: 2024-10-23T21:29:44.424Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ Custom Thumbnail is a tool through which the viewers can understand everything a
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Best Practice From Experiences
 
 Now, since we know the importance of having a custom thumbnail, it is important to know how to make a thumbnail for Youtube look perfect, appealing, and eye-catching at the same time. There are some points to be considered while creating a thumbnail for Youtube. We will provide you with the best practices that we have learned throughout our journey of using Youtube and growing it from zero.
@@ -91,18 +98,18 @@ When we navigate to a Youtube thumbnail and place the cursor on it, it shows us 
 
 ![put-stuff-on-left](https://images.wondershare.com/filmora/article-images/put-stuff-on-left.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. #### Have a unique and Consistent style
 
 Try to make all your thumbnails follow the same style. Following the same style for all your Youtube thumbnails will make your channel look unique and all your videos identical. It will be easy for viewers to identify your videos when they see them. It gives your channel a touch of its unique brand.
 
 ![unique-and-consistent-style](https://images.wondershare.com/filmora/article-images/unique-and-consistent-style.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. #### Use elements to grab the attention
 
@@ -125,10 +132,10 @@ Do you know that Youtube can show a 3-second preview of your video when someone 
 ![choose-preview-wisely](https://images.wondershare.com/filmora/article-images/choose-preview-wisely.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ---
@@ -145,16 +152,16 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
 ![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
@@ -168,6 +175,13 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
 ![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
@@ -176,16 +190,16 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now you can add a background of your choice. You can upload an image or choose a simple color from Filmora's Media tab and drag it below the screenshot in the timeline.
 
 ![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
@@ -195,42 +209,29 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
 ![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
 ![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  ---
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add a Custom YouTube Thumbnail to Your Video in YouTube
 
@@ -256,13 +257,6 @@ Thumbnail is the first thing that helps the viewer decide whether to click on a 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -278,20 +272,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-ultimate-guide-to-bordered-ig-posts-using-best-apps/"><u>[New] 2024 Approved The Ultimate Guide to Bordered IG Posts Using Best Apps</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-ai-powered-podcast-names-the-ultimate-selection-list/"><u>[New] AI-Powered Podcast Names The Ultimate Selection List</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehending-the-language-of-youtube-seo/"><u>[New] In 2024, Comprehending the Language of YouTube SEO</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-cinematographers-journey-shooting-top-notch-youtube-content/"><u>[New] The Cinematographer's Journey Shooting Top-Notch YouTube Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-fast-fixes-for-chaotic-youtube-list-ordering/"><u>[Updated] Fast Fixes for Chaotic YouTube List Ordering</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-and-easy-audio-extraction-top-6-free-apps-to-convert-youtube-videos-to-mp3/"><u>[Updated] Quick & Easy Audio Extraction Top 6 Free Apps to Convert YouTube Videos to MP3</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-a-step-by-step-recorder-for-discord-enthusiasts/"><u>2024 Approved A Step-by-Step Recorder for Discord Enthusiasts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/discover-the-depths-of-funimate/"><u>Discover the Depths of Funimate</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-on-iphone-12-pro-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out On iPhone 12 Pro How to Bypass?</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Oppo Find X6 | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-leading-7-android-apps-to-cut-out-intrusive-ads-for-2024/"><u>The Leading 7 Android Apps to Cut Out Intrusive Ads for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-10-guides-for-crafting-stellar-music-reactions-on-youtube-for-2024/"><u>Top 10 Guides for Crafting Stellar Music Reactions on YouTube for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-your-connection-why-might-twitch-appear-unreachable/"><u>Troubleshooting Your Connection: Why Might Twitch Appear Unreachable?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unwanted-comments-made-easy-an-overview-for-2024/"><u>Unwanted Comments Made Easy An Overview for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-xiaomi-redmi-note-12-4g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Xiaomi Redmi Note 12 4G Phones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-conquering-the-labyrinth-of-lesser-known-youtube-content/"><u>[New] 2024 Approved Conquering the Labyrinth of Lesser-Known YouTube Content</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-elevating-roi-by-mastering-the-craft-of-fb-animated-advertising/"><u>[New] Elevating ROI by Mastering the Craft of FB Animated Advertising</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-charm-with-cost-free-visual-aids/"><u>[New] In 2024, Channel Charm with Cost-Free Visual Aids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-strategies-to-maximize-income-with-video-ads-on-youtube/"><u>[New] In 2024, Expert Strategies to Maximize Income with Video Ads on Youtube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-studio-sound-techniques-mac-basics/"><u>[New] Studio Sound Techniques Mac Basics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-purging-techniques-for-streaming-success/"><u>[Updated] 2024 Approved Audio Purging Techniques for Streaming Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-android-centric-top-downloads-for-youtube-videos-explored-for-2024/"><u>[Updated] Android-Centric Top Downloads for YouTube Videos Explored for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-boosting-dj-game-free-easy-online-beat-detectors-revealed/"><u>[Updated] Boosting DJ Game Free, Easy Online Beat Detectors Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-streaming-options-vimeo-vs-youtubes-popularity-for-2024/"><u>[Updated] Exploring Streaming Options Vimeo vs YouTube's Popularity for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-tutorial-transferring-youtube-videos-to-dailymotion/"><u>[Updated] The Ultimate Tutorial Transferring YouTube Videos to Dailymotion</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-essential-guidelines-for-creating-emotional-connection-in-client-spots/"><u>2024 Approved Essential Guidelines for Creating Emotional Connection in Client Spots</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-iphones-secret-to-quick-cost-free-red-eye-removal-revealed/"><u>2024 Approved IPhone's Secret to Quick, Cost-Free Red-Eye Removal Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-where-creativity-meets-technology-in-youtube-studio/"><u>2024 Approved Where Creativity Meets Technology in YouTube Studio</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-tecno-camon-30-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-activate-stellar-data-recovery-for-iphone-14-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Activate Stellar Data Recovery for iPhone 14 Plus | Stellar</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-essential-hashtag-analyzers-facebook-twitter-and-instagram-edition/"><u>In 2024, Essential Hashtag Analyzers Facebook, Twitter & Instagram Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimal-youtube-video-formats-a-comprehensive-guide-for-2024/"><u>Optimal YouTube Video Formats A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/simple-steps-to-freshly-update-windows-laptopdesktop-battery-drivers/"><u>Simple Steps to Freshly Update Windows Laptop/Desktop Battery Drivers</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Samsung Galaxy A24? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Charting the Course  From Scale to Submillions in Youtube\""
-date: 2024-07-31T04:09:37.636Z
-updated: 2024-08-01T04:09:37.636Z
+date: 2024-10-16T20:29:22.276Z
+updated: 2024-10-23T18:37:28.275Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/aefba9f0ac6f593076f657b0dfeebc66593ffd1b9
 
 # Case Study: How to Grow on YouTube to Have Millions of Subs
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -33,14 +30,8 @@ You’ve probably heard of stories about individuals who managed to find financi
 
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Case Study of McJuggerNuggets
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
@@ -92,20 +83,37 @@ Regular research into your target market will help you to create the trendiest n
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -113,12 +121,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-windows-11s-latest-traits-unveiled/"><u>[New] 2024 Approved Windows 11'S Latest Traits Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-audio-extraction-best-youtube-to-mp3-tools-list-for-2024/"><u>[New] Effortless Audio Extraction Best YouTube to MP3 Tools List for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-how-to-increase-followers-on-instagram-ultimate-guide/"><u>[New] In 2024, How to Increase Followers on Instagram - Ultimate Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-buy-subscribers-wisely-watch-your-numbers-soar/"><u>[Updated] In 2024, Buy Subscribers Wisely, Watch Your Numbers Soar</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-steps-to-create-youtube-beginnings-and-ends-on-a-budget/"><u>[Updated] In 2024, Essential Steps to Create YouTube Beginnings & Ends on a Budget</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-note-networks-audit-sound-file-archives/"><u>[Updated] In 2024, Note Networks Audit Sound File Archives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-incorporating-yt-playlists-into-web-design/"><u>[Updated] Incorporating YT Playlists Into Web Design</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-superior-streaming-made-simple-enabling-av1-in-youtube/"><u>[Updated] Superior Streaming Made Simple Enabling AV1 in YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tactics-for-making-youtube-videos-go-viral/"><u>[Updated] Tactics for Making YouTube Videos Go Viral</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-realme-narzo-n55-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Realme Narzo N55</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/les-4-solutions-essentielles-pour-reconstruire-une-table-de-partition-sous-systemes-dexploitation-microsoft-windows-10-11-8-ou-e/"><u>Les 4 Solutions Essentielles Pour Reconstruire Une Table De Partition Sous Systèmes D'Exploitation Microsoft (Windows 10, 11, 8 Ou E)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/photographic-power-up-grid-software-of-the-decade/"><u>Photographic Power-Up Grid Software of the Decade</u></a></li>
+<li><a href="https://techtrends.techidaily.com/wifis-future-unveiled-the-breakdown-and-benefits-of-ieees-newest-standards-including-ax-and-bgn-series/"><u>WiFi's Future Unveiled: The Breakdown and Benefits of IEEE's Newest Standards, Including AX and B/G/N Series</u></a></li>
+</ul></div>
 

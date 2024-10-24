@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Optimizing YouTube Banners with Best Practices in Mind"
-date: 2024-07-31T04:04:26.624Z
-updated: 2024-08-01T04:04:26.624Z
+date: 2024-10-22T16:39:51.417Z
+updated: 2024-10-23T22:22:17.763Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/9681e2a52e53572a5b2a969e09d45c7b049caa711
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,14 +37,8 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 * **[What Should I Write on Banner?](#write)**
 * **[How Can I Make My Channel Art Look Good?](#good)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -82,6 +73,13 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### _Do: Include Your Channel Name_
 
 While including your channel name in your banner seems like a no brainer, it is often left out by aspiring YouTubers. Displaying your channel name in a large font allows it to be more visible for viewers - your channel name is already on the page, but it is underneath your channel art and doesn’t stand out.
@@ -102,6 +100,13 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -113,6 +118,13 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -134,21 +146,19 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -157,12 +167,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expedite-youtube-video-submission-rapid-rendering-secrets/"><u>[New] 2024 Approved Expedite YouTube Video Submission Rapid Rendering Secrets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-best-8-concealed-video-downloading-software-of-2023-for-2024/"><u>[New] Best 8 Concealed Video Downloading Software of 2023 for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-common-pitfalls-with-proper-use-of-youtube-tags/"><u>[New] In 2024, Avoid Common Pitfalls with Proper Use of YouTube Tags</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mcb-channel-background-and-template-set/"><u>[New] MCB Channel Background & Template Set</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-mastery-the-beginners-guide-to-editing-excellence/"><u>[New] Unlock Mastery The Beginner's Guide to Editing Excellence</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-get-ahead-with-these-must-know-pixlr-techniques/"><u>[Updated] Get Ahead with These Must-Know Pixlr Techniques</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-remedying-silent-tweets-with-audio-integration/"><u>2024 Approved Remedying Silent Tweets with Audio Integration</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722102291443-auto-gpt-vs-gpt-4-assessing-the-value-of-using-auto-gpt-without-advanced-capabilities/"><u>Auto-GPT Vs. GPT-4: Assessing the Value of Using Auto-GPT Without Advanced Capabilities.</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-apple-fights-back-against-vandalism-in-the-metaverse-a-breakthrough-patent-for-erasing-digital-tags-and-graffiti/"><u>How Apple Fights Back Against Vandalism in the Metaverse: A Breakthrough Patent for Erasing Digital Tags and Graffiti</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-next-morning-analysis-fresh-insights/"><u>In 2024, Next Morning Analysis Fresh Insights</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-stability-how-to-prevent-constant-crashing-of-the-fuser-application-in-microsoft-systems/"><u>Mastering Stability: How to Prevent Constant Crashing of the Fuser Application in Microsoft Systems</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Perfect Your Presence with Solo Video Setups and Techniques"
-date: 2024-07-31T04:07:21.802Z
-updated: 2024-08-01T04:07:21.802Z
+date: 2024-10-16T18:53:10.005Z
+updated: 2024-10-23T23:44:41.306Z
 tags:
   - ai video
   - ai youtube
@@ -31,9 +31,6 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -41,13 +38,14 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -61,6 +59,13 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -76,9 +81,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -87,9 +89,6 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -110,12 +109,23 @@ Looking to find the right lights for your video recording set? Check out our [To
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -123,12 +133,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-the-ultimate-windows-mobile-video-playback-guide/"><u>[New] 2024 Approved The Ultimate Windows Mobile Video Playback Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-video-magic-with-imovie-directed-to-youtube-for-2024/"><u>[New] Crafting Video Magic with iMovie, Directed to YouTube for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter-for-2024/"><u>[New] Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-hashtags-that-work-in-gaming-vlogs/"><u>[New] The Ultimate Guide Hashtags That Work in Gaming Vlogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-yt-thumbnails-downloading-via-browser-app-and-command-line/"><u>[New] YT Thumbnails Downloading via Browser, App & Command Line</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-streamlined-process-for-hassle-free-hdr-shots/"><u>[Updated] 2024 Approved Streamlined Process for Hassle-Free HDR Shots</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[Updated] In 2024, Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-video-platform-profiles-vimeo-vs-youtube-comparison/"><u>2024 Approved Video Platform Profiles Vimeo vs YouTube Comparison</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/convert-avi-videos-into-high-impact-gifs-using-filmora-for-windowsmacos-for-2024/"><u>Convert AVI Videos Into High Impact GIFs Using Filmora for Windows/MacOS for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-impactful-influence-of-artificial-intelligence-chatbots-on-contemporary-writing-techniques/"><u>Exploring the Impactful Influence of Artificial Intelligence Chatbots on Contemporary Writing Techniques</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-high-input-delay-in-your-gameplay-of-cyberpunk-2dark-dreams-digital-official-site-for-cd-projekt-red-games-witcher-series-cyberpunk-2077-and-more/"><u>Fixing High Input Delay in Your Gameplay of Cyberpunk 2#Dark Dreams Digital - Official Site for CD Projekt Red Games, Witcher Series, Cyberpunk 2077, and More!</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-apple-iphone-12-by-drfone-ios/"><u>How to Fix Locked Apple ID on Apple iPhone 12</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/how-to-make-a-thumbnail-for-your-youtube-free-easily-in-2024/"><u>How to Make a Thumbnail for Your YouTube Free Easily, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-15-popular-youtube-intro-video-templates/"><u>In 2024, 15 Popular YouTube Intro Video Templates</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-capturing-crystal-clear-photos-without-spending/"><u>In 2024, Capturing Crystal Clear Photos Without Spending</u></a></li>
+</ul></div>
 

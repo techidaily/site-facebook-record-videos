@@ -1,7 +1,7 @@
 ---
 title: "Solution Strategies: When Google Chrome Refuses to Open Up"
-date: 2024-10-14T18:26:32.536Z
-updated: 2024-10-17T17:54:54.086Z
+date: 2024-10-16T17:47:52.039Z
+updated: 2024-10-23T23:02:50.422Z
 tags:
   - win11
   - win10
@@ -56,6 +56,13 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Lower graphics settings
 
  It is possible that the black screen issue occurs because of your graphics card cannot capable the high settings in the game or the game and your graphics card are not compatible with the latest build that you’re using. So try to lower graphics settings in Fortnite to see whether it resolves this problem or not.
@@ -76,16 +83,10 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 ---
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method: Update your graphics card
@@ -119,37 +120,17 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update** button next to the driver to automatically download and install the correct version of this driver (you can do this with Free version). Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Reboot your computer and run Fortnite to check the black screen issue will appear or not.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 4: Use your integrated graphics card
 
@@ -160,10 +141,10 @@ OR
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 5: Change scale and layout limit
@@ -178,6 +159,13 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display1.jpg)
 4. Reboot Fortnite and check whether this problem is resolved.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 6: Unblock the game from Windows Firewall
 
  It is possible that the Fortnite black screen issue is caused by Windows Firewall block. If the Windows Firewall blocks some features of Fortnite, this problem may appear and ruin your game experience. You can unblock Fortnite in Windows Firewall to solve the problem.
@@ -189,22 +177,16 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall.jpg)
 3. Find Fortnite and check whether it has been blocked or not.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4. Click**Change Settings** if it does and check all the boxes to enable the app through the firewall.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall-1.jpg)
 5. Reboot Fortnite and check whether this problem is resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ---
 
@@ -229,21 +211,20 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-stronger-presence-with-effective-youtube-pairings/"><u>[New] In 2024, Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-through-the-clutter-youtubes-copyright-evolution/"><u>[New] In 2024, Cutting Through the Clutter YouTube's Copyright Evolution</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-ensuring-earning-potential-on-youtubers/"><u>[New] In 2024, Ensuring Earning Potential on YouTubers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-how-to-add-stickers-to-instagram-story-and-post/"><u>[Updated] 2024 Approved How to Add Stickers to Instagram Story and Post?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>[Updated] In 2024, Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-viral-videos-for-higher-youtube-popularity/"><u>[Updated] Mastering The Art of Viral Videos for Higher YouTube Popularity</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-vanishing-acts-how-to-blur-faces-and-objects-online/"><u>[Updated] Vanishing Acts How to Blur Faces and Objects Online</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-itel-a70-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Itel A70 Location | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/luminous-leadership-elevating-content-through-insta-hits-for-2024/"><u>Luminous Leadership Elevating Content Through Insta Hits for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/m4-powered-new-mac-mini-compact-performance-comparable-to-apple-tv-detailed-review/"><u>M4-Powered New Mac Mini: Compact Performance Comparable to Apple TV, Detailed Review</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/mondly-presents-its-revamped-question-answer-center/"><u>Mondly Presents Its Revamped Question Answer Center</u></a></li>
-<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-vivo-v29e-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of Vivo V29e on Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/ultimate-collection-premium-dj-visuals-available-for-download-for-2024/"><u>Ultimate Collection Premium DJ Visuals Available for Download for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-removing-programs-from-your-samsung-tv-box/"><u>Ultimate Guide: Removing Programs From Your Samsung TV Box</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/zero-down-time-fixes-for-tackling-error-code-0xc0000098-on-your-windows-computer/"><u>Zero Down-Time Fixes for Tackling Error Code 0xC0000098 on Your Windows Computer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-assembling-channel-summaries-that-attract-for-2024/"><u>[New] Assembling Channel Summaries That Attract for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-hand-to-hand-heroes-the-definitive-switch-fighting-game-countdown/"><u>[New] Hand-to-Hand Heroes The Definitive Switch Fighting Game Countdown</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-detailed-analysis-of-youtubes-versus-dailymentions/"><u>[New] In 2024, Detailed Analysis of YouTubes Versus DailyMentions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-legal-boundaries-of-online-video-capturing-tools/"><u>[New] Legal Boundaries of Online Video Capturing Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-mastering-pc-tiktok-live-streams-a-step-by-step-guide/"><u>[New] Mastering PC TikTok Live Streams A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-youtube-cpm-for-content-creators-success-for-2024/"><u>[Updated] Decoding YouTube CPM for Content Creators' Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-insight-free-access-to-1-6-video-clips-for-2024/"><u>[Updated] Exclusive Insight Free Access to #1-#6 Video Clips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-investigating-why-specific-youtube-remarks-get-prominence/"><u>[Updated] Investigating Why Specific YouTube Remarks Get Prominence</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/finding-the-social-beacons-in-your-interests-digital-landscape-for-2024/"><u>Finding the Social Beacons in Your Interests’ Digital Landscape for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-ordinary-to-extraordinary-the-ultimate-iphoneandroid-screenshot-enhancers-list/"><u>From Ordinary to Extraordinary The Ultimate iPhone/Android Screenshot Enhancers List</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-the-ultimate-list-of-superior-real-time-streaming-networks/"><u>In 2024, The Ultimate List of Superior Real-Time Streaming Networks</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/newly-released-nvidia-rtx-3080-ti-driver-downloads-fully-compatible-with-windows-1087/"><u>Newly Released NVIDIA RTX 3080 Ti Driver Downloads: Fully Compatible with Windows 10/8/7</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/no-cost-youtube-audio-tools-for-seamless-mp3-downloads-for-2024/"><u>No-Cost YouTube Audio Tools for Seamless MP3 Downloads for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-easy-way-to-download-and-update-sound-blaster-z-drivers-for-windows-11-users/"><u>Quick & Easy Way to Download and Update Sound Blaster Z Drivers for Windows 11 Users</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-xcover-6-pro-tactical-edition-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
 </ul></div>
 

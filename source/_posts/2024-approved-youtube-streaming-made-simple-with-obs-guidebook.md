@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Youtube Streaming Made Simple with OBS Guidebook\""
-date: 2024-07-31T04:08:02.053Z
-updated: 2024-08-01T04:08:02.053Z
+date: 2024-10-20T19:54:01.960Z
+updated: 2024-10-23T18:30:17.826Z
 tags:
   - ai video
   - ai youtube
@@ -29,41 +29,20 @@ thumbnail: https://thmb.techidaily.com/70eb207ffd605d91a6b2f543dd9aa1d6c7a04729a
 * [Part3\. Youtube Events set up](#part3)
 * [Part4\. Video tutorial](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Stream Now set up
 
 Follow these steps to live stream your impressive videos to YouTube using Stream Now tool:
 
 **Step 1:** First of all you need to login with your account and then move to Creator Studio option directly.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ creator studio](https://images.wondershare.com/filmora/article-images/creator-studio.jpg)
 
 **Step 2:** Choose the Video Manager option from top most toolbar.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![video manager ](https://images.wondershare.com/filmora/article-images/video-manager.jpg)
 
 **Step 3:** From the drop down menu, simply select Live Streaming option to begin with.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
 
 **Step 4:** Now hot the steam now option on your screen.
@@ -88,23 +67,14 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 **Step 9:** It also provides options to add cards.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![add your cards ](https://images.wondershare.com/filmora/article-images/add-your-cards.jpg)
 
 **Step 10:** Now move to encoder setup and then simply copy and paste these details to your streaming software.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![ encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
 
 **Step 11:** Now you can set your live chat option as per your requirement.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
-<!-- affiliate ads end -->
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
@@ -113,16 +83,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 **Step 13:** Stream health can be monitored directly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
 
 **Step 14:** One can also use the social media button for live shares.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
 
 ## 2.Set up Your Live Streaming Encoder
@@ -133,25 +97,10 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 **Step 2:** Now launch OBS on your device and directly go to settings option.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Go to setting](https://images.wondershare.com/filmora/article-images/go-to-setting.jpg)
 
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
 
 **Step 4:** Users can now add their sources and scenes.
@@ -160,10 +109,20 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 **Step 5:** Once all these settings are done then you can simply hit the option for start streaming and it will bring your content to YouTube directly.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ click start streaming](https://images.wondershare.com/filmora/article-images/click-start-streaming.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Youtube Events set up
 
@@ -173,29 +132,51 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![schedule ](https://images.wondershare.com/filmora/article-images/schedule.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** It is much easier to make settings for basic information as well as audience type. Make some desired changes to SNS platform. If you select the Quick type then it will directly select your webcam and you need not to make additional complicated settings whereas the custom type option provides easy set up options with OBS.
 
 ![set the basic ](https://images.wondershare.com/filmora/article-images/set-the-basic.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
 ![ advance setting](https://images.wondershare.com/filmora/article-images/advance-setting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 4:** Users can turn monetization On or Off as per their preferences.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ monetization](https://images.wondershare.com/filmora/article-images/monetization.jpg)
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 5:** As soon as you finish all above settings then simply click on the create event option.
 
@@ -203,9 +184,6 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 6:** One more window will appear on your screen and here you can make adjustment for preferred bit rate. Also put your dedicated stream key with encoder.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![ your bitrate](https://images.wondershare.com/filmora/article-images/your-bitrate.jpg)
 
 **Step 7:** When all above steps are completed then you need to hit the option for save changes so that your tool can act accordingly.
@@ -216,15 +194,19 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
 
 ## Video tutorial
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -233,12 +215,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-unearthing-the-obscured-videotapes/"><u>[New] 2024 Approved YouTube Unearthing the Obscured Videotapes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-a-legacy-youtubers-playbook-for-success/"><u>[New] In 2024, Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-maximize-creativity-with-top-10-cost-free-photo-editors-online/"><u>[New] Maximize Creativity with Top 10 Cost-Free Photo Editors Online</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-melody-meets-discovering-crossfade-magic/"><u>[New] The Melody Meets Discovering Crossfade Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-create-a-standout-presence-with-youtube-custom-imagery/"><u>[Updated] 2024 Approved Create a Standout Presence with YouTube Custom Imagery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-video-threads-on-youtube/"><u>[Updated] 2024 Approved Exploring Video Threads on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-your-video-brand-tips-for-great-youtube-banners-for-2024/"><u>[Updated] Elevating Your Video Brand Tips for Great YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneering-youtube-fitness-ideas-for-a-movement-driven-viewership/"><u>[Updated] Pioneering YouTube Fitness Ideas for a Movement-Driven Viewership</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/deciding-on-a-tablet-how-to-determine-if-you-should-go-with-amazon-fire-or-samsung/"><u>Deciding on a Tablet: How to Determine if You Should Go with Amazon Fire or Samsung</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-xs-max-devices-entirely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone XS Max Devices Entirely | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-step-by-step-guide-to-seamlessly-downloading-and-modifying-tamil-ringtones/"><u>In 2024, Step-by-Step Guide to Seamlessly Downloading and Modifying Tamil Ringtones</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-oppo-f25-pro-5g-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Oppo F25 Pro 5G Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-complete-users-manual-to-mac-dvd-burning/"><u>The Complete User's Manual to Mac DVD Burning</u></a></li>
+</ul></div>
 

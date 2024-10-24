@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Making YT Thumbnails Pop  A Mac-Centric Approach\""
-date: 2024-10-11T20:54:24.085Z
-updated: 2024-10-18T06:19:27.260Z
+date: 2024-10-16T21:44:10.562Z
+updated: 2024-10-23T18:46:44.400Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,23 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
@@ -65,10 +79,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -76,20 +90,6 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -105,14 +105,14 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -129,22 +129,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-10-best-desktop-and-online-gif-tools-ranked/"><u>[New] 2024 Approved 10 Best Desktop & Online GIF Tools Ranked</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-5-steps-to-crafting-engaging-cost-effective-youtube-ads/"><u>[New] 2024 Approved 5 Steps to Crafting Engaging, Cost-Effective YouTube Ads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-brand-your-channel-innovative-banner-templates-for-gamers/"><u>[New] In 2024, Brand Your Channel Innovative Banner Templates for Gamers</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-facebook-livestreaming-on-roku/"><u>[New] In 2024, Unveiling Facebook Livestreaming on Roku</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-navigating-your-srt-files-with-mac-expertise-for-2024/"><u>[New] Navigating Your SRT Files with Mac Expertise for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-to-instagram-posting-videos-effortlessly/"><u>[New] YouTube to Instagram Posting Videos Effortlessly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-complete-guide-to-crafting-best-in-class-yt-thumbnails/"><u>[Updated] In 2024, A Complete Guide to Crafting Best-in-Class YT Thumbnails</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-notes-and-alerts-implementation/"><u>[Updated] Mastering YouTube Notes & Alerts Implementation</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-captioning-for-clearer-communication/"><u>[Updated] YouTube Captioning for Clearer Communication</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/download-premium-video-covers-free-fast-and-easy-in-2024/"><u>Download Premium Video Covers - Free, Fast & Easy, In 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/how-to-artfully-diminish-image-details/"><u>How to Artfully Diminish Image Details</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-country-on-app-store-for-iphone-7-with-7-methods-by-drfone-ios/"><u>How To Change Country on App Store for iPhone 7 With 7 Methods</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-step-by-step-converting-pinterest-vids-to-mp3-audio/"><u>In 2024, Step-by-Step Converting Pinterest Vids to MP3 Audio</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-windows-10-webcam-recording-made-easy-top-10-software/"><u>New 2024 Approved Windows 10 Webcam Recording Made Easy Top 10 Software</u></a></li>
-<li><a href="https://review-topics.techidaily.com/realme-gt-5-240w-video-recovery-recover-deleted-videos-from-realme-gt-5-240w-by-fonelab-android-recover-video/"><u>Realme GT 5 (240W) Video Recovery - Recover Deleted Videos from Realme GT 5 (240W)</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/revolutionize-your-videos-essential-obs-edits-at-hand-for-2024/"><u>Revolutionize Your Videos Essential OBS Edits at Hand for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/tailor-film-duration-for-youtube-submission-for-2024/"><u>Tailor Film Duration for YouTube Submission for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-counteract-fake-views-boosting-genuine-audience-size/"><u>[New] 2024 Approved Counteract Fake Views Boosting Genuine Audience Size</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-framing-emotions-through-color-grading/"><u>[New] Framing Emotions Through Color Grading</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehensive-review-of-ios-free-video-editing-apps/"><u>[New] In 2024, Comprehensive Review of iOS Free Video Editing Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-choices-best-video-cards-for-youtubes-clearest-output/"><u>[New] In 2024, Expert Choices Best Video Cards for YouTube's Clearest Output</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-quick-and-easy-instructions-for-launching-skype-group-conversations-on-both-windows-and-macos-for-2024/"><u>[New] Quick and Easy Instructions for Launching Skype Group Conversations on Both Windows & MacOS for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-structuring-tutorials-for-clarity-on-youtube/"><u>[New] Structuring Tutorials for Clarity on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unearthing-popular-user-generated-speeches/"><u>[New] Unearthing Popular User-Generated Speeches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[Updated] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-guide-to-lut-mastery/"><u>[Updated] Step-by-Step Guide to LUT Mastery</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-viral-visionaries-top-meme-creators-on-social-media/"><u>[Updated] Viral Visionaries Top Meme Creators on Social Media</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-exceptional-sound-value-for-aspiring-asmr-artists/"><u>2024 Approved Exceptional Sound Value for Aspiring ASMR Artists</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-playlist-perfection-weaving-youtube-videos-into-webpages/"><u>2024 Approved Playlist Perfection Weaving YouTube Videos Into Webpages</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/nine-all-inclusive-free-holiday-movies-streamed-on-youtube-for-2024/"><u>Nine All-Inclusive Free Holiday Movies Streamed on YouTube for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-realme-gt-5-pro-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Realme GT 5 Pro.</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/preventing-total-loss-of-image-in-streaming-videos-on-youtube-for-2024/"><u>Preventing Total Loss of Image in Streaming Videos on YouTube for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/spice-up-content-kapwings-meme-builder-for-2024/"><u>Spice Up Content Kapwing's Meme Builder for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-s18e-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo S18e Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/windows-standard-stellar-file-eraser-pro-effortless-scheduled-data-deletion/"><u>Window's Standard Stellar File Eraser Pro: Effortless Scheduled Data Deletion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-earnings-average-income-per-video-ad-in-2024/"><u>YouTube Earnings Average Income per Video Ad, In 2024</u></a></li>
 </ul></div>
 

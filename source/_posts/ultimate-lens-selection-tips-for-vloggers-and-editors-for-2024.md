@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Lens Selection Tips for Vloggers & Editors for 2024"
-date: 2024-07-31T04:01:55.078Z
-updated: 2024-08-01T04:01:55.078Z
+date: 2024-10-21T00:19:05.390Z
+updated: 2024-10-24T00:41:58.306Z
 tags:
   - ai video
   - ai youtube
@@ -56,9 +56,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -81,22 +78,27 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -114,9 +116,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -128,6 +127,13 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -144,9 +150,12 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -159,10 +168,14 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -170,12 +183,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-video-communities-eclipsing-youtube/"><u>[New] 2024 Approved Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-brightening-filmmaking-ranking-the-17-best-lights/"><u>[New] In 2024, Brightening Filmmaking Ranking the 17 Best Lights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-content-creation-and-currency-maximizing-youtube-wealth/"><u>[New] In 2024, Content Creation & Currency Maximizing YouTube Wealth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-youtube-video-converters-for-high-quality-webm/"><u>[Updated] In 2024, Best YouTube Video Converters for High-Quality WebM</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-integrating-youtube-videos-into-facebook-sharing-options/"><u>[Updated] Integrating YouTube Videos Into Facebook Sharing Options</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-journey-to-greatness-top-10-travel-youtubers/"><u>[Updated] Journey to Greatness Top 10 Travel Youtubers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-obs-alternatives-reviewed-by-experienced-broadcinas/"><u>[Updated] OBS Alternatives Reviewed by Experienced Broadcinas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-journey-from-content-creator-to-money-maker-on-youtube/"><u>[Updated] The Journey From Content Creator to Money-Maker on YouTube</u></a></li>
+<li><a href="https://techidaily.com/elevate-user-engagement-the-power-of-transformative-experience-automation/"><u>Elevate User Engagement: The Power of Transformative Experience Automation</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-itel-a70-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-vivo-v29e-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Vivo V29e using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-create-magic-download-premium-soundscapes-now/"><u>In 2024, Create Magic Download Premium Soundscapes Now!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/in-depth-look-at-the-upcoming-samsung-galaxy-s25-ultra-anticipated-costs-launch-timeline-features-and-latest-gossip/"><u>In-Depth Look at the Upcoming Samsung Galaxy S25 Ultra: Anticipated Costs, Launch Timeline, Features & Latest Gossip</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Oppo A78 | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/movavionline-aiffmp3/"><u>Movaviを使って、無料でOnline AIFFからMP3への変換 – 簡単な手順ガイド</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/snapchat-to-subscribers-how-jake-crafted-youtube-magic-for-2024/"><u>Snapchat to Subscribers How Jake Crafted YouTube Magic for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-art-of-personalization-in-windows-11-through-strategic-adjustments/"><u>The Art of Personalization in Windows 11 Through Strategic Adjustments</u></a></li>
+</ul></div>
 
