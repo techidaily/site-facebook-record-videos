@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It"
-date: 2024-10-16T16:41:49.322Z
-updated: 2024-10-23T16:25:40.014Z
+date: 2024-10-28T19:26:44.345Z
+updated: 2024-10-29T18:23:10.996Z
 tags:
   - win11
   - win10
@@ -29,6 +29,13 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
  Before you continue to the following fixes, please make sure your PC specs meet the **[minimum requirements](https://www.footballmanager.com/games/football-manager-2021)**  to play Football Manager 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1 – Update your graphics driver
 
  If you’re using the wrong graphics driver or it’s outdated, it’s very likely that Football Manager 2021 will crash and malfunction. To run FM 21 smoothly, you should always keep your graphics driver up to date.
@@ -44,6 +51,13 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-2-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -66,10 +80,16 @@ Football Manager 2021 is by far one of the most popular management simulator gam
  Wait until the process finishes and relaunch FM 21 to test. If your issue persists, take a look at more fixes below.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3 – Temporarily disable your antivirus
@@ -94,13 +114,6 @@ If this method doesn’t help, go ahead with the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/4-2-5.jpg)
 3. Navigate to the following locations:  
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2021**
 4. Delete the**Preferences** and**Caches** folder.
 
@@ -115,30 +128,23 @@ So does the crash go away now? If not, there is the last fix to try.
 2. Right-click**Football Manager 2021** and click**Properties** .  
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
 3. Click**Set Launch Options** .  
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-1-3.jpg)
 4. Type**–config very\_low** in the text field and click**OK** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-2-4.jpg)
@@ -170,20 +176,20 @@ So does the crash go away now? If not, there is the last fix to try.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-video-thread-embellishments-for-2024/"><u>[New] Decoding Video Thread Embellishments for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-411-on-navigating-youtube-shorts/"><u>[New] The 411 on Navigating YouTube Shorts</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-vantage-point-critique/"><u>[Updated] 2024 Approved Vantage Point Critique</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-free-video-chat-alternatives-for-windowsmac-os-users/"><u>[Updated] Free Video Chat Alternatives for Windows/Mac OS Users</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-streamline-your-workflow-with-top-10-free-mac-screen-recorders-for-2024/"><u>[Updated] Streamline Your Workflow with Top 10 Free Mac Screen Recorders for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-synth-symphony-selecting-superior-dj-templates-for-download/"><u>[Updated] Synth Symphony Selecting Superior DJ Templates for Download</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-accelerate-windows-11-closing-times-for-a-smoother-experience/"><u>How to Accelerate Windows 11 Closing Times for a Smoother Experience</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/rainbow-six-siege-no-cost-update/"><u>Rainbow Six Siege: No Cost Update</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/setting-new-standards-in-smartphone-excellence-with-features-found-only-on-the-samsung-galaxy-s21-ultra/"><u>Setting New Standards in Smartphone Excellence with Features Found Only on the Samsung Galaxy S21 Ultra</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-convenient-way-to-mute-youtube-channels-on-pcmobile-for-2024/"><u>The Convenient Way to Mute Youtube Channels on PC/Mobile for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-wealth-of-words-carminati-ajay-and-his-money-making-mantra-on-youtube-for-2024/"><u>The Wealth of Words Carminati (Ajay) and His Money-Making Mantra on Youtube for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-spark-10-pro-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Spark 10 Pro Device</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unveiling-crucial-details-for-asmr-viewers-for-2024/"><u>Unveiling Crucial Details for ASMR Viewers for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/you-can-now-access-chatgpt-and-whisper-apis-what-this-means-for-businesses/"><u>You Can Now Access ChatGPT and Whisper APIs: What This Means for Businesses</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-learning-top-15-youtube-experts-in-science/"><u>[New] 2024 Approved Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-audio-anomaly-top-disruptive-music-apps-for-iosandroid-for-2024/"><u>[New] Audio Anomaly Top Disruptive Music Apps for iOS/Android for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-economical-growth-methodology-subscribe-now-for-2024/"><u>[New] Economical Growth Methodology - Subscribe Now for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-resolution-of-macs-green-screen-problem-for-youtubers-for-2024/"><u>[New] Effortless Resolution of Mac's Green Screen Problem for YouTubers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-virtuality-current-realities-future-hurdles-for-2024/"><u>[New] Exploring Virtuality Current Realities, Future Hurdles for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-photography-powerhouses-for-crisp-composites-for-2024/"><u>[New] Photography Powerhouses for Crisp Composites for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-polishing-and-personalizing-drone-videos/"><u>[New] The Art of Polishing and Personalizing Drone Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-advertising-and-analytics-youtubes-universal-monetization-techniques-for-2024/"><u>[Updated] Ace Advertising and Analytics YouTube's Universal Monetization Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-subscriber-acquisition-for-enhanced-viewership-for-2024/"><u>[Updated] Effortless Subscriber Acquisition for Enhanced Viewership for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-practices-for-video-game-archiving-on-playstation-4/"><u>[Updated] In 2024, Best Practices for Video Game Archiving on PlayStation 4</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-streamline-social-sharing-integrate-your-fb-story/"><u>[Updated] In 2024, Streamline Social Sharing Integrate Your FB Story</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximize-impact-with-these-11-economical-youtube-naming-tools/"><u>[Updated] Maximize Impact with These 11 Economical YouTube Naming Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-zoom-tricks-for-chromebook-users/"><u>In 2024, Ultimate Zoom Tricks for Chromebook Users</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-various-methods-to-transfer-pictures-from-apple-iphone-8-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Various Methods to Transfer Pictures from Apple iPhone 8 to PC | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-beginners-guide-to-face-blurring-top-free-apps-tutorials-and-tips/"><u>Updated Beginners Guide to Face Blurring Top Free Apps, Tutorials, and Tips</u></a></li>
 </ul></div>
 

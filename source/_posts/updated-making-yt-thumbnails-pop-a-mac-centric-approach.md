@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Making YT Thumbnails Pop  A Mac-Centric Approach\""
-date: 2024-10-16T21:44:10.562Z
-updated: 2024-10-23T18:46:44.400Z
+date: 2024-10-22T20:25:47.157Z
+updated: 2024-10-29T19:07:46.852Z
 tags:
   - ai video
   - ai youtube
@@ -42,23 +42,9 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
@@ -66,11 +52,31 @@ The first step in creating a thumbnail is to import the final video into the Fil
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
 You can easily choose the frame from the video or use the preview frame button to view the frames one by one!
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
 
@@ -79,10 +85,10 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -90,6 +96,13 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -107,13 +120,6 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -129,24 +135,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-counteract-fake-views-boosting-genuine-audience-size/"><u>[New] 2024 Approved Counteract Fake Views Boosting Genuine Audience Size</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-framing-emotions-through-color-grading/"><u>[New] Framing Emotions Through Color Grading</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehensive-review-of-ios-free-video-editing-apps/"><u>[New] In 2024, Comprehensive Review of iOS Free Video Editing Apps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-choices-best-video-cards-for-youtubes-clearest-output/"><u>[New] In 2024, Expert Choices Best Video Cards for YouTube's Clearest Output</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-quick-and-easy-instructions-for-launching-skype-group-conversations-on-both-windows-and-macos-for-2024/"><u>[New] Quick and Easy Instructions for Launching Skype Group Conversations on Both Windows & MacOS for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-structuring-tutorials-for-clarity-on-youtube/"><u>[New] Structuring Tutorials for Clarity on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unearthing-popular-user-generated-speeches/"><u>[New] Unearthing Popular User-Generated Speeches</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[Updated] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-guide-to-lut-mastery/"><u>[Updated] Step-by-Step Guide to LUT Mastery</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-viral-visionaries-top-meme-creators-on-social-media/"><u>[Updated] Viral Visionaries Top Meme Creators on Social Media</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-exceptional-sound-value-for-aspiring-asmr-artists/"><u>2024 Approved Exceptional Sound Value for Aspiring ASMR Artists</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-playlist-perfection-weaving-youtube-videos-into-webpages/"><u>2024 Approved Playlist Perfection Weaving YouTube Videos Into Webpages</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/nine-all-inclusive-free-holiday-movies-streamed-on-youtube-for-2024/"><u>Nine All-Inclusive Free Holiday Movies Streamed on YouTube for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-realme-gt-5-pro-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Realme GT 5 Pro.</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/preventing-total-loss-of-image-in-streaming-videos-on-youtube-for-2024/"><u>Preventing Total Loss of Image in Streaming Videos on YouTube for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/spice-up-content-kapwings-meme-builder-for-2024/"><u>Spice Up Content Kapwing's Meme Builder for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-s18e-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo S18e Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/windows-standard-stellar-file-eraser-pro-effortless-scheduled-data-deletion/"><u>Window's Standard Stellar File Eraser Pro: Effortless Scheduled Data Deletion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-earnings-average-income-per-video-ad-in-2024/"><u>YouTube Earnings Average Income per Video Ad, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-amplify-your-imovie-with-youtube-audio-streams/"><u>[New] 2024 Approved Amplify Your iMovie with YouTube Audio Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-avoid-ad-dollars-boost-your-view-count-for-free-for-2024/"><u>[New] Avoid Ad Dollars – Boost Your View Count for Free for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-podcasts-vs-youtube-which-one-is-the-right-choice-in-2024/"><u>[New] Podcasts Vs. YouTube Which One Is the Right Choice, In 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premier-movie-access-on-facebook-ranked-8-list/"><u>[New] Premier Movie Access on Facebook Ranked #8 List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-growth-on-a-dime-attracting-sponsors-with-simplicity-for-2024/"><u>[Updated] Channel Growth on a Dime Attracting Sponsors with Simplicity for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-pc-clipper-guide-choose-from-the-5-best-tools-for-2024/"><u>[Updated] The Ultimate PC Clipper Guide - Choose From the 5 Best Tools for 2024</u></a></li>
+<li><a href="https://solve-news.techidaily.com/enhance-user-experience-through-cookiebots-customizable-marketing-solutions/"><u>Enhance User Experience Through Cookiebot's Customizable Marketing Solutions</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/the-ultimate-list-of-free-dvd-cloning-applications-your-guide-to-dvd-copying-at-zero-cost/"><u>The Ultimate List of Free DVD Cloning Applications: Your Guide to DVD Copying at Zero Cost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-wanderlust-chronicles-setting-up-for-success-as-a-travel-vlogger-for-2024/"><u>The Wanderlust Chronicles Setting Up for Success as a Travel Vlogger for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transformez-votre-fichier-mp4-en-format-m4v-sans-frais-gratuit-avec-movavi/"><u>Transformez Votre Fichier MP4 en Format M4V Sans Frais - Gratuit Avec Movavi</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unleashing-the-power-of-the-little-dragon-the-spyro-reignited-collections-hidden-treasure/"><u>Unleashing the Power of the Little Dragon: The Spyro Reignited Collection's Hidden Treasure</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Locate Lively Video Community Spots"
-date: 2024-10-17T22:19:12.620Z
-updated: 2024-10-23T17:50:51.068Z
+date: 2024-10-25T20:22:11.025Z
+updated: 2024-10-29T17:46:35.423Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,10 @@ YT Comment Finder is one of the most user-friendly and straightforward comment f
 With YTComment, you can see the basic information about the YouTube video or channel, and to find a comment, all you have to do is type in a word you want to search, and you'll get a list of all the comments relevant to that term or its synonyms as well.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. YouTube First Comment Finder
@@ -77,16 +77,16 @@ It is one of the most user-friendly and ad-free random comment pickers available
 
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
@@ -100,6 +100,13 @@ Everything you have to do now follows the steps below. For the following methods
 * At the right corner, choose History type as 'community.' Below that, click on the 'Comments' option. Finally, a new tab would open with all your YouTube comment history.
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
@@ -122,13 +129,6 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -139,10 +139,10 @@ Did you know you can also customize your comment section as per your need? On th
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
@@ -173,22 +173,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-content-creators-dilemma-which-site-reigns-vimeo-youtube/"><u>[New] 2024 Approved Content Creators' Dilemma Which Site Reigns - Vimeo, YouTube?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dominate-discussion-how-to-trend-on-social-media-platforms/"><u>[New] 2024 Approved Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dominate-youtube-with-these-strategic-freefire-video-hashtags/"><u>[New] In 2024, Dominate YouTube with These Strategic FreeFire Video Hashtags</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-vocal-variations-a-curated-list-of-the-best-15-youtube-vocals-tutorials/"><u>[New] Vocal Variations A Curated List of the Best 15 YouTube Vocals Tutorials</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-convert-google-meet-chats-into-youtube-livestream-easily-for-2024/"><u>[Updated] Convert Google Meet Chats Into YouTube Livestream Easily for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-efficient-techniques-for-blurring-unwanted-edges-for-2024/"><u>[Updated] Efficient Techniques for Blurring Unwanted Edges for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-find-out-the-best-8-youtube-engagement-tools/"><u>[Updated] Find Out The Best 8 Youtube Engagement Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-maximizing-your-marketing-mettle-on-youtube/"><u>2024 Approved Maximizing Your Marketing Mettle on Youtube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-pova-5-pro-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Pova 5 Pro To Phone | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-4-ways-for-apple-iphone-11-to-mac-mirroring-drfone-by-drfone-ios/"><u>In 2024, Top 4 Ways for Apple iPhone 11 to Mac Mirroring | Dr.fone</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/quick-fixes-to-reclaim-sanity-from-symbol-issues/"><u>Quick Fixes to Reclaim Sanity From ?-Symbol Issues</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-samsung-galaxy-s23plus-frp-by-drfone-android/"><u>The Updated Method to Bypass Samsung Galaxy S23+ FRP</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/understanding-and-optimizing-your-contents-spotlight-placement-for-2024/"><u>Understanding and Optimizing Your Content's Spotlight Placement for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/vimeo-vs-youtube-the-differentiators-analysis-for-2024/"><u>Vimeo V/S YouTube The Differentiator's Analysis for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Samsung Galaxy S24 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-your-top-10-choice-of-editors-for-youtube-short-videos/"><u>[New] 2024 Approved Discover Your Top 10 Choice of Editors for YouTube Short Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-capturing-the-cloud-proven-methods-for-perfecting-drones-in-post-production/"><u>[New] Capturing the Cloud Proven Methods for Perfecting Drones in Post-Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-digital-dollar-first-steps-in-youtubers-revenue-for-2024/"><u>[Updated] Digital Dollar First Steps in YouTubers' Revenue for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-dynamic-gifs-from-video-an-illustrative-tutorial/"><u>[Updated] In 2024, Crafting Dynamic Gifs From Video An Illustrative Tutorial</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-relaxation-in-a-box-best-10-stress-busters/"><u>[Updated] Relaxation in a Box Best 10 Stress Busters</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-vivo-y78t-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Vivo Y78t FRP</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/google-collage-made-fast-and-easy-essential-tips-unveiled/"><u>Google Collage Made Fast & Easy - Essential Tips Unveiled</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-y28-5g-bootloader-easily-by-drfone-android/"><u>How to Unlock Vivo Y28 5G Bootloader Easily</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-guide-for-effortless-youtube-shorts-design/"><u>In 2024, The Ultimate Guide for Effortless YouTube Shorts Design</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/selecting-the-ultimate-5-game-chat-devices-for-2024/"><u>Selecting the Ultimate 5 Game Chat Devices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/sustained-disconnection-technique-from-youtube-shorts-for-2024/"><u>Sustained Disconnection Technique From YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/teachers-handbook-building-a-successful-youtube-channel-10-must-dos-for-2024/"><u>Teachers' Handbook Building a Successful YouTube Channel – 10 Must-Dos for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-vivo-y100i-power-5g-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Vivo Y100i Power 5G Device</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/top-5-reliable-chrome-extensions-for-downloading-videos-from-multiple-platforms-like-youtube-and-facebook/"><u>Top 5 Reliable Chrome Extensions for Downloading Videos From Multiple Platforms Like YouTube and Facebook</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Create Video Ads for Free in YouTube Video Builder"
-date: 2024-07-31T03:56:01.192Z
-updated: 2024-08-01T03:56:01.192Z
+date: 2024-10-28T19:56:21.409Z
+updated: 2024-10-29T16:40:27.215Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/rQ3q4SoJdzdvXlfXUbIk9JHjOFk=/400x300/fi
 
 # How to Create Video Ads for Free in YouTube Video Builder
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -73,9 +70,6 @@ There are some text input fields that you can populate with the relevant informa
 
 Finally, you can add background music to the video from the royalty-free tracks that can be accessed from the built-in library, and you are all set to go.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How Can I Get YouTube Video Builder?
 
 Because YouTube Video Builder is in its Beta phase, at the time of this writing you are required to send an access request to Google using your account that you want to use to create the videos from. You can send your requests to: <https://services.google.com/fb/forms/videobuilderbeta/>.
@@ -96,6 +90,13 @@ Next, from the **Color & Logo** section, choose the base (background) and text c
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After this, insert an image of your brand logo in the block under the **Logos** category.
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-brand-logo.jpg)
@@ -106,51 +107,64 @@ When you are on the **Images & Text** section of the navigation bar, pick the hi
 
 ![Create video with YouTube Video Builder ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
 ![Create video with YouTube Video Builder with CTA ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3: Make Cosmetic Manipulations
 
 From the **Pick a Font** section of the navigation bar, click the **Google Fonts catalog** link to search for a unique font, and once found, type its name in the available field to use that font.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create video with YouTube Video Builder - change font ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
 
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Create video with YouTube Video Builder with music ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
 ![ YouTube Video Builder Video create video  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 4: Save the Video and Begin Promotion
 
 After the video is generated, play to preview the film. If everything looks good, click **Save video**.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Video Builder Video Preview and Save  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-save-preview-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ YouTube Video Builder Video Copy Link  ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ YouTube Video Builder Video Create Campaign ](https://images.wondershare.com/filmora/article-images/youtube-video-builder-create-campaign.jpg)
 
 #### Part 5: Tips for Making Good Video Ads with YouTube Video Builder
@@ -169,9 +183,6 @@ The whole point here is to prepare your video adverts with the least investment 
 
 The bitter truth is, producing videos, especially for brand promotions requires expert creators, expensive tools, and a good amount of work experience. Although all these can be managed if you have some spare funds, **YouTube Video Builder** helps you create advertising videos of up to 15 seconds with ease and for free. All you need is access to **YouTube Video Builder**, your own YouTube Channel, your brand logo, and high-definition photos of your product(s).
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -180,12 +191,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-revamped-tiktok-visuals-the-ultimate-guide-for-background-swapping/"><u>[New] In 2024, Revamped TikTok Visuals The Ultimate Guide for Background Swapping</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screen-to-streamer-effortlessly-reviewed-for-2024/"><u>[New] Screen to Streamer, Effortlessly Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-playstation-plaza-your-gateway-to-a-thousand-channels/"><u>[Updated] PlayStation Plaza Your Gateway to a Thousand Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-safe-techniques-for-extracting-and-converting-youtube-audio-into-mp3/"><u>[Updated] Safe Techniques for Extracting and Converting YouTube Audio Into MP3</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-video-watch-with-borderless-youtube/"><u>[Updated] Streamline Your Video Watch with Borderless YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-shorter-path-cutting-video-duration-on-youtube/"><u>[Updated] The Shorter Path Cutting Video Duration on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-28-youtube-music-splitters-for-easy-audio-extraction/"><u>[Updated] Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-iconic-counter-based-awards-system/"><u>[Updated] YouTube's Iconic Counter-Based Awards System</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-enhancing-visual-detail-in-videoleap-videos/"><u>2024 Approved Enhancing Visual Detail in Videoleap Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/a-step-by-step-approach-to-cultivating-emotional-intelligence-with-chatgpt/"><u>A Step-by-Step Approach to Cultivating Emotional Intelligence with ChatGPT</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/big-brains-discussing-tomorrows-artificial-intelligence/"><u>Big Brains Discussing Tomorrow’s Artificial Intelligence</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-your-content-in-depth-guide-to-youtube-video-edits-for-2024/"><u>Elevate Your Content In-Depth Guide to YouTube Video Edits for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/exploring-javas-best-in-class-gameplay/"><u>Exploring Java's Best-In-Class Gameplay</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/fortnite-unveiled-again-detailed-review-of-the-games-latest-seasonal-update/"><u>Fortnite Unveiled Again! Detailed Review of the Game's Latest Seasonal Update.</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-efficiently-use-and-manage-iso-archives-on-your-mac-the-ultimate-5-step-method/"><u>How To Efficiently Use & Manage ISO Archives on Your Mac (The Ultimate 5-Step Method)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/resolving-half-life-alysis-pc-lagging-and-stuttering-problems-issue-addressed/"><u>Resolving Half-Life: Alysis PC Lagging & Stuttering Problems [Issue Addressed]</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/zipping-to-captions-direct-method-for-srt-file-creation/"><u>Zipping to Captions Direct Method for .Srt File Creation</u></a></li>
+</ul></div>
 

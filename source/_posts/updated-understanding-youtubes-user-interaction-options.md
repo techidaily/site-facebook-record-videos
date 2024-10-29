@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Understanding YouTube's User Interaction Options"
-date: 2024-10-21T20:14:29.941Z
-updated: 2024-10-23T16:59:07.447Z
+date: 2024-10-22T17:12:33.898Z
+updated: 2024-10-29T16:23:59.911Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -111,20 +118,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -143,10 +143,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -164,10 +164,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -185,24 +185,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-5-top-3d-design-apps-for-engaging-youtube-beginnings-for-2024/"><u>[New] 5 Top 3D Design Apps for Engaging YouTube Beginnings for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-access-the-archived-unique-methods-for-viewing-old-youtube-for-2024/"><u>[New] Access the Archived Unique Methods for Viewing Old YouTube for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-download-and-play-with-ifunnys-meme-magic/"><u>[New] Download and Play with iFunny's Meme Magic</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-perfecting-your-yt-visual-footprint/"><u>[New] The Ultimate Guide to Perfecting Your YT Visual Footprint</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beef-up-your-cgi-with-these-8-online-repositories-of-free-green-screens-and-clips/"><u>[Updated] 2024 Approved Beef up Your CGI with These 8 Online Repositories of FREE Green Screens and Clips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-conquering-competition-crafting-standout-youtube-advertising-banners-for-2024/"><u>[Updated] Conquering Competition Crafting Standout YouTube Advertising Banners for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-cost-free-translation-made-easy-with-these-subtitle-downloader-apps-for-2024/"><u>[Updated] Cost-Free Translation Made Easy with These Subtitle Downloader Apps for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-safe-and-significant-view-increase/"><u>[Updated] Strategies for Safe and Significant View Increase</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-hitbox-vs-twitch-which-is-better/"><u>2024 Approved Hitbox Vs Twitch Which Is Better?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-samsung-galaxy-z-flip-5-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Samsung Galaxy Z Flip 5 Phone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-usb-drive-not-showing-up-in-windows-10-issue/"><u>How to Fix USB Drive Not Showing Up in Windows 10 Issue</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-12-proplus-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme 12 Pro+ 5G PIN Code/Pattern Lock/Password</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-isolate-subject-a-step-by-step-guide-to-clear-borders/"><u>In 2024, Isolate Subject – A Step-by-Step Guide to Clear Borders</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-where-is-youtube-video-manager-all-you-need-to-know/"><u>In 2024, Where Is Youtube Video Manager? [All You Need to Know]</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overhauling-windows-11-terminal-configuration/"><u>Overhauling Windows 11 Terminal Configuration</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-music-after-c22-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after C22 has been deleted</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/team-fortress-2-stability-improved-say-goodbye-to-regular-disruptions/"><u>Team Fortress 2 Stability Improved - Say Goodbye to Regular Disruptions</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-zmi-powerpack-20000-revealed-an-authoritative-portable-power-unit-assessment/"><u>The ZMI PowerPack 20000 Revealed: An Authoritative Portable Power Unit Assessment</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-shorts-vs-tiktok-which-one-is-better-for-2024/"><u>YouTube Shorts Vs. TikTok Which One Is Better for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boost-youtube-videos-appeal-3-ways-to-incorporate-neon-borders/"><u>[New] 2024 Approved Boost YouTube Videos' Appeal - 3 Ways to Incorporate Neon Borders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-breaking-into-youtubes-top-100-with-effective-seo-for-2024/"><u>[New] Breaking Into YouTube's Top 100 With Effective SEO for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-your-picks-for-the-best-photovideo-makers-that-tune-in-music/"><u>[New] In 2024, Your Picks for the Best Photo/Video Makers That Tune in Music</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-roadmap-to-making-money-with-personal-videos/"><u>[New] The Roadmap to Making Money with Personal Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-uncovering-the-top-8-genuine-video-advancement-solutions/"><u>[New] Uncovering the Top 8 Genuine Video Advancement Solutions</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-easy-steps-for-clearing-out-desktop-discords/"><u>[Updated] 2024 Approved Easy Steps for Clearing Out Desktop Discords</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-directors-academy-youtube-channels-for-cinematic-innovation-for-2024/"><u>[Updated] Directors Academy YouTube Channels for Cinematic Innovation for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-navigating-the-seas-of-success-utilizing-social-blade-for-youtube-data/"><u>[Updated] In 2024, Navigating the Seas of Success Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-camera-selection-for-youtube-filmmakers/"><u>[Updated] The Ultimate Camera Selection for YouTube Filmmakers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-video-marketing-mastery-for-youtube-success/"><u>[Updated] Video Marketing Mastery for YouTube Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/a-fresh-look-at-yokus-island-express-bold-adventures-in-unexpected-directions/"><u>A Fresh Look at Yoku’s Island Express: Bold Adventures in Unexpected Directions</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-xiaomi-redmi-13c-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Xiaomi Redmi 13C Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-windows-video-conferencing-excellence-8-1/"><u>In 2024, Windows Video Conferencing Excellence #8-1</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-xs-data-from-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone XS Data From iCloud | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-samsung-galaxy-s24-ultra-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://blog-min.techidaily.com/telechargez-lediteur-de-convertisseur-gratuit-de-pbm-vers-png-chez-movavi-votre-solution-simple-pour-les-graphiques-en-ligne/"><u>Téléchargez L'éditeur De Convertisseur Gratuit De PBM Vers PNG Chez Movavi : Votre Solution Simple Pour Les Graphiques en Ligne !</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-graphic-gaze-decoding-youtubes-factful-17-narrative-for-2024/"><u>The Graphic Gaze Decoding YouTube's Factful '17 Narrative for 2024</u></a></li>
 </ul></div>
 

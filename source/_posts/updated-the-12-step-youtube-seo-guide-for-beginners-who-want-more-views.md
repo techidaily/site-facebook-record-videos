@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The 12-Step YouTube SEO Guide for Beginners Who Want More Views\""
-date: 2024-10-18T23:55:58.688Z
-updated: 2024-10-23T17:13:37.207Z
+date: 2024-10-28T17:46:56.032Z
+updated: 2024-10-29T16:15:21.929Z
 tags:
   - ai video
   - ai youtube
@@ -190,13 +190,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -207,13 +200,6 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -222,6 +208,13 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
@@ -229,10 +222,10 @@ Well done finishing the video! You are almost there… but not there yet.
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Come on, keep going!
@@ -242,6 +235,13 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -268,10 +268,10 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
@@ -293,18 +293,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-audfreetech-a-deep-dive-into-audio-file-liberation-techniques/"><u>[New] AudFreeTech A Deep Dive Into Audio File Liberation Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-beginners-guide-top-10-youtube-editing-tricks/"><u>[New] In 2024, Beginner's Guide Top 10 YouTube Editing Tricks</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-how-to-watch-videos-quickly-and-smoothly/"><u>[New] In 2024, Instagram How to Watch Videos Quickly & Smoothly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-shorts-revenue-sharing-explained-how-much-will-i-make/"><u>[New] YouTube Shorts Revenue Sharing Explained How Much Will I Make?</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-leaders-in-education-top-15-sci-yt-innovators/"><u>[Updated] Leaders in Education Top 15 Sci-YT Innovators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-leverage-youtube-insights-for-sustainable-channel-development/"><u>[Updated] Leverage YouTube Insights for Sustainable Channel Development</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ensure-optimal-performance-modern-realtek-drivers-for-windows-11-available-now/"><u>Ensure Optimal Performance: Modern Realtek Drivers for Windows 11, Available Now</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-teleport-your-gps-location-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Realme Narzo N55? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-distraction-free-deliberations-perfecting-backdrop-blur-on-mobile-devices/"><u>In 2024, Distraction-Free Deliberations Perfecting Backdrop Blur on Mobile Devices</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-oneplus-11r-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of OnePlus 11R? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-balance-mastering-tripod-usage-in-video-blogging-for-2024/"><u>The Art of Balance Mastering Tripod Usage in Video Blogging for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/timecodes-and-text-transformation-pro-level-srt-tutorials-for-macos-for-2024/"><u>Timecodes & Text Transformation Pro-Level SRT Tutorials for macOS for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-free-animation-made-easy-top-software-for-windows-and-macos/"><u>Updated In 2024, Free Animation Made Easy Top Software for Windows and macOS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-the-best-laptops-for-video-editing-you-should-know/"><u>[New] 2024 Approved The Best Laptops For Video Editing You Should Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-roadmap-for-monetization-success-on-youtube-via-adsense/"><u>[New] In 2024, A Roadmap for Monetization Success on YouTube via AdSense</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-beginning-a-blogging-journey-profit-from-your-passion/"><u>[New] In 2024, Beginning a Blogging Journey Profit From Your Passion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-10-screen-recorders-for-youtube/"><u>[New] In 2024, Best 10 Screen Recorders for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-blueprint-producing-purposeful-life-exploration-broadcasts/"><u>[New] In 2024, Blueprint Producing Purposeful Life Exploration Broadcasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-traffic-ethical-practices-for-amplifying-content-views/"><u>[New] In 2024, Elevate Traffic Ethical Practices for Amplifying Content Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-pathway-to-youtube-prosperity-a-comprehensive-guide/"><u>[New] The Pathway to YouTube Prosperity - A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-accelerating-engagement-with-optimized-youtube-video-speeds/"><u>[Updated] 2024 Approved Accelerating Engagement with Optimized YouTube Video Speeds</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-unlocking-the-potentials-of-streamlabs-obs/"><u>[Updated] 2024 Approved Unlocking the Potentials of Streamlabs OBS</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-deciphering-youtubes-profit-for-a-mil-of-viewers-for-2024/"><u>[Updated] Deciphering YouTube’s Profit for A Mil of Viewers for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-nintendo-switch-top-hd-game-captures/"><u>[Updated] In 2024, Nintendo Switch Top HD Game Captures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovating-your-approach-a-compre-written-by-an-industry-expert-on-effective-youtube-banner-strategies-for-advertisers/"><u>[Updated] Innovating Your Approach A Compre Written by an Industry Expert on Effective YouTube Banner Strategies for Advertisers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-techniques-for-swiftly-cleaning-your-youtube-buffered-queue/"><u>[Updated] Techniques for Swiftly Cleaning Your YouTube Buffered Queue</u></a></li>
+<li><a href="https://win11.techidaily.com/5-steps-to-clear-windows-not-supported-error-hurdle/"><u>5 Steps to Clear Windows' 'Not Supported' Error Hurdle</u></a></li>
+<li><a href="https://win-guides.techidaily.com/die-top-2-strategien-um-perpetuierlich-ausgeschlossene-videos-auf-ihrem-iphone-zu-entwickeln/"><u>Die Top 2 Strategien Um Perpetuierlich Ausgeschlossene Videos Auf Ihrem iPhone Zu Entwickeln</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>How to Spy on Text Messages from Computer & Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/key-maintenance-tips-how-to-put-back-missing-buttons-on-your-laptops-keyboard/"><u>Key Maintenance Tips: How to Put Back Missing Buttons on Your Laptop's Keyboard</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolve-call-of-duty-mobile-lags-with-these-easy-steps/"><u>Resolve Call of Duty Mobile Lags with These Easy Steps</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-quest-for-perfection-topiary-angles-in-mobile-photography-for-2024/"><u>The Quest for Perfection Topiary Angles in Mobile Photography for 2024</u></a></li>
 </ul></div>
 
