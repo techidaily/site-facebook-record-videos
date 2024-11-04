@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Easy and Inexpensive Techniques for YouTube Cards\""
-date: 2024-07-31T03:51:47.888Z
-updated: 2024-08-01T03:51:47.888Z
+date: 2024-10-31T19:11:59.136Z
+updated: 2024-11-04T09:35:34.358Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -43,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/3b273f3dcd58de6bdeec53afcf9be971cffb1887a
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -88,8 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -123,10 +117,14 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -134,12 +132,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-for-crafting-immersive-soundscapes-in-youtube/"><u>[New] In 2024, Expert Tips for Crafting Immersive Soundscapes in YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-screen-to-file-win10-professional-recorder/"><u>[New] Screen to File Win10 Professional Recorder</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-zoom-with-precision-using-videoleap-software/"><u>[New] Zoom with Precision Using Videoleap Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-amplifying-audio-and-visual-quality-in-your-youtube-videos-for-2024/"><u>[Updated] Amplifying Audio and Visual Quality in Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-professional-content-on-youtube-via-enhancements-for-2024/"><u>[Updated] Crafting Professional Content on YouTube via Enhancements for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-gaming-pc-graphics-for-ultimate-youtube-viewing-experience/"><u>[Updated] Top 10 Gaming PC Graphics For Ultimate YouTube Viewing Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-ultimate-toolkit-for-editors-magix-video-pro-x-review/"><u>2024 Approved The Ultimate Toolkit for Editors Magix Video Pro X Review</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/cloud-marketplace-dissecting-cost-structures/"><u>Cloud Marketplace Dissecting Cost Structures</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/facile-conversion-du-fichier-mkv-au-format-mp4-sur-macos-transformation-rapide-sans-compromettre-la-qualite/"><u>Facile Conversion Du Fichier MKV Au Format MP4 Sur macOS - Transformation Rapide Sans Compromettre La Qualité</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>List of Pokémon Go Joysticks On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quick-resize-youtube-videos-to-right-aspect-ratio-on-mac-for-2024/"><u>Quick Resize YouTube Videos to Right Aspect Ratio on Mac for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/techniques-for-successfully-incorporating-a-streaming-youtube-playlist-for-2024/"><u>Techniques for Successfully Incorporating a Streaming YouTube Playlist for 2024</u></a></li>
+</ul></div>
 

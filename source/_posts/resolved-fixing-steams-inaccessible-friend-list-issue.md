@@ -1,7 +1,7 @@
 ---
 title: "Resolved: Fixing Steam's Inaccessible Friend List Issue"
-date: 2024-10-22T17:50:30.541Z
-updated: 2024-10-29T19:53:16.140Z
+date: 2024-10-30T07:31:55.495Z
+updated: 2024-11-04T06:34:31.232Z
 tags:
   - win11
   - win10
@@ -24,13 +24,6 @@ The long-anticipated horror game Resident Evil Village has finally been out. How
 * [Fix 3: Adjust your graphics settings](https://tools.techidaily.com/drivereasy/download/)
 * [Fix 4: Install the latest patch](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1: Verify game integrity
 
  The audio video out of sync issue could happen if the files of Reisdent Evil Village is corrupt. Luckily, Steam client has a handy feature that allows you to verify the integrity of the game – if any files on your PC are found different to the ones on Steam servers, they’ll be changed or repaired.
@@ -43,24 +36,17 @@ The steps are pretty easy:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-steam-properties-1.png)
 4. Click **LOCAL FILES** \> **Verify integrity of game files…** .  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/INTEGRITY.png)
 5. Wait a few minutes for Steam to validate the files of the game. Again, any files found missing or corrupt would be automatically downloaded in the process.
 
-6. Re-launch Resident Evil Village to see if the lag problem has been mitigated. If yes, then congrats! If it’s no joy, please try **Fix 2** , below.
-
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+6. Re-launch Resident Evil Village to see if the lag problem has been mitigated. If yes, then congrats! If it’s no joy, please try **Fix 2** , below.
 
 ### Fix 2: Update your device drivers
 
@@ -75,8 +61,22 @@ The steps are pretty easy:
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/last-scan-never.png)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/5-3.png)  
 **Note** : You can do it for free if you like, but it’s partly manual.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 4. Restart your computer for the changes to take effect.
 5. Check to see if the cutscene lag issue is solved. If it doesn’t do the trick, please continue with**Fix 3** , below.
@@ -97,10 +97,10 @@ The steps are pretty easy:
 * Ray tracing: Off
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4: Install the latest patch
@@ -129,18 +129,20 @@ The steps are pretty easy:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-eclectic-videoland-rating/"><u>[New] Eclectic Videoland Rating</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-the-best-free-downloaders-for-facebook-links/"><u>[New] The Best Free Downloaders for Facebook Links</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-design-strategies-for-top-tier-valorant-thumbnails-on-social-media/"><u>[Updated] 2024 Approved Design Strategies for Top-Tier Valorant Thumbnails on Social Media</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-create-news-style-outro/"><u>[Updated] How To Create News Style Outro</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-mastering-spotify-promotion-strategies-for-effective-ads/"><u>[Updated] In 2024, Mastering Spotify Promotion Strategies for Effective Ads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-obs-masterclass-for-beginners-stream-to-youtube-flawlessly/"><u>[Updated] OBS Masterclass for Beginners Stream to YouTube Flawlessly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-perfect-panning-leading-stabilizers-unveiled/"><u>[Updated] Perfect Panning Leading Stabilizers Unveiled</u></a></li>
-<li><a href="https://win-online.techidaily.com/descargue-el-software-libre-y-gratuito-perfecto-para-la-copia-de-seguridad-de-samsung-ssd-860-actualmente-en-offerta/"><u>Descargue El Software Libre Y Gratuito Perfecto Para La Copia De Seguridad De Samsung SSD 860 Actualmente en Offerta</u></a></li>
-<li><a href="https://win11.techidaily.com/fixing-an-application-not-installed-via-microsofts-store/"><u>Fixing an Application Not Installed via Microsoft's Store</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-exploring-collaborative-designs-the-best-free-and-paid-apps-in-videomosaic/"><u>In 2024, Exploring Collaborative Designs The Best Free & Paid Apps in Videomosaic</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-samsung-galaxy-s23-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Samsung Galaxy S23 FRP Bypass</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/in-depth-review-of-grell-tws1x-bluetooth-headphones-superb-sound-amidst-usability-challenges-gadget-central/"><u>In-Depth Review of Grell TWS1X Bluetooth Headphones: Superb Sound Amidst Usability Challenges | Gadget Central</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/streamline-your-soundtrack-with-these-playlist-tips-for-youtube-for-2024/"><u>Streamline Your Soundtrack with These Playlist Tips for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-instantaneous-video-downloader-selection-guide/"><u>[New] Instantaneous Video Downloader Selection Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-master-2-screen-grab-tools/"><u>[New] Master 2 Screen Grab Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-drive-more-watch-time-not-churn-discover-the-top-6-techniques-on-youtube-for-2024/"><u>[Updated] Drive More Watch Time, Not Churn Discover the Top 6 Techniques on YouTube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-easy-steam-recordings-with-team-fortress-2s-latest-update-for-2024/"><u>[Updated] Easy Steam Recordings with Team Fortress 2'S Latest Update for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-download-youtube-videos-without-any-software-13-proven-ways/"><u>[Updated] How to Download YouTube Videos without Any Software [13 Proven Ways]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[Updated] In 2024, Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-user-generated-content-harnessing-community-influence/"><u>[Updated] Unlocking User-Generated Content Harnessing Community Influence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-free-to-profitable-unlocking-youtubes-monetization-at-500plus/"><u>2024 Approved From Free to Profitable Unlocking YouTube's Monetization at 500+</u></a></li>
+<li><a href="https://win-superb.techidaily.com/connect-your-usb-drive-to-the-android-device-and-select-it-within-the-application/"><u>Connect Your USB Drive to the Android Device and Select It Within the Application.</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/dial-up-the-impact-with-50-free-branding-graphics-in-2024/"><u>Dial Up the Impact with 50 FREE Branding Graphics, In 2024</u></a></li>
+<li><a href="https://discover-great.techidaily.com/direct-showdown-windows-11-and-macos-high-sierra-a-comparative-analysis-of-features/"><u>Direct Showdown: Windows 11 and macOS High Sierra - A Comparative Analysis of Features</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-best-tripod-for-iphone-and-android-smartphone/"><u>In 2024, The Best Tripod for iPhone and Android Smartphone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-uninterrupted-gaming-overcome-halo-infinite-freezing-on-your-pc-using-our-top-ebx-fix-strategies/"><u>Master Uninterrupted Gaming: Overcome 'Halo Infinite' Freezing on Your PC Using Our Top Ebx Fix Strategies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pros-choice-the-ultimate-list-of-7-live-streaming-apps-for-youtube-iosandroid-for-2024/"><u>Pro's Choice The Ultimate List of 7 Live Streaming Apps for YouTube (iOS/Android) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
 </ul></div>
 

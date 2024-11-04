@@ -1,7 +1,7 @@
 ---
 title: How to Fix 'You Don't Have Permissions to Play Fortnite' Error
-date: 2024-10-05T07:52:06.879Z
-updated: 2024-10-06T05:40:52.926Z
+date: 2024-11-01T07:24:31.764Z
+updated: 2024-11-04T09:41:19.177Z
 tags:
   - win11
   - win10
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Install the latest Fortnite patch
 
  The developers of Fortnite release regular game patches to fix bugs. It’s possible that a recent patch has stopped you from logging into the game, and that a new patch is required to fix it.
@@ -44,6 +51,14 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 2. On the left panel, click**Library** . On the right, click **the gear button** on the lower-right corner of **Fortnite** .  
 ![Fix 1 step 2](https://images.drivereasy.com/wp-content/uploads/2018/10/Fix-1-step-2.png)
 3. **Turn on** the toggle next to **Auto update** .  
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/Fix-2-step-3.png)
 4. Restart Epic Games Launcher.
 5. If a patch is available, it will be detected by the Epic Games Launcher and the latest Fortnite patch will be automatically downloaded and installed when you launch Fortnite.
@@ -59,16 +74,17 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 ![wireless router](https://images.drivereasy.com/wp-content/uploads/2018/10/wireless-router.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 2. **Plug in** your network devices again and wait until the indicator lights are back to its normal state.
@@ -87,6 +103,13 @@ See if you can log in or not. if not, try the next fix, below.
 
  If the speed test result is much slower than usual, you should turn to your Internet service provider (ISP) for further supports. If the test result is normal, then try the next fix, below.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 4: Reset Winsock data
 
 **Winsock** is a programming interface and supporting program in Windows operating system that defines how Windows network software should access network services. **R** **esetting Winsock data** may be helpful for dealing with some network connection issues. Here is how to do it:
@@ -100,13 +123,6 @@ See if you can log in or not. if not, try the next fix, below.
 
  Launch Fortnite after you restart your PC to see if you can log in or not. If you fail to log in, try the next fix, below.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 5: Flush your DNS and Renew your IP
 
  Fortnite login failed issue is also probably caused by the DNS and IP issues. **Try flushing your DNS and renewing your IP** and maybe this issue will be resolved. Here is how to do it:
@@ -118,10 +134,10 @@ See if you can log in or not. if not, try the next fix, below.
 2. Type the command line**ipconfig /flushdns**  and press **Enter**  on your keyboard.  
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![ipconfig flushdns](https://images.drivereasy.com/wp-content/uploads/2018/10/ipconfig-flushdns.jpg)
@@ -136,13 +152,6 @@ See if you can log in or not. if not, try the next fix, below.
 3. Type the command line**ipconfig /renew**  and press **Enter**  on your keyboard.  
 ![ipconfig renew](https://images.drivereasy.com/wp-content/uploads/2018/10/ipconfig-renew.jpg)
 4. Launch Fortnite.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  See if you can log in or not. If this issue persists, try updating your network driver to the latest version.
 
@@ -193,24 +202,17 @@ See if you can log in or not. if not, try the next fix, below.
 ![internet properties](https://images.drivereasy.com/wp-content/uploads/2018/10/internet-properties.jpg)
 3. **Uncheck** the box next to **Use a proxy server for your LAN** . If it is already unchecked, **check** the box next to **Automatically detect settings** . Then click **OK** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![LAN Settings](https://images.drivereasy.com/wp-content/uploads/2018/10/LAN-Settings.jpg)
 4. If you’re using a VPN or a third-party proxy sever,**disable** it.
 
- Launch Fortnite to see if you can log in or not. If not, try the next fix to change the DNS server.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Launch Fortnite to see if you can log in or not. If not, try the next fix to change the DNS server.
 
 ### Fix 9: Change the DNS server
 
@@ -219,13 +221,6 @@ See if you can log in or not. if not, try the next fix, below.
 1. On your keyboard, press**the Windows logo key** and **R** at the same time to open the Run dialog. Then type **control** and press **Enter** to open the Control Panel.  
 ![Win + R to open control panel](https://images.drivereasy.com/wp-content/uploads/2018/10/control.jpg)
 2. **View** the Control Panel **by Category** . Click **View network status and tasks** .  
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Control Panel](https://images.drivereasy.com/wp-content/uploads/2018/10/Control-Panel.jpg)
 3. In the pop-up window, click**Change adapter settings** .  
@@ -238,14 +233,14 @@ See if you can log in or not. if not, try the next fix, below.
 ![TCP/IPv4 Properties](https://images.drivereasy.com/wp-content/uploads/2018/10/Internet-protocol-verison-4-properties.jpg)
 7. Restart your PC and launch Fortnite.
 
-See if you can log in or not. If not, try the next fix.
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+See if you can log in or not. If not, try the next fix.
 
 ### Fix 10: Close bandwidth hogging applications
 
@@ -280,16 +275,18 @@ Launch Fortnite to see if you can log in or not.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-amplify-your-channel-popularity-instantly-for-2024/"><u>[New] Amplify Your Channel Popularity Instantly for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-blurring-the-boundary-a-comprehensive-look-at-story-bokeh/"><u>[New] Blurring the Boundary A Comprehensive Look at Story Bokeh</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-elevating-your-tiktok-unboxing-content-with-effective-strategies-for-2024/"><u>[New] Elevating Your TikTok Unboxing Content with Effective Strategies for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audiences-on-the-move-tracker-apps/"><u>[New] In 2024, Audiences on the Move Tracker Apps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-4-ways-to-set-up-your-talking-head-shots-for-youtube/"><u>[Updated] 2024 Approved 4 Ways To Set Up Your Talking-Head Shots For YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-asmr-gurus-recommend-best-microphones-reviewed/"><u>[Updated] 2024 Approved ASMR Gurus Recommend Best Microphones Reviewed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dslr-or-mirrorless-for-high-quality-video-recording/"><u>[Updated] 2024 Approved DSLR or Mirrorless for High-Quality Video Recording?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-studio-vs-campers-contest/"><u>[Updated] 2024 Approved Studio vs Camper’s Contest</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-apply-local-group-policies-to-a-specific-user-account-in-windows-11-and-11/"><u>How to Apply Local Group Policies to a Specific User Account in Windows 11 and 11</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-shareable-podcast-episodes-on-instagram-platforms/"><u>In 2024, Shareable Podcast Episodes on Instagram Platforms</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/superior-visual-experience-ranking-the-best-12-html5-players/"><u>Superior Visual Experience Ranking the Best 12 HTML5 Players</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-youtube-livestreams-webcam-selection-mastery-for-2024/"><u>[New] Enhance YouTube Livestreams Webcam Selection Mastery for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comparing-the-costs-and-advantages-of-various-youtube-plans/"><u>[New] In 2024, Comparing the Costs and Advantages of Various YouTube Plans</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-guide-the-top-10-inexpensive-youtube-channels-for-visual-creators/"><u>[New] In 2024, Essential Guide The Top 10 Inexpensive YouTube Channels for Visual Creators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-truth-about-magix-video-pro-xs-performance-for-2024/"><u>[New] The Truth About Magix Video Pro X's Performance for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-zooming-ahead-with-the-best-audio-to-text-applications-freepaid/"><u>[New] Zooming Ahead with the Best Audio to Text Applications (Free/Paid)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-access-creative-banners-for-video-makers-at-zero-price-for-2024/"><u>[Updated] Access Creative Banners for Video Makers at Zero Price for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-websites-for-downloading-youtube-intro-templates/"><u>[Updated] Best Websites for Downloading YouTube Intro Templates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>[Updated] In 2024, Boosting Your Channel Strategies for Skyrocketing View Counts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726227918610-mpegm4v-moveavi/"><u>無限量產自由MPEG到M4V格式的線上轉換 - 使用Moveavi</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/cutting-edge-technology-evaluations-by-toms-hardware-experts/"><u>Cutting-Edge Technology Evaluations by Tom's Hardware Experts</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revealing-hidden-credentials-step-by-step-tutorial-for-accessing-passwords-from-macos-keychain-on-zdnet/"><u>Revealing Hidden Credentials: Step-by-Step Tutorial for Accessing Passwords From macOS Keychain on ZDNet</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-fun-girl-games-for-kids/"><u>Top Fun Girl Games for Kids</u></a></li>
+<li><a href="https://driver-install.techidaily.com/update-intel-graphics-stack-fastly/"><u>Update Intel Graphics Stack Fastly</u></a></li>
 </ul></div>
 

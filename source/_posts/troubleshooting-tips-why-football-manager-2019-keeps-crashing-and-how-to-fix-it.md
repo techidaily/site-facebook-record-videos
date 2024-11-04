@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It"
-date: 2024-10-28T19:26:44.345Z
-updated: 2024-10-29T18:23:10.996Z
+date: 2024-10-29T10:12:11.248Z
+updated: 2024-11-03T20:25:31.623Z
 tags:
   - win11
   - win10
@@ -29,13 +29,6 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
  Before you continue to the following fixes, please make sure your PC specs meet the **[minimum requirements](https://www.footballmanager.com/games/football-manager-2021)**  to play Football Manager 2021.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1 – Update your graphics driver
 
  If you’re using the wrong graphics driver or it’s outdated, it’s very likely that Football Manager 2021 will crash and malfunction. To run FM 21 smoothly, you should always keep your graphics driver up to date.
@@ -49,20 +42,34 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-1-8.jpg)
 3. Click the**Update** button next to the flagged graphics card driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-2-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  The driver update should resolve the crashing issue and also boost the game’s performance. If not, try the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2 – Verify the integrity of game files
 
@@ -80,16 +87,10 @@ Football Manager 2021 is by far one of the most popular management simulator gam
  Wait until the process finishes and relaunch FM 21 to test. If your issue persists, take a look at more fixes below.
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 3 – Temporarily disable your antivirus
@@ -127,13 +128,6 @@ So does the crash go away now? If not, there is the last fix to try.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-1-5.jpg)
 2. Right-click**Football Manager 2021** and click**Properties** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
 3. Click**Set Launch Options** .  
 
@@ -141,10 +135,16 @@ So does the crash go away now? If not, there is the last fix to try.
 4. Type**–config very\_low** in the text field and click**OK** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-2-4.jpg)
@@ -176,20 +176,22 @@ So does the crash go away now? If not, there is the last fix to try.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-learning-top-15-youtube-experts-in-science/"><u>[New] 2024 Approved Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-audio-anomaly-top-disruptive-music-apps-for-iosandroid-for-2024/"><u>[New] Audio Anomaly Top Disruptive Music Apps for iOS/Android for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-economical-growth-methodology-subscribe-now-for-2024/"><u>[New] Economical Growth Methodology - Subscribe Now for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-resolution-of-macs-green-screen-problem-for-youtubers-for-2024/"><u>[New] Effortless Resolution of Mac's Green Screen Problem for YouTubers for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-exploring-virtuality-current-realities-future-hurdles-for-2024/"><u>[New] Exploring Virtuality Current Realities, Future Hurdles for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-photography-powerhouses-for-crisp-composites-for-2024/"><u>[New] Photography Powerhouses for Crisp Composites for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-polishing-and-personalizing-drone-videos/"><u>[New] The Art of Polishing and Personalizing Drone Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-advertising-and-analytics-youtubes-universal-monetization-techniques-for-2024/"><u>[Updated] Ace Advertising and Analytics YouTube's Universal Monetization Techniques for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-subscriber-acquisition-for-enhanced-viewership-for-2024/"><u>[Updated] Effortless Subscriber Acquisition for Enhanced Viewership for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-practices-for-video-game-archiving-on-playstation-4/"><u>[Updated] In 2024, Best Practices for Video Game Archiving on PlayStation 4</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-streamline-social-sharing-integrate-your-fb-story/"><u>[Updated] In 2024, Streamline Social Sharing Integrate Your FB Story</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-maximize-impact-with-these-11-economical-youtube-naming-tools/"><u>[Updated] Maximize Impact with These 11 Economical YouTube Naming Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-zoom-tricks-for-chromebook-users/"><u>In 2024, Ultimate Zoom Tricks for Chromebook Users</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-various-methods-to-transfer-pictures-from-apple-iphone-8-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Various Methods to Transfer Pictures from Apple iPhone 8 to PC | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-beginners-guide-to-face-blurring-top-free-apps-tutorials-and-tips/"><u>Updated Beginners Guide to Face Blurring Top Free Apps, Tutorials, and Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-exploring-how-youtube-picks-most-engaging-comments-for-2024/"><u>[New] Exploring How YouTube Picks Most Engaging Comments for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expressing-emotionally-using-emojis-for-yt-comments-for-2024/"><u>[New] Expressing Emotionally Using Emojis for YT Comments for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-network-nodes-sites-that-spotlight-youtube-paid-content/"><u>[New] Network Nodes Sites That Spotlight YouTube Paid Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dynamic-website-content-incorporating-youtube-playlists-for-2024/"><u>[Updated] Dynamic Website Content Incorporating YouTube Playlists for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-make-sense-of-iphone-video-repetition-tech/"><u>[Updated] Make Sense of iPhone Video Repetition Tech</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-x-fold-2-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/eliminate-hidden-vram-ignorance/"><u>Eliminate Hidden VRAM Ignorance</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/honor-magic-v2-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Honor Magic V2 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-metaverse-characters-made-simple-easy-avatar-crafting-tips/"><u>In 2024, Metaverse Characters Made Simple Easy Avatar Crafting Tips</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-asus-rog-phone-7-ultimate-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Asus ROG Phone 7 Ultimate? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/instantaneous-pro-thumbnail-creation-valorant-edition-for-2024/"><u>Instantaneous Pro Thumbnail Creation - Valorant Edition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/sharing-authenticity-a-guide-to-personal-youtube-content-for-2024/"><u>Sharing Authenticity A Guide to Personal YouTube Content for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-art-of-introducing-your-podcast/"><u>The Art of Introducing Your Podcast</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-essential-checklist-to-amplify-video-income-on-youtube-for-2024/"><u>The Essential Checklist to Amplify Video Income on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-premier-software-selection-for-youtube-intros-for-2024/"><u>The Premier Software Selection for YouTube Intros for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-mobile-experience-apple-android-and-youtube-for-2024/"><u>The Ultimate Mobile Experience Apple, Android and YouTube for 2024</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/top-2-tips-voor-herstel-van-data-op-een-samsung-ssd/"><u>Top 2 Tips Voor Herstel Van Data Op Een Samsung SSD</u></a></li>
 </ul></div>
 

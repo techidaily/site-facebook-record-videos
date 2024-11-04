@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Deciphering YouTube’s Cost Per Mille (CPM) Structure"
-date: 2024-10-23T16:31:00.926Z
-updated: 2024-10-29T18:41:18.146Z
+date: 2024-11-01T03:15:33.371Z
+updated: 2024-11-03T17:11:55.712Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,19 @@ The YouTube monetization rates vary significantly because of various factors:
 * Ad Quality
 * Video length
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2\. How Much Do YouTubers Make Per 1,000 Views**
 
 A YouTube channel is a great way to generate revenye. Quality content attracts a large audience, enabling a way to generate ad revenue. Although it may be difficult to grow a YouTube channel, the revenue generated is worth. The youtube monetization rates determine the amount you can earn for every 1,000 views on your videos.
@@ -61,6 +74,13 @@ The figures above are just estimates. YouTubers often make more or less this amo
 To get paid from revenues, you need to be eligible for the YouTube Partner Program (YPP). The following is the eligibility criteria.
 
 ![ypp eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The specific eligibility criteria include the following:
 
@@ -88,6 +108,13 @@ YouTube creates a clear path for the birth of a new breed of celebrities. They h
 
 ![mr. beast](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ranked first among the highest-paid YouTubers, Jimmy has the most popular channel. With more than 150 million subscribers, he creates videos about challenges, pranks, and giveaways. The videos have accumulated billions of views, contributing to his estimated net worth of over $100 million. Another important source of income is the Mr. Beast Burger app and menu that lets fans order MrBeast-banded meals from over 1,600 restaurants across the country.
 
 ### 2\. [**Jake Paul - $45 million**](https://www.youtube.com/@jakepaul)
@@ -102,22 +129,15 @@ Jake Paul is a renowned American professional boxer. Widely famous on social med
 
 Markiplier makes videos about playing games. The YouTube channel, which started in 2021 is renowned for moving merch. In addition to ad revenue, Markiplier records high sales of T-shirts, hoodies, and other items tied to the Unus Annus series.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **4\.** [**Rhett and Link - $30 million**](https://www.youtube.com/channel/UCbochVIwBCzJb9I2lLGXGjQ)
 
 ![rhett and link](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-7.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 This YouTube channel started as the duo hosting a nerdy daily talk show called _Good Mythical Morning_. It quickly grew into an empire with brand extensions and spinoffs that boosted its views and earnings on YouTube.
@@ -126,39 +146,25 @@ This YouTube channel started as the duo hosting a nerdy daily talk show called _
 
 ![unspeakable](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-8.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Unspeakable talks about Minecraft in the channel. Nathan Graham posts videos of himself playing this and other games. He also posts other kinds of entertaining content such as filling a room with live alligators. His creativity has allowed him to collaborate with brands in making different ads and promotions.
 
 ### **6\.** [**Nastya - $28 million**](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ)
 
 ![nastya](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-9.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Nastya immigrated from Russia with her parents. With over 88 million subscribers on her channel, she chronicles her life in prosaic installments. In 2021, she did a Spotter deal and added other brand extensions like merchandise and NFT collection that contributed added income.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 5\.** **Edit Your Videos for Monetization with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
@@ -181,24 +187,18 @@ After opening Filmora on your device, click on Instant Mode. This feature is on 
 
 ![instant mode 1](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-10.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### **Step 2 – Choose a Template**
 
 From the Instant Mode window, choose the video template you want to use. Click on it and play to preview the Video. Once satisfied, click om the Download Slideshow button to start editing your video.
 
 ![instant mode 2](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-11.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### **Step 3 – Import Media Items**
 
@@ -212,6 +212,19 @@ From the top-left corner of the screen, click the “Titles” category. Then ch
 
 ![instant mode 4](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-13.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### **Step 5 – Replace Needed Media Items**
 
 Review all the media items in the timeline, and replace any that you want with another option. The Replace icon allows you to seamlessly achieve this. You can also import new files to replace it with.
@@ -224,18 +237,18 @@ Once you are satisfied with your slideshow video, click on the Timeline button. 
 
 ![instant mode 6](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-15.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### **Step 7 – Preview and Export Your Video**
 
 Click on the Play icon to preview the edited video. Then export it in MP4 format for quick upload to YouTube.
 
 ![instant mode 7](https://images.wondershare.com/filmora/article-images/2023/youtube-cpm-rates-how-much-do-youtubers-make-16.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Other Useful Filmora Video Editing Features**
 
@@ -244,19 +257,6 @@ Click on the Play icon to preview the edited video. Then export it in MP4 format
 * [AI Image](https://tools.techidaily.com/wondershare/filmora/download/) – Generate an image automatically by typing what you want. Choose from 3 resolutions and use the image directly for your video project
 * [Auto Reframe](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically resize your videos within minutes to use on both YouTube and Shorts.
 * [Auto Beat Sync](https://tools.techidaily.com/wondershare/filmora/download/) – Automatically match the footage with music, giving your video a smooth flow with the music you choose.
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -275,24 +275,18 @@ Running a YouTube Channel is lucrative. Although it may take time to build a fol
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-aesthetic-enigma-the-ultimate-backdrop-collection-for-video-thumbnails/"><u>[New] In 2024, Aesthetic Enigma The Ultimate Backdrop Collection for Video Thumbnails</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-innovating-your-online-presence-expert-tips-for-video-enhancement-after-upload/"><u>[New] Innovating Your Online Presence Expert Tips for Video Enhancement After Upload</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-video-editors-for-youtube-on-the-houseno-cost-included/"><u>[New] Top Video Editors for YouTube on the House—No Cost Included</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-converting-your-clips-upload-to-youtube-via-premiere/"><u>[Updated] In 2024, Converting Your Clips Upload to YouTube Via Premiere</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discover-the-most-reliable-royalty-free-audio-libraries/"><u>[Updated] In 2024, Discover the Most Reliable Royalty-Free Audio Libraries</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-youtube-presence-with-these-8-free-courses/"><u>[Updated] In 2024, Elevate Your YouTube Presence with These 8 Free Courses</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-secret-to-youtube-success-reaching-a-milestone-of-500plus-views/"><u>[Updated] Unlock the Secret to YouTube Success Reaching a Milestone of 500+ Views</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-exploring-the-difference-between-ig-reels-and-stories/"><u>2024 Approved Exploring the Difference Between IG Reels & Stories</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-yielding-income-a-streamers-guide-to-earning/"><u>2024 Approved Yielding Income A Streamer's Guide to Earning</u></a></li>
-<li><a href="https://program-issues.techidaily.com/boosting-your-gaming-experience-eliminating-fps-dips-on-rainbow-six-extraction/"><u>Boosting Your Gaming Experience: Eliminating FPS Dips on Rainbow Six Extraction</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo Y28 5G? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/reliable-user-guide-to-fix-oneplus-12-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix OnePlus 12 Running Slow and Freezing | Dr.fone</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/social-storytelling-revolutionized-for-no-charge-for-2024/"><u>Social Storytelling Revolutionized for No Charge for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/mline-videography-an-in-depth-look-at-youtube-studio-editor/"><u>Streamline Videography An In-Depth Look at YouTube Studio Editor</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/subscribers-on-a-shoestring-grow-your-channel-fast-for-2024/"><u>Subscribers on a Shoestring Grow Your Channel Fast for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211066455-9789359043517-the-candle-of-vision/"><u>The Candle of Vision | Free Book</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-mystery-unveiled-how-and-why-cant-chatgpt-detect-its-writing-errors/"><u>The Mystery Unveiled: How and Why Can't ChatGPT Detect Its Writing Errors?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-12-camera-guide-for-effortless-screen-swivel-use-for-2024/"><u>The Ultimate 12 Camera Guide for Effortless Screen Swivel Use for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/vloggers-guide-to-top-5-game-microphones-for-2024/"><u>Vloggers’ Guide to Top 5 Game Microphones for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-directly-download-youtube-videos-for-2024/"><u>[New] Directly Download YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-exceptional-7-dslr-devices-for-expert-video-content-creators-for-2024/"><u>[New] Exceptional 7 DSLR Devices For Expert Video Content Creators for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-no-trouble-recorder-for-win10-desktop/"><u>[New] In 2024, No-Trouble Recorder for Win10 Desktop</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-drive-traffic-and-growth-with-youtube-analytic-insights/"><u>[Updated] 2024 Approved Drive Traffic and Growth with YouTube Analytic Insights</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-exploring-earning-potential-an-uncomplicated-triad-technique-for-youtube-profit-analysis/"><u>[Updated] Exploring Earning Potential An Uncomplicated Triad Technique for YouTube Profit Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-optimal-youtube-shorts-growth/"><u>[Updated] Strategies for Optimal YouTube Shorts Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-virtual-makeup-mavens-top-youtube-creators/"><u>[Updated] Virtual Makeup Mavens Top YouTube Creators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/10-best-websites-to-download-aesthetic-wallpapers-for-laptop-for-2024/"><u>10 Best Websites to Download Aesthetic Wallpapers for Laptop for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-audio-pioneers-the-power-of-crossfading/"><u>2024 Approved Audio Pioneers The Power of Crossfading</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-through-who-should-shape-ai-policies-and-guidelines/"><u>Navigating Through Who Should Shape AI Policies and Guidelines</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/online-flvogg-movavi/"><u>Online FLV/OGG 영상 무료 전환 - Movavi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-complete-deletion-of-your-yahoo-mail-account/"><u>Step-by-Step Guide: Complete Deletion of Your Yahoo! Mail Account</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210934793-9781800651739-the-book-of-norse-magic/"><u>The Book of Norse Magic | Free Book</u></a></li>
 </ul></div>
 

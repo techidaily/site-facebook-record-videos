@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Luminous Techniques for Engaging Vlogs"
-date: 2024-09-30T10:15:06.666Z
-updated: 2024-10-06T05:07:59.123Z
+date: 2024-10-29T11:29:33.935Z
+updated: 2024-11-04T00:40:23.158Z
 tags:
   - ai video
   - ai youtube
@@ -44,13 +44,20 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -80,10 +87,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -92,13 +99,6 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -106,16 +106,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,18 +127,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-income-smart-strategies-for-profit-from-youtube-mobile-content-for-2024/"><u>[New] Boosting Income Smart Strategies for Profit From YouTube Mobile Content for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-creative-freedom-redefined-a-review-of-screenflow-on-macbook-pro-for-2024/"><u>[New] Creative Freedom Redefined A Review of ScreenFlow on MacBook Pro for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-top-17-light-and-gear-perfect-for-vloggers/"><u>[New] Top 17 Light & Gear Perfect for Vloggers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-profits-how-much-do-creators-earn-from-each-ad/"><u>[New] Unveiling Profits How Much Do Creators Earn From Each Ad?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-direct-download-and-conversion-best-youtube-to-mp3-software/"><u>[Updated] 2024 Approved Direct Download & Conversion Best YouTube to MP3 Software</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-comprehensive-techniques-for-iphones-in-virtual-space/"><u>[Updated] Comprehensive Techniques for iPhones in Virtual Space</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>2024 Approved Cutting Edge Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-imagedivide-review-summary/"><u>2024 Approved ImageDivide Review Summary</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/6-essential-scandinavian-flicks-for-danish-learning/"><u>6 Essential Scandinavian Flicks for Danish Learning</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/las-4-formas-mas-eficaces-de-capturar-la-pantalla-del-iphone/"><u>Las 4 Formas Más Eficaces De Capturar La Pantalla Del iPhone</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/navigating-url-modifications-with-advanced-edit-link-features/"><u>Navigating URL Modifications with Advanced Edit Link Features</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-cash-flow-8-simple-money-making-tips-for-2024/"><u>YouTube Cash Flow 8 Simple Money-Making Tips for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/youtube-masterclass-creating-captivating-splitscreen-content/"><u>YouTube Masterclass Creating Captivating Splitscreen Content</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-avoiding-pitfalls-in-angled-and-merged-video-manipulation-android/"><u>[New] Avoiding Pitfalls in Angled & Merged Video Manipulation (Android)</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-enhancing-your-facebook-cover-leading-websites-for-professionals-for-2024/"><u>[New] Enhancing Your Facebook Cover Leading Websites for Professionals for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-exploring-the-mechanisms-of-noteworthy-youtube-discussions-for-2024/"><u>[New] Exploring the Mechanisms of Noteworthy YouTube Discussions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-screen-recorder-for-youtube/"><u>[Updated] 2024 Approved Best Screen Recorder for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-engaging-video-content-for-live-streams/"><u>[Updated] 2024 Approved Crafting Engaging Video Content for Live Streams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-engagement-professional-pc-techniques-for-youtube-editors/"><u>[Updated] 2024 Approved Enhancing Engagement Professional PC Techniques for YouTube Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[Updated] In 2024, A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovating-mukbang-content-with-fresh-creative-ideas/"><u>[Updated] Innovating Mukbang Content with Fresh, Creative Ideas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-and-inexpensive-the-best-free-youtube-name-generators/"><u>[Updated] Innovative & Inexpensive The Best Free YouTube Name Generators</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-secrets-to-producing-visually-appealing-fb-promos/"><u>[Updated] Secrets to Producing Visually Appealing FB Promos</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-epyc-9755-unleashed-the-mighty-epyc-128-core-processors-astounding-victory-in-multi-threaded-benchmarking/"><u>AMD Epyc 9755 Unleashed: The Mighty EPYC 128-Core Processor's Astounding Victory in Multi-Threaded Benchmarking!</u></a></li>
+<li><a href="https://fox-where.techidaily.com/comment-recuperer-efficacement-les-donnees-dun-disque-dur-non-bootable-sur-un-ordinateur-portable-dell/"><u>Comment Récupérer Efficacement Les Données D’un Disque Dur Non Bootable Sur Un Ordinateur Portable Dell ?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/common-iphone-glitch-diagnosing-and-repairing-no-call-receiving-issues/"><u>Common iPhone Glitch: Diagnosing and Repairing No-Call-Receiving Issues</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigate-the-world-of-dating-smarter-with-ai-assisted-tips-from-chatgpt/"><u>Navigate the World of Dating Smarter with AI-Assisted Tips From ChatGPT</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/new-era-with-grok-ai-insights-from-elon-on-its-role-and-expense/"><u>New Era with Grok AI: Insights From Elon on Its Role & Expense</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-data-from-realme-c51-by-fonelab-android-recover-data/"><u>Undelete lost data from Realme C51</u></a></li>
 </ul></div>
 

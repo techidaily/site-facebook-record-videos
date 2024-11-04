@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing On-Screen Appeal  Essential Tips for Talking-Head Shots\""
-date: 2024-10-23T20:07:52.797Z
-updated: 2024-10-29T20:08:17.526Z
+date: 2024-10-30T13:18:48.790Z
+updated: 2024-11-04T03:45:11.831Z
 tags:
   - ai video
   - ai youtube
@@ -37,14 +37,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -61,10 +61,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -80,6 +80,13 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -111,26 +118,13 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,17 +142,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-end-screen-magic-free-templates-to-boost-video-appeal-for-2024/"><u>[New] End-Screen Magic Free Templates to Boost Video Appeal for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-live-subscriber-count-meters/"><u>[New] Live Subscriber Count Meters</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-thumbnail-artistry-for-engaging-youtube-channels/"><u>[New] Thumbnail Artistry for Engaging YouTube Channels</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-decoding-windows-10-imports-a-deep-dive-into-file-transfer/"><u>[Updated] In 2024, Decoding Windows 10 Imports A Deep Dive Into File Transfer</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-video-editing-secrets-to-skyrocket-your-channels/"><u>[Updated] Top 10 Video Editing Secrets to Skyrocket Your Channels</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unmatched-clarity-our-choice-of-the-top-10-camera-lenses/"><u>[Updated] Unmatched Clarity Our Choice of the Top 10 Camera Lenses</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-best-10-cutting-edge-reaction-ideas/"><u>[Updated] YouTube's Best 10 Cutting-Edge Reaction Ideas</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-logitech-webcam-software-and-driver-download-for-pcs/"><u>Free Logitech Webcam Software & Driver Download for PCs</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/harnessing-light-and-motion-for-gopro-time-lapse-magic-for-2024/"><u>Harnessing Light and Motion for GoPro Time-Lapse Magic for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-realme-10t-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Realme 10T 5G</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-samsung-galaxy-a25-5g-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Samsung Galaxy A25 5G Devices</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-what-is-ai-marketing/"><u>In 2024, What Is AI Marketing?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-all-about-kinemaster-androids-ultimate-gaming-companion/"><u>[New] All About KineMaster Android's Ultimate Gaming Companion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-convert-your-youtube-files-effortlessly-to-webm/"><u>[New] In 2024, Convert Your YouTube Files Effortlessly to WebM</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-adjusting-story-video-playback-rate-on-instagram/"><u>[Updated] Adjusting Story Video Playback Rate on Instagram</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-new-horizons-in-graphic-design-post-acid/"><u>[Updated] New Horizons in Graphic Design Post-ACID</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-full-potential-of-your-youtube-videos-with-these-tips/"><u>[Updated] Unlock the Full Potential of Your YouTube Videos with These Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-soundscape-adjustments-fading-volume-with-precision-in-logic-pro/"><u>2024 Approved Soundscape Adjustments Fading Volume with Precision in Logic Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-for-filmmakers-revolutionizing-visual-storytelling/"><u>2024 Approved Youtube for Filmmakers Revolutionizing Visual Storytelling</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-lava-blaze-pro-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Lava Blaze Pro 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/ifind-data-salvage-a-comprehensive-tutorial-on-retrieving-your-cameras-raw-images/"><u>IFinD Data Salvage: A Comprehensive Tutorial on Retrieving Your Camera's Raw Images</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-playback-lags-a-guide-for-chromium-users/"><u>Overcoming Playback Lags: A Guide for Chromium Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streaming-success-starts-here-8-tips-for-beginners-for-2024/"><u>Streaming Success Starts Here - 8 Tips for Beginners for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-find-three-best-alternatives-to-subtitle-edit-on-mac-all-are-free-and-include-the-same-exact-functions-as-subtitle-edit-for-2024/"><u>Updated Find Three Best Alternatives to Subtitle Edit on Mac - All Are Free and Include the Same Exact Functions as Subtitle Edit for 2024</u></a></li>
 </ul></div>
 

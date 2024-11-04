@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Overcoming the Challenge of Hidden YouTube Shorts Thumbnails"
-date: 2024-10-04T09:54:09.473Z
-updated: 2024-10-06T10:57:00.117Z
+date: 2024-10-29T03:32:40.474Z
+updated: 2024-11-04T04:29:26.747Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ The reason behind this is the difference in the thumbnail size. Regular YouTube 
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Unfortunately, there is no reliable fix to this problem yet. YouTubers have tried different things in hopes that YouTube will display the correct thumbnail for their Shorts.
 
@@ -188,13 +181,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -204,6 +190,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Like the Shorts video.
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Tap "Library"
 
@@ -216,13 +209,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -342,14 +328,14 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -376,10 +362,10 @@ The following post will teach you how to find and contact partners for YouTube c
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Choosing A Potential Partner
@@ -389,6 +375,19 @@ Before you think about how you’re going to approach someone you need to decide
 A lot of people automatically want to approach their YouTube hero, and that can be a mistake. Liking your partner’s videos is a must – why would you want to refer your subscribers to someone whose channel you wouldn’t watch yourself? – but it can be really hard to get someone with a significantly bigger channel than yours to work with you.
 
 ![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Will Kitty get to collab with the big dog?_
 
@@ -449,10 +448,10 @@ Commenting on each other’s videos, and responding to viewer comments, is one o
 ![ Getting the Most Out of Your Collaborations](https://images.wondershare.com/filmora/article-images/getting-most-out-of-collaborations.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Kitty got the collab! They’re friends now – doesn’t that make you want to sub?_
@@ -466,13 +465,6 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -506,6 +498,13 @@ A lot of people automatically want to approach their YouTube hero, and that can 
 
 ![ Choosing A Potential Partner](https://images.wondershare.com/filmora/article-images/choosing-potential-collab-partner.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Will Kitty get to collab with the big dog?_
 
 Larger YouTubers get a lot of collab requests, and they are really busy with their own channels. Even if they love your content, it can be hard to justify taking time away from working on their own channel to do videos that won’t help them grow too.
@@ -519,6 +518,13 @@ _Mr.Kate makes over **[MyLifeAsEva](https://www.youtube.com/channel/UCAoMPWcQKA%
 Also, try to find someone whose channel has something in common with yours thematically so you know your subscribers will be interested in them. They don’t have to do exactly what you do, but your topics should be related. For example: if you do quirky video game reviews and they do quirky movie reviews, you could team up to review a movie based on a game. That would make sense. But if you quirky video game reviews and they review do very serious ice cream reviews, that’ll make a lot less sense.
 
 A good way to find potentially collab partners is to look at your list of subscribers. You already know everyone there likes your channel!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 2\. How to contact a partner
 
@@ -568,13 +574,6 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 
  What have your experiences with YouTube collaborations been like?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Use Split-Screen Presets to Create Collab Videos in Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of [split-screen presets](https://tools.techidaily.com/wondershare/filmora/download/) which allows you to put several videos together at the same time.
@@ -582,6 +581,13 @@ _Kitty got the collab! They’re friends now – doesn’t that make you want to
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -706,19 +712,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-5-youtube-tag-generators-and-tips-to-tag-videos-properly-for-2024/"><u>[New] Best 5 YouTube Tag Generators & Tips to Tag Videos Properly for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-critical-look-at-outstanding-online-streams-for-2024/"><u>[New] Critical Look at Outstanding Online Streams for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-ultimate-guide-selecting-8-exquisite-weddings-vids/"><u>[New] In 2024, Ultimate Guide Selecting 8 Exquisite Weddings - Vids</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-youtube-chat-insights/"><u>[New] Unlocking YouTube Chat Insights</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unveiling-fb-instream-ad-strategies-from-configuration-to-evaluation/"><u>[New] Unveiling FB Instream Ad Strategies From Configuration to Evaluation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-discreetly-see-fb-snapshots-for-2024/"><u>[Updated] Discreetly See FB Snapshots for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-compreeved-guide-to-creating-stellar-youtube-outros/"><u>[Updated] In 2024, Compreeved Guide to Creating Stellar YouTube Outros</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-brief-blotter-for-film-blueprint/"><u>In 2024, Brief Blotter for Film Blueprint</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-unlock-the-power-of-dvd-creation-a-beginners-guide-to-movie-making-software/"><u>New 2024 Approved Unlock the Power of DVD Creation A Beginners Guide to Movie Making Software</u></a></li>
-<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-infinix-note-30-vip-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Infinix Note 30 VIP Black and White | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-strategy-crafting-video-ads-without-spending-a-dime-for-2024/"><u>Step-by-Step Strategy Crafting Video Ads without Spending a Dime for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-video-monetization-dailymotion-vs-youtube-for-2024/"><u>The Ultimate Guide to Video Monetization Dailymotion Vs. YouTube for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/unlocking-infinite-treasure-a-guide-to-conquering-like-a-dragon-on-your-computer/"><u>Unlocking Infinite Treasure - A Guide to Conquering Like a Dragon on Your Computer</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-daily-diary-staying-fresh-and-avoiding-common-mistakes-for-2024/"><u>Your Daily Diary Staying Fresh & Avoiding Common Mistakes for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-elite-transcribers-for-youtube-clips/"><u>[New] 2024 Approved Elite Transcribers for YouTube Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-charting-a-course-youtubes-best-brands/"><u>[New] In 2024, Charting a Course YouTube's Best Brands</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-key-information-every-asmr-aficionado-should-know/"><u>[New] Key Information Every ASMR Aficionado Should Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-viewerships-value-to-creators-understanding-revenue-per-stream/"><u>[New] Viewership's Value to Creators Understanding Revenue per Stream</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates-for-2024/"><u>[Updated] Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-convert-and-share-optimal-tools-for-youtube-to-avi-transfers-for-2024/"><u>[Updated] Convert & Share Optimal Tools for YouTube-to-AVI Transfers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-stealthily-stream-youtube-via-phones-autoplay/"><u>[Updated] How to Stealthily Stream YouTube via Phone's Autoplay</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-mastering-soundscapes-expert-insights-on-audio-post-production-in-garageband/"><u>[Updated] Mastering Soundscapes Expert Insights on Audio Post-Production in GarageBand</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-to-enhanced-viewership-designing-impactful-youtube-thumbnails/"><u>[Updated] The Key to Enhanced Viewership Designing Impactful YouTube Thumbnails</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/0mp4/"><u>「0円で最適なMP4圧縮技術によりファイルサイズの大幅な軽減を実現」</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-pinnacle-stock-for-premium-vector-designs/"><u>2024 Approved Pinnacle Stock for Premium Vector Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-monetization-tips-how-many-views-do-you-really-need-to-make-money/"><u>2024 Approved YouTube Monetization Tips How Many Views Do You Really Need to Make Money</u></a></li>
+<li><a href="https://fox-that.techidaily.com/6-fixes-to-try-if-you-cant-share-your-subscriptions-with-family-sharing/"><u>6 Fixes to Try If You Can't Share Your Subscriptions With Family Sharing</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/exclusive-roundup-top-tier-no-cost-luts-available/"><u>Exclusive Roundup Top-Tier, No-Cost LUTs Available</u></a></li>
+<li><a href="https://media-tips.techidaily.com/how-to-free-convert-your-mxf-files-into-avi-format-a-complete-step-by-step-tutorial/"><u>How To Free Convert Your MXF Files Into AVI Format: A Complete Step-By-Step Tutorial</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-successfully-restore-camera-functionality-in-google-meet/"><u>How to Successfully Restore Camera Functionality in Google Meet</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nokia-g310-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nokia G310 Phones? | Dr.fone</u></a></li>
 </ul></div>
 

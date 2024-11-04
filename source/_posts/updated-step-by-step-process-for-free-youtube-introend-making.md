@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-10-26T17:48:02.826Z
-updated: 2024-10-29T17:38:00.187Z
+date: 2024-10-29T22:18:25.606Z
+updated: 2024-11-03T17:28:47.985Z
 tags:
   - ai video
   - ai youtube
@@ -78,16 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -126,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -147,17 +141,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-enhancing-visual-dynamics-aps-hdr-techniques/"><u>[New] Enhancing Visual Dynamics APS HDR Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-from-watcher-to-participant-facebook-live-on-roku-devices/"><u>[New] From Watcher to Participant Facebook LIVE on Roku Devices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-titles-that-shine-how-to-innovate/"><u>[New] In 2024, Channel Titles That Shine How to Innovate</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-video-rankings-with-effective-seo-tactics/"><u>[New] In 2024, Elevate Your Video Rankings with Effective SEO Tactics</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-music-management-for-social-media-iphone-and-android-basics-for-2024/"><u>[New] Music Management for Social Media IPhone & Android Basics for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-ultimate-guide-to-intovas-action-realm/"><u>2024 Approved The Ultimate Guide to Intova's Action Realm</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nokia-g22-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nokia G22 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-oneplus-open-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change OnePlus Open Lock Screen Password?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-speeding-up-your-periscope-streams-effortlessly/"><u>In 2024, Speeding Up Your Periscope Streams Effortlessly</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-zoom-audio-excellence-balance-and-clarity-tactics/"><u>In 2024, Zoom Audio Excellence Balance and Clarity Tactics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-to-itunes-video-downloading-for-ios-users-for-2024/"><u>The Ultimate Guide to iTunes Video Downloading for iOS Users for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/transform-your-video-appeal-incorporating-own-thumbnails-for-2024/"><u>Transform Your Video Appeal Incorporating Own Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-video-edits-without-spending-navigate-through-the-8-tools-for-2024/"><u>[New] Cutting-Edge Video Edits Without Spending Navigate Through The 8 Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earning-in-a-world-dominated-by-youtubers/"><u>[New] In 2024, Earning in a World Dominated by YouTubers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-proven-strategies-elevating-your-mobile-capture-game-with-mobizens-expertise/"><u>[New] In 2024, Proven Strategies Elevating Your Mobile Capture Game with Mobizen's Expertise</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-professional-editing-edge-discover-the-leading-15-gopro-color-grads/"><u>[New] Professional Editing Edge Discover the Leading 15 GOPRO Color Grads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-insiders-approach-to-maximizing-youtube-video-revenue/"><u>[New] The Insider's Approach to Maximizing YouTube Video Revenue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[New] The Tug-of-War Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-corrected-clandestine-miniature-video-absence/"><u>[Updated] 2024 Approved Corrected Clandestine Miniature Video Absence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-novice-to-pro-youtube-shorts-guide/"><u>[Updated] From Novice to Pro YouTube Shorts Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategic-video-collaborations-for-viewership-increase/"><u>[Updated] Strategic Video Collaborations for Viewership Increase</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-s18-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo S18 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ignite-interest-a-list-of-30-video-themes/"><u>2024 Approved Ignite Interest A List of 30 Video Themes</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-what-are-luts-and-how-they-change-your-photo/"><u>2024 Approved What Are LUTs and How They Change Your Photo</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-downgrade-iphone-12-mini-to-the-previous-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 mini to the Previous iOS Version? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/push-boundaries-with-latest-driver-updates-from-dell/"><u>Push Boundaries with Latest Driver Updates From Dell</u></a></li>
+<li><a href="https://win-docs.techidaily.com/responsible-prescribing-practices-are-crucial-in-managing-and-preventing-antibiotic-resistance/"><u>Responsible Prescribing Practices Are Crucial in Managing and Preventing Antibiotic Resistance.</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/zdnet-explores-the-ultimate-blend-of-durability-and-aesthetics-in-premier-notebook-testing/"><u>ZDNet Explores the Ultimate Blend of Durability and Aesthetics in Premier Notebook Testing</u></a></li>
 </ul></div>
 

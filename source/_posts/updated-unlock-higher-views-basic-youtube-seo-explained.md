@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlock Higher Views  Basic YouTube SEO Explained\""
-date: 2024-10-26T18:24:27.102Z
-updated: 2024-10-29T20:11:29.621Z
+date: 2024-10-30T05:54:56.097Z
+updated: 2024-11-03T22:51:20.215Z
 tags:
   - ai video
   - ai youtube
@@ -156,13 +156,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -197,6 +190,19 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -222,10 +228,10 @@ Well done finishing the video! You are almost there… but not there yet.
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Come on, keep going!
@@ -235,6 +241,13 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -260,22 +273,15 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -293,20 +299,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-chuckles-and-characters-a-guide-to-top-meme-generators/"><u>[New] Chuckles & Characters A Guide to Top Meme Generators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-compare-and-contrast-leading-online-and-desktop-gif-tools/"><u>[New] In 2024, Compare & Contrast Leading Online & Desktop GIF Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-data-driven-odyssey-of-youtubes-statistical-storytelling-2017/"><u>[New] The Data-Driven Odyssey of YouTube's Statistical Storytelling (2017)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-fake-followers-trap-on-youtube-landscapes/"><u>[New] Unveiling Fake Followers' Trap on YouTube Landscapes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enchanting-music-visuals-using-the-lyric-video-maker-toolkit-for-2024/"><u>[Updated] Enchanting Music Visuals Using the Lyric Video Maker Toolkit for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-guide-to-share-youtube-video-on-facebook/"><u>[Updated] Guide to Share YouTube Video on Facebook</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/does-galaxy-a05s-has-native-mkv-support-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Galaxy A05s has native MKV support?</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/esempio-video-mp4-ruotare-il-contenuto-tra-90-180-e-270-mantenendo-intatta-la-definizione-originale/"><u>Esempio Video MP4: Ruotare Il Contenuto Tra 90°, 180° E 270° Mantenendo Intatta La Definizione Originale</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/expert-insights-on-latest-hardware-from-toms-domain/"><u>Expert Insights on Latest Hardware From Tom's Domain</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/get-your-hands-on-the-latest-apple-watch-series-10-before-everyone-else-preorder-tips-and-savings-tricks-discover-more/"><u>Get Your Hands on the Latest Apple Watch Series 10 Before Everyone Else: Preorder Tips & Savings Tricks - Discover More!</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-vivo-v29e-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-honor-100-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Honor 100 | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/start-saving-with-reddit-today-13-easy-and-effective-strategies-no-experience-for-2024/"><u>Start Saving with Reddit Today - 13 Easy & Effective Strategies (No Experience) for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-for-sporty-streamers-on-mac-for-2024/"><u>Step-by-Step Guide for Sporty Streamers on Mac for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/top-5-essential-tools-for-maximizing-your-audios-loudness-effective-volume-enhancers-for-digital-and-live-platforms/"><u>Top 5 Essential Tools for Maximizing Your Audio's Loudness: Effective Volume Enhancers for Digital & Live Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-your-youtube-presence-with-best-video-formats/"><u>[New] Streamlining Your YouTube Presence with Best Video Formats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cultivate-creativity-10plus-channel-driven-video-suggestions/"><u>[Updated] 2024 Approved Cultivate Creativity 10+ Channel-Driven Video Suggestions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-steps-for-seamless-youtube-video-loops/"><u>[Updated] 2024 Approved Essential Steps for Seamless YouTube Video Loops</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-free-downloaders-download-youtube-thumbnail-for-free/"><u>[Updated] In 2024, Best Free Downloaders Download YouTube Thumbnail for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sprinkle-life-into-text-two-methods-for-bouncing-effects/"><u>[Updated] Sprinkle Life Into Text Two Methods for Bouncing Effects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-monetization-matrix-how-maker-gains-from-shorter-videos/"><u>[Updated] The Monetization Matrix How Maker Gains From Shorter Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-innovative-yt-reactions-for-engaging-content/"><u>[Updated] Top 10 Innovative YT Reactions for Engaging Content</u></a></li>
+<li><a href="https://win-updates.techidaily.com/comprehensive-guide-to-easy2sync-for-file-management-features-and-how-to/"><u>Comprehensive Guide to Easy2Sync for File Management: Features & How-To</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-screen-mastery-on-youtube-ideas-unleashed-for-2024/"><u>Green Screen Mastery on YouTube - Ideas Unleashed for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-vivo-t2-pro-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Vivo T2 Pro 5G online without jailbreak</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-high-res-horizon-a-comprehensive-look-at-the-sony-xperia-xz/"><u>In 2024, High-Res Horizon - A Comprehensive Look at the Sony Xperia XZ</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-unlock-high-view-counts-using-savvy-hashtag-use/"><u>In 2024, Unlock High View Counts Using Savvy #Hashtag Use</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/navigating-the-landscape-of-fb-video-advertising-with-best-practices-for-2024/"><u>Navigating the Landscape of FB Video Advertising with Best Practices for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-your-audio-experience-expert-tips-to-fix-broken-stereo-mixes/"><u>Reviving Your Audio Experience: Expert Tips to Fix Broken Stereo Mixes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/simplycapture-windows-screens-in-minutes/"><u>SimplyCapture - Windows Screens in Minutes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tech-tips-swiftly-sending-videos-as-shorts-on-digital-platforms-for-2024/"><u>Tech Tips Swiftly Sending Videos as Shorts on Digital Platforms for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transforming-youtube-video-to-animated-gif-user-friendly-tips-for-2024/"><u>Transforming YouTube Video to Animated GIF User-Friendly Tips for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/video-editing-hack-how-to-reverse-clips-in-final-cut-pro/"><u>Video Editing Hack How to Reverse Clips in Final Cut Pro</u></a></li>
 </ul></div>
 

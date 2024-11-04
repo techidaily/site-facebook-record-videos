@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Photography Support Systems\""
-date: 2024-07-31T03:50:39.434Z
-updated: 2024-08-01T03:50:39.434Z
+date: 2024-10-31T04:01:04.136Z
+updated: 2024-11-04T09:28:49.201Z
 tags:
   - ai video
   - ai youtube
@@ -28,24 +28,21 @@ thumbnail: https://www.lifewire.com/thmb/aW23AlAQxo0nKVxk3l_w8GEWdEQ=/400x300/fi
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -62,10 +59,14 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -89,8 +90,12 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -98,6 +103,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -119,10 +131,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -131,12 +139,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-creating-a-cash-flow-from-content-youtubes-monetization-techniques-for-the-future/"><u>[New] 2024 Approved Creating a Cash Flow From Content YouTube's Monetization Techniques for the Future</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-antique-cinematography-in-the-digital-realm-for-2024/"><u>[New] Antique Cinematography in the Digital Realm for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-step-by-step-guide-to-synchronized-camscreen-capture/"><u>[New] In 2024, Step-by-Step Guide to Synchronized Cam/Screen Capture</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-nextgen-video-havens-step-away-from-youtube/"><u>[New] NextGen Video Havens - Step Away From YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-command-center-masterminding-visionary-content/"><u>[Updated] 2024 Approved Channel Command Center Masterminding Visionary Content</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-premium-panels-picked-the-top-10-4k-list/"><u>[Updated] 2024 Approved Premium Panels Picked The #Top 10 4K List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-harness-the-power-of-youtube-videos-to-create-stunning-gifs-online/"><u>[Updated] Harness the Power of Youtube Videos to Create Stunning Gifs Online</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/gebruikbeurzen-voor-gsm-bestandsen-omzetting-online-gratis-movavi/"><u>Gebruikbeurzen Voor GSM-Bestandsen Omzetting Online Gratis - Movavi</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-watch-9-free-full-length-christmas-movies-on-youtube/"><u>In 2024, Watch 9 Free Full Length Christmas Movies On Youtube</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-oppo-find-n3-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Oppo Find N3 FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-future-is-here-with-macos-15-sequoia-projection-of-release-dates-and-innovative-features/"><u>The Future Is Here with MacOS 15 (Sequoia): Projection of Release Dates & Innovative Features</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-tricks-to-overcome-fortnites-video-memory-issues-now-solved/"><u>Ultimate Tricks to Overcome Fortnite's Video Memory Issues - Now Solved!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/youtube-video-upgrades-how-to-add-precise-times/"><u>YouTube Video Upgrades How to Add Precise Times</u></a></li>
+</ul></div>
 
