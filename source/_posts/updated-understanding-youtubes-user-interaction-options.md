@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Understanding YouTube's User Interaction Options"
-date: 2024-10-30T06:13:10.166Z
-updated: 2024-11-04T06:01:08.422Z
+date: 2024-11-07T22:02:48.563Z
+updated: 2024-11-12T18:22:06.101Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -117,20 +117,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -150,10 +143,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -170,6 +163,13 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -185,15 +185,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-content-creation-premier-android-editors/"><u>[New] 2024 Approved Cutting-Edge Content Creation Premier Android Editors</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhance-your-online-presence-with-these-50-complimentary-banners/"><u>[New] In 2024, Enhance Your Online Presence with These 50 Complimentary Banners</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-gain-massive-audience-on-youtube-in-minutes-2-ways/"><u>[Updated] Gain Massive Audience on YouTube in Minutes (2 Ways)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-cutting-edge-gaming-earpieces-for-youtubers/"><u>[Updated] The Cutting-Edge Gaming Earpieces for YouTubers</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/comprehensive-guide-to-the-apple-studio-display-full-specifications-advanced-features-and-essential-info/"><u>Comprehensive Guide to the Apple Studio Display: Full Specifications, Advanced Features & Essential Info</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/elevate-your-engagement-select-8-social-apps-for-facebook-fame/"><u>Elevate Your Engagement Select 8 Social Apps for Facebook Fame</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-nokia-g310-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Nokia G310 FRP</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/samsung-galaxy-z-fold-7-what-we-know-so-far-projections-for-price-and-release-plus-latest-specs-rumors/"><u>Samsung Galaxy Z Fold 7 - What We Know So Far: Projections for Price and Release + Latest Specs Rumors</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unleash-creativity-gratuity-in-humor-tools/"><u>Unleash Creativity Gratuity in Humor Tools</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-list-best-cartoon-video-maker-software-for-newbies/"><u>Updated The Ultimate List Best Cartoon Video Maker Software for Newbies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-science-and-art-of-engaging-youtube-audiences/"><u>[New] 2024 Approved The Science and Art of Engaging YouTube Audiences</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-deleting-youtube-comments-for-2024/"><u>[New] Deleting YouTube Comments for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-engagement-crafting-effective-youtube-backlinks-for-2024/"><u>[New] Elevate Engagement Crafting Effective YouTube Backlinks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-access-youtube-tracks-without-spending-a-dime-25plus-no-cost-audio-extractors/"><u>[New] In 2024, Access YouTube Tracks Without Spending a Dime 25+ No-Cost Audio Extractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-customizing-youtube-direct-subscription-urls/"><u>[New] In 2024, Customizing YouTube Direct Subscription URLs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-picks-7-royalty-free-audios-for-video-editing/"><u>[New] Top Picks 7 Royalty-Free Audios for Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-understanding-youtube-revenue-models-today/"><u>[New] Understanding YouTube Revenue Models Today</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-list-of-leading-free-video-editing-programs-for-2024/"><u>[Updated] Exclusive List of Leading Free Video Editing Programs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-avoiding-illegal-content-youtube-to-mp4-transfer-safely/"><u>[Updated] In 2024, Avoiding Illegal Content YouTube to MP4 Transfer Safely</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/finding-your-ideal-tv-viewing-experience-choosing-the-right-video-format-compatible-with-leading-manufacturers-such-as-lg-samsung-sony-and-tcl/"><u>Finding Your Ideal TV Viewing Experience: Choosing the Right Video Format Compatible with Leading Manufacturers Such as LG, Samsung, Sony, and TCL.</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-realme-c67-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Realme C67 5G Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-90-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor 90 Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-flip-the-script-mastering-instagram-video-replay/"><u>In 2024, Flip the Script Mastering Instagram Video Replay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/intelligent-accessories-unveiling-the-allure-of-classic-design-meets-high-tech-with-skagen-falster-3/"><u>Intelligent Accessories: Unveiling the Allure of Classic Design Meets High-Tech with Skagen Falster 3</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/laying-down-an-elegant-tiktok-credits-panel/"><u>Laying Down an Elegant TikTok Credits Panel</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-15-youtube-recording-software-for-gamers-for-2024/"><u>Top 15 YouTube Recording Software for Gamers for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-tecno-pop-7-pro-by-drfone-android/"><u>Universal Unlock Pattern for Tecno Pop 7 Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/virtual-verification-app-standards-by-vll-for-2024/"><u>Virtual Verification App Standards by VLL for 2024</u></a></li>
 </ul></div>
 

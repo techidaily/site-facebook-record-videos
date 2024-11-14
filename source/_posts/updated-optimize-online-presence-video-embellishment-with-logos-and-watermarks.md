@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Optimize Online Presence  Video Embellishment with Logos and Watermarks\""
-date: 2024-10-29T02:41:36.197Z
-updated: 2024-11-03T19:57:22.722Z
+date: 2024-11-11T11:00:24.124Z
+updated: 2024-11-12T21:02:27.176Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 * [**Part 1: How to add logo or watermark to in existing YouTube videos**](#part1)
 * [**Part 2: Add logos or watermarks to your videos before uploading**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to add logo or watermark to in existing YouTube videos
 
 To add a watermark to your previously uploaded videos you will need to have created and saved your watermark outside of your video editing program.
@@ -49,13 +56,6 @@ To add a watermark to your previously uploaded videos you will need to have crea
 * Sign in to your YouTube account. Click on the thumbnail image of your account at the top right corner. This will give you a drop down menu. Then Click on the small gear (indicating settings)
 
 ![youtube watermark](https://images.wondershare.com/filmora/article-images/youtube-watermark-setting.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * This will lead you to setting center. Click on "view additional features"
 
@@ -67,10 +67,10 @@ To add a watermark to your previously uploaded videos you will need to have crea
 ![add watermark to youtube](https://images.wondershare.com/filmora/article-images/add-watermark.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Notes
@@ -100,6 +100,13 @@ The following steps have to be taken to add a watermark:
 * Save the video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
 
@@ -135,10 +142,10 @@ The image should be in .PNG or .GIF format.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to Create a Transparent logo for Youtube Channel
@@ -152,16 +159,10 @@ Open Filmora. Choose **Create New Project**. Click import media files here in Me
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 2: Import video and image to Filmora
@@ -171,10 +172,16 @@ Right click on the image clip in the timeline. Choose **Green Screen**. You will
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 3: Scale the logo
@@ -182,13 +189,6 @@ Right click on the image clip in the timeline. Choose **Green Screen**. You will
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
 
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -207,24 +207,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-electorate-engagement-experience-top-gaming-selections/"><u>[New] 2024 Approved Electorate Engagement Experience Top Gaming Selections</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-standout-youtube-thumbnails-with-ease-for-2024/"><u>[New] Crafting Standout YouTube Thumbnails with Ease for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-earnings-on-youtube-the-crucial-number-of-video-views-for-money-for-2024/"><u>[New] Earnings on YouTube The Crucial Number of Video Views for Money for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-insightful-interviews-top-15-recruitment-dialogues/"><u>[New] Insightful Interviews - Top 15 Recruitment Dialogues</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-youtube-conclusion-handbook-creators-choice/"><u>[New] The Ultimate YouTube Conclusion Handbook [Creators' Choice]</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-animated-artistry-on-instagram-caption-creativity/"><u>[Updated] 2024 Approved Animated Artistry on Instagram Caption Creativity</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-fixed-shorts-no-more-hidden-content/"><u>[Updated] Fixed Shorts - No More Hidden Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-access-yt-comments-desktopiosandroid-edition-explained/"><u>[Updated] In 2024, Access YT Comments Desktop/iOS/Android Edition Explained</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-master-your-hashtags-the-path-to-6-figure-youtube-success/"><u>[Updated] Master Your Hashtags The Path to 6-Figure Youtube Success</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mobile-savvy-tailoring-youtube-video-thumbnails-with-phones/"><u>[Updated] Mobile-Savvy Tailoring YouTube Video Thumbnails with Phones</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-one-click-video-creation-simplified-editing-of-multi-snaps-for-2024/"><u>[Updated] One-Click Video Creation Simplified Editing of Multi-Snaps for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-crafting-compelling-video-covers/"><u>[Updated] The Art of Crafting Compelling Video Covers</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-nokia-105-classic-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Nokia 105 Classic Quickly | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-iphones-mass-storage-problem-update-your-usb-drivers/"><u>Fixing iPhone's Mass Storage Problem: Update Your USB Drivers</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hassle-free-installation-of-elgato-drivers-get-started-now/"><u>Hassle-Free Installation of Elgato Drivers - Get Started Now!</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-huawei-p60-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Huawei P60 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/smart-pricing-a-comprehensive-cloud-storage-analysis/"><u>Smart Pricing A Comprehensive Cloud Storage Analysis</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/hing-spotify-playlists-transferring-to-youtube-music-format/"><u>Switching Spotify Playlists Transferring to YouTube Music Format</u></a></li>
-<li><a href="https://win-updates.techidaily.com/sync-your-favorite-songs-with-ease-a-guide-to-adding-music-on-android-via-computer/"><u>Sync Your Favorite Songs with Ease: A Guide to Adding Music on Android via Computer</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-bridging-social-media-and-television-with-live-streaming/"><u>[New] Bridging Social Media & Television with Live Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-compelling-freefire-vids-with-strategy-guide/"><u>[New] In 2024, Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-detailed-steps-to-supercharge-your-youtube-audio-content/"><u>[Updated] In 2024, Detailed Steps to Supercharge Your YouTube Audio Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-uncover-the-globes-secrets-with-these-youtubers/"><u>[Updated] Uncover the Globe's Secrets with These Youtubers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-getting-your-vlogging-started-key-items-and-software/"><u>2024 Approved Getting Your Vlogging Started Key Items & Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-thumbnails-top-20-fonts-for-stellar-credits/"><u>2024 Approved YouTube Thumbnails - Top 20 Fonts for Stellar Credits</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/errtoomanyredirects-clear-it-up-in-minutes-with-these-tips/"><u>ERR_TOO_MANY_REDIRECTS? Clear It Up in Minutes with These Tips</u></a></li>
+<li><a href="https://win-forum.techidaily.com/facebook-to-youtube-a-journey-through-leading-social-platforms/"><u>Facebook to YouTube - A Journey Through Leading Social Platforms</u></a></li>
+<li><a href="https://games-able.techidaily.com/finding-value-in-graphic-performance/"><u>Finding Value in Graphic Performance</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-play-40c-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor Play 40C Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-photos-from-apple-iphone-12-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Photos from Apple iPhone 12 to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Samsung Galaxy A25 5G</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-ai-language-with-personalized-techniques/"><u>Mastering AI Language with Personalized Techniques</u></a></li>
 </ul></div>
 

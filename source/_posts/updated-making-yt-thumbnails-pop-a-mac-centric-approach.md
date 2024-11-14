@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Making YT Thumbnails Pop  A Mac-Centric Approach\""
-date: 2024-10-29T10:26:57.445Z
-updated: 2024-11-04T05:11:38.904Z
+date: 2024-11-09T20:20:59.261Z
+updated: 2024-11-13T10:29:40.833Z
 tags:
   - ai video
   - ai youtube
@@ -42,15 +42,28 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
@@ -71,18 +84,24 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -98,20 +117,13 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -129,20 +141,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-direct-entry-into-your-channel-simplifying-the-follow-button-creation/"><u>[New] 2024 Approved Direct Entry Into Your Channel Simplifying the Follow Button Creation</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-video-success-top-8-yt-thumbnail-strategies-for-2024/"><u>[New] Enhancing Video Success Top 8 YT Thumbnail Strategies for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-capture-and-share-your-games-like-a-pro-with-these-windows-11-tactics/"><u>[New] In 2024, Capture and Share Your Games Like a Pro with These Windows 11 Tactics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-youtubes-potential-for-visual-storytelling/"><u>[New] Unlocking YouTube's Potential for Visual Storytelling</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-craft-channels-with-flair-unveiling-10-innovative-design-platforms-for-2024/"><u>[Updated] Craft Channels with Flair Unveiling 10 Innovative Design Platforms for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-dial-up-your-digital-presence-tips-for-confident-video-creators-for-2024/"><u>[Updated] Dial Up Your Digital Presence Tips for Confident Video Creators for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-explore-9-simple-and-economical-editing-solutions-for-your-projects/"><u>[Updated] In 2024, Explore 9 Simple & Economical Editing Solutions for Your Projects</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-perfect-wave-linker-the-podcastists-choice-for-2024/"><u>[Updated] Perfect Wave Linker The Podcastist's Choice for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-xiaomi-13t-pro-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Xiaomi 13T Pro Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/chorus-chronicles-storytelling-with-musical-themes-for-2024/"><u>Chorus Chronicles Storytelling with Musical Themes for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/data-disappears-in-excel-2013-how-to-get-it-back-by-stellar-guide/"><u>Data Disappears in Excel 2013 - How to get it back</u></a></li>
-<li><a href="https://techtrends.techidaily.com/entferne-drm-aus-itunes-konvertieren-sie-musik-videos-and-podcasts-problemlos/"><u>Entferne DRM Aus iTunes: Konvertieren Sie Musik, Videos & Podcasts Problemlos</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-xiaomi-13t-pro-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Xiaomi 13T Pro to Roku | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/mastering-instagram-essential-hashtag-tips/"><u>Mastering Instagram Essential Hashtag Tips</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unbeatable-endurance-a-deep-dive-into-moto-g-powers-remarkable-battery-performance/"><u>Unbeatable Endurance: A Deep Dive Into Moto G Power's Remarkable Battery Performance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-clear-and-steady-essential-youtube-camera-tech-for-2024/"><u>[New] Clear and Steady Essential YouTube Camera Tech for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-easy-guide-turning-your-favorite-youtube-videos-into-animated-gifs/"><u>[Updated] 2024 Approved Easy Guide Turning Your Favorite YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-the-ultimate-tweet-template-for-visual-sharing/"><u>[Updated] 2024 Approved The Ultimate Tweet Template for Visual Sharing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-achieve-financial-success-with-youtube-ad-profit-techniques-for-2024/"><u>[Updated] Achieve Financial Success with YouTube Ad Profit Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-becoming-a-top-youtuber-with-gaming-livestreams-for-2024/"><u>[Updated] Becoming a Top YouTuber with Gaming Livestreams for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-boosting-vimeo-streams-tips-and-tricks/"><u>[Updated] Boosting Vimeo Streams Tips & Tricks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discover-the-best-8-mirrorless-cameras-that-transform-vlogging-for-2024/"><u>[Updated] Discover the Best 8 Mirrorless Cameras That Transform Vlogging for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-evaluating-rapid-subscriptions-impact-on-video-engagement-for-2024/"><u>[Updated] Evaluating Rapid Subscription's Impact on Video Engagement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-explore-the-world-of-frames-5-free-youtube-tips-for-you/"><u>[Updated] Explore the World of Frames 5 Free YouTube Tips for You</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-guide-to-finding-hidden-youtube-treasures/"><u>[Updated] In 2024, A Guide to Finding Hidden YouTube Treasures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-film-and-camera-choices-for-youtube-vloggers/"><u>[Updated] Optimal Film & Camera Choices for YouTube Vloggers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-smartphone-image-editing-the-best-free-layers-and-tools-guide-top-10/"><u>[Updated] Smartphone Image Editing - The Best Free Layers & Tools Guide (Top 10)</u></a></li>
+<li><a href="https://win-answers.techidaily.com/dota-2-wont-load-top-tips-and-tricks-to-resolve-launch-problems-successfully/"><u>Dota 2 Won't Load? Top Tips and Tricks to Resolve Launch Problems Successfully</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/graphical-glimpse-radeons-resurgence-for-2024/"><u>Graphical Glimpse Radeon's Resurgence for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-gpt-an-authoritative-guide-to-health-matters/"><u>Is GPT an Authoritative Guide to Health Matters?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimice-los-graficos-de-videojuegos-usando-ia-incrementa-fps-y-crea-transiciones-perfectas/"><u>Optimice Los Gráficos De Videojuegos Usando IA: Incrementa FPS Y Crea Transiciones Perfectas</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-audio-in-windows-media-player-step-by-step-solutions-for-no-sound-issues/"><u>Reviving Audio in Windows Media Player: Step-by-Step Solutions for No Sound Issues</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simplified-blue-screen-usage-guide-for-2024/"><u>Simplified Blue Screen Usage Guide for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/value-comparison-samsung-galaxy-tab-s9-fe-vs-apples-ipad-10gen-who-wins-the-middle-market/"><u>Value Comparison: Samsung Galaxy Tab S9 FE Vs. Apple's iPad 10Gen - Who Wins the Middle Market?</u></a></li>
 </ul></div>
 

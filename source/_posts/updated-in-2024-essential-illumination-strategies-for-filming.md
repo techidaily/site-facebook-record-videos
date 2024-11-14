@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Illumination Strategies for Filming"
-date: 2024-10-31T18:21:54.029Z
-updated: 2024-11-04T12:42:41.135Z
+date: 2024-11-10T19:33:53.228Z
+updated: 2024-11-12T21:49:49.938Z
 tags:
   - ai video
   - ai youtube
@@ -45,25 +45,19 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -99,10 +93,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -112,16 +106,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -139,18 +127,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-video-content-top-formats-on-youtube/"><u>[New] 2024 Approved Enhancing Video Content Top Formats on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-for-youtube-audio-optimization/"><u>[New] 2024 Approved Essential Tips for YouTube Audio Optimization</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-a-quick-guide-to-firefoxs-innovative-pip-mode-for-2024/"><u>[New] A Quick Guide to Firefox's Innovative PIP Mode for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-culinary-connoisseurs-must-watch-food-content-for-2024/"><u>[New] Culinary Connoisseurs Must-Watch Food Content for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-decoding-best-practices-navigating-through-top-9-free-logo-creators/"><u>[New] In 2024, Decoding Best Practices Navigating Through Top 9 Free Logo Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-2024s-prime-sci-fi-streamers-for-intellectual-quest/"><u>[New] Unveiling 2024'S Prime Sci-Fi Streamers for Intellectual Quest</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-how-to-transcribe-a-youtube-video-free/"><u>[Updated] 2024 Approved How to Transcribe a YouTube Video [FREE]</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-transformative-tech-review-magix-vpx-redefines-editing/"><u>[Updated] 2024 Approved Transformative Tech Review Magix VPX Redefines Editing</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-9-command-center-of-live-gaming-streams-for-2024/"><u>[Updated] 9 Command Center of Live Gaming Streams for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-creativity-with-free-audio-effects-online-for-2024/"><u>[Updated] Boost Creativity with Free Audio Effects Online for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/combating-coronavirus-myths-on-online-communities/"><u>Combating Coronavirus Myths on Online Communities</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-creating-seamless-meeting-transitions-with-slackplusfilmora/"><u>In 2024, Creating Seamless Meeting Transitions with Slack+Filmora</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/solving-god-of-war-stability-issues-a-guide-to-fixing-game-crashes-on-computer/"><u>Solving God of War Stability Issues: A Guide to Fixing Game Crashes on Computer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-leading-tools-discover-the-top-9-free-brand-designers/"><u>[New] 2024 Approved Exploring Leading Tools Discover the Top 9 FREE Brand Designers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-ppt-presentations-with-verbal-narration-guide/"><u>[New] 2024 Approved PPT Presentations with Verbal Narration Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-screen-reporter-tech-boosting-youtubing-experience/"><u>[Updated] Ideal Screen Reporter Tech Boosting YouTubing Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-auto-play-youtube-iphoneandroid-no-notification/"><u>[Updated] In 2024, Auto-Play YouTube IPhone/Android, No Notification</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-youtube-ad-revenue-keeping-cc-active/"><u>[Updated] In 2024, Boosting YouTube Ad Revenue Keeping CC Active</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-learn-ipads-screen-sharing-basics/"><u>[Updated] Learn iPad's Screen Sharing Basics</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/analyzing-the-winning-factors-9-pc-features-that-trump-macs/"><u>Analyzing the Winning Factors: 9 PC Features That Trump Macs</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-poco-c50-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-the-art-of-hiding-while-livestreaming-on-instagram/"><u>In 2024, The Art of Hiding While Livestreaming on Instagram</u></a></li>
+<li><a href="https://win-answers.techidaily.com/revive-your-windows-11-taskbar-expert-tips-and-solutions-to-make-it-functional/"><u>Revive Your Windows 11 Taskbar - Expert Tips & Solutions to Make It Functional</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-11-must-have-applications-and-services-for-windowsmac-users-a-comprehensive-guide-by-zdnet/"><u>Top 11 Must-Have Applications & Services for Windows/Mac Users: A Comprehensive Guide by ZDNet</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-potential-with-android-camera-apps/"><u>Unlocking Potential with Android Camera Apps</u></a></li>
 </ul></div>
 

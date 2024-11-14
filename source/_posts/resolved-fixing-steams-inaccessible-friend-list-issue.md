@@ -1,7 +1,7 @@
 ---
 title: "Resolved: Fixing Steam's Inaccessible Friend List Issue"
-date: 2024-10-30T07:31:55.495Z
-updated: 2024-11-04T06:34:31.232Z
+date: 2024-11-10T17:24:02.711Z
+updated: 2024-11-13T02:39:38.561Z
 tags:
   - win11
   - win10
@@ -36,9 +36,6 @@ The steps are pretty easy:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/Resident-Evil-Village-steam-properties-1.png)
 4. Click **LOCAL FILES** \> **Verify integrity of game files…** .  
 
-![](https://images.drivereasy.com/wp-content/uploads/2021/05/INTEGRITY.png)
-5. Wait a few minutes for Steam to validate the files of the game. Again, any files found missing or corrupt would be automatically downloaded in the process.
-
 <!-- affiliate ads begin -->
 <a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
   <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
@@ -46,7 +43,24 @@ The steps are pretty easy:
 <img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![](https://images.drivereasy.com/wp-content/uploads/2021/05/INTEGRITY.png)
+5. Wait a few minutes for Steam to validate the files of the game. Again, any files found missing or corrupt would be automatically downloaded in the process.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. Re-launch Resident Evil Village to see if the lag problem has been mitigated. If yes, then congrats! If it’s no joy, please try **Fix 2** , below.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Fix 2: Update your device drivers
 
@@ -62,21 +76,14 @@ The steps are pretty easy:
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/5-3.png)  
 **Note** : You can do it for free if you like, but it’s partly manual.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 4. Restart your computer for the changes to take effect.
 5. Check to see if the cutscene lag issue is solved. If it doesn’t do the trick, please continue with**Fix 3** , below.
@@ -95,13 +102,6 @@ The steps are pretty easy:
 * Rendering mode: Normal
 * FidelityFX CAS: Off
 * Ray tracing: Off
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 4: Install the latest patch
 
@@ -129,20 +129,24 @@ The steps are pretty easy:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-instantaneous-video-downloader-selection-guide/"><u>[New] Instantaneous Video Downloader Selection Guide</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-master-2-screen-grab-tools/"><u>[New] Master 2 Screen Grab Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-drive-more-watch-time-not-churn-discover-the-top-6-techniques-on-youtube-for-2024/"><u>[Updated] Drive More Watch Time, Not Churn Discover the Top 6 Techniques on YouTube for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-easy-steam-recordings-with-team-fortress-2s-latest-update-for-2024/"><u>[Updated] Easy Steam Recordings with Team Fortress 2'S Latest Update for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-download-youtube-videos-without-any-software-13-proven-ways/"><u>[Updated] How to Download YouTube Videos without Any Software [13 Proven Ways]</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[Updated] In 2024, Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-user-generated-content-harnessing-community-influence/"><u>[Updated] Unlocking User-Generated Content Harnessing Community Influence</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-from-free-to-profitable-unlocking-youtubes-monetization-at-500plus/"><u>2024 Approved From Free to Profitable Unlocking YouTube's Monetization at 500+</u></a></li>
-<li><a href="https://win-superb.techidaily.com/connect-your-usb-drive-to-the-android-device-and-select-it-within-the-application/"><u>Connect Your USB Drive to the Android Device and Select It Within the Application.</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/dial-up-the-impact-with-50-free-branding-graphics-in-2024/"><u>Dial Up the Impact with 50 FREE Branding Graphics, In 2024</u></a></li>
-<li><a href="https://discover-great.techidaily.com/direct-showdown-windows-11-and-macos-high-sierra-a-comparative-analysis-of-features/"><u>Direct Showdown: Windows 11 and macOS High Sierra - A Comparative Analysis of Features</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-the-best-tripod-for-iphone-and-android-smartphone/"><u>In 2024, The Best Tripod for iPhone and Android Smartphone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/master-uninterrupted-gaming-overcome-halo-infinite-freezing-on-your-pc-using-our-top-ebx-fix-strategies/"><u>Master Uninterrupted Gaming: Overcome 'Halo Infinite' Freezing on Your PC Using Our Top Ebx Fix Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pros-choice-the-ultimate-list-of-7-live-streaming-apps-for-youtube-iosandroid-for-2024/"><u>Pro's Choice The Ultimate List of 7 Live Streaming Apps for YouTube (iOS/Android) for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-your-online-presence-a-step-by-step-guide-to-viral-youtube-shorts/"><u>[New] 2024 Approved Boosting Your Online Presence A Step-by-Step Guide to Viral YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-the-world-of-youtube-shorts-mastering-video-creation/"><u>[New] 2024 Approved Dive Into the World of YouTube Shorts Mastering Video Creation</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-evaluating-macs-leading-snipping-tools-compilation/"><u>[New] 2024 Approved Evaluating Mac's Leading Snipping Tools Compilation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-dancing-to-the-tune-youtubes-hottest-music-video-responses-23-for-2024/"><u>[New] Dancing to the Tune YouTube's Hottest Music Video Responses, '23 for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-full-screen-in-obs-no-more-worry/"><u>[New] Full Screen in Obs, No More Worry</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-story-upgrade-how-to-add-music-effectively/"><u>[New] Instagram Story Upgrade How to Add Music Effectively</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-ten-simple-steps-to-acquire-igtv-media-for-2024/"><u>[New] Ten Simple Steps to Acquire IGTV Media for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[New] The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-roadmap-for-monetization-success-on-youtube-via-adsense/"><u>[Updated] 2024 Approved A Roadmap for Monetization Success on YouTube via AdSense</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtube-tv-for-everyone-no-expertise-required/"><u>[Updated] 2024 Approved YouTube TV for Everyone No Expertise Required</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-demystifying-recmeisters-advanced-screen-capture-technology-for-2024/"><u>[Updated] Demystifying Recmeister's Advanced Screen Capture Technology for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-learning-ranks-top-10-education-centric-channels/"><u>[Updated] Learning Ranks Top 10 Education-Centric Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-off-right-must-haves-for-youtube-enthusiasts/"><u>[Updated] Starting Off Right Must-Haves for YouTube Enthusiasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-viewers-to-earners-journey-calculating-necessary-counts/"><u>2024 Approved Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-wrap-up-wisdom-for-media-masters/"><u>2024 Approved Wrap-Up Wisdom for Media Masters</u></a></li>
+<li><a href="https://common-error.techidaily.com/batterypower-icon-missing-windows-11-solved/"><u>Battery/Power Icon Missing Windows 11 [Solved]</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719164636469-challenges-associated-with-updating-outdated-or-incorrect-maps/"><u>Challenges Associated with Updating Outdated or Incorrect Maps</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/discover-the-most-popular-online-music-subscription-services-this-year/"><u>Discover the Most Popular Online Music Subscription Services This Year</u></a></li>
+<li><a href="https://win-able.techidaily.com/no-more-glitches-troubleshooting-tips-for-a-smooth-fifa-19-gaming-experience/"><u>No More Glitches: Troubleshooting Tips for a Smooth FIFA 19 Gaming Experience</u></a></li>
 </ul></div>
 

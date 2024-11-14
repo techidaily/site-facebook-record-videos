@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-10-29T22:18:25.606Z
-updated: 2024-11-03T17:28:47.985Z
+date: 2024-11-10T02:54:39.946Z
+updated: 2024-11-13T12:15:40.751Z
 tags:
   - ai video
   - ai youtube
@@ -78,10 +78,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +120,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,21 +141,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-video-edits-without-spending-navigate-through-the-8-tools-for-2024/"><u>[New] Cutting-Edge Video Edits Without Spending Navigate Through The 8 Tools for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earning-in-a-world-dominated-by-youtubers/"><u>[New] In 2024, Earning in a World Dominated by YouTubers</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-proven-strategies-elevating-your-mobile-capture-game-with-mobizens-expertise/"><u>[New] In 2024, Proven Strategies Elevating Your Mobile Capture Game with Mobizen's Expertise</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-professional-editing-edge-discover-the-leading-15-gopro-color-grads/"><u>[New] Professional Editing Edge Discover the Leading 15 GOPRO Color Grads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-insiders-approach-to-maximizing-youtube-video-revenue/"><u>[New] The Insider's Approach to Maximizing YouTube Video Revenue</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[New] The Tug-of-War Youtube Licensing Versus CC Principles</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-corrected-clandestine-miniature-video-absence/"><u>[Updated] 2024 Approved Corrected Clandestine Miniature Video Absence</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-novice-to-pro-youtube-shorts-guide/"><u>[Updated] From Novice to Pro YouTube Shorts Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-strategic-video-collaborations-for-viewership-increase/"><u>[Updated] Strategic Video Collaborations for Viewership Increase</u></a></li>
-<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-s18-pro-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo S18 Pro to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-ignite-interest-a-list-of-30-video-themes/"><u>2024 Approved Ignite Interest A List of 30 Video Themes</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-what-are-luts-and-how-they-change-your-photo/"><u>2024 Approved What Are LUTs and How They Change Your Photo</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-downgrade-iphone-12-mini-to-the-previous-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 mini to the Previous iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/push-boundaries-with-latest-driver-updates-from-dell/"><u>Push Boundaries with Latest Driver Updates From Dell</u></a></li>
-<li><a href="https://win-docs.techidaily.com/responsible-prescribing-practices-are-crucial-in-managing-and-preventing-antibiotic-resistance/"><u>Responsible Prescribing Practices Are Crucial in Managing and Preventing Antibiotic Resistance.</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/zdnet-explores-the-ultimate-blend-of-durability-and-aesthetics-in-premier-notebook-testing/"><u>ZDNet Explores the Ultimate Blend of Durability and Aesthetics in Premier Notebook Testing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-an-easy-to-use-youtube-subscription-tagline-for-2024/"><u>[New] Crafting an Easy-to-Use YouTube Subscription Tagline for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-frostbound-competition-spotlight-on-2022s-olympic-snowboard-cross-heroes/"><u>[New] Frostbound Competition Spotlight on 2022'S Olympic Snowboard Cross Heroes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-pros-choice-review-the-ultimate-4k-dslr-rigs/"><u>[New] In 2024, Pro's Choice Review The Ultimate 4K DSLR Rigs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-macs-2023-update-youtube-audio-to-mp3-step-by-step/"><u>[New] Mac's 2023 Update YouTube Audio to MP3 Step-by-Step</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-more-than-clicks-what-determines-youtubes-view-numbers/"><u>[New] More than Clicks What Determines YouTube's View Numbers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essence-of-elegance-in-video-color-balancing/"><u>[New] The Essence of Elegance in Video Color Balancing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-gamers-blueprint-for-a-booming-youtube-channel/"><u>[New] The Gamer's Blueprint for a Booming YouTube Channel</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-turbo-speed-for-snapchat-newcomers-video-edition/"><u>[New] Turbo Speed for Snapchat Newcomers Video Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-eradicate-green-screen-from-mac-produced-videos/"><u>[Updated] The Ultimate Guide to Eradicate Green Screen From Mac-Produced Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unleashing-photography-potential-with-lightroom-hdrs/"><u>[Updated] Unleashing Photography Potential with Lightroom HDRs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-utilizing-youtubes-cc-to-enhance-your-videography/"><u>[Updated] Utilizing YouTube's CC to Enhance Your Videography</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-become-a-travel-vlogger-the-ultimate-guide-of-travel-vlogging-for-2024/"><u>How To Become A Travel Vlogger | The Ultimate Guide of Travel Vlogging for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/macs-choice-of-capture-an-in-depth-look-at-premium-software/"><u>Mac's Choice of Capture An In-Depth Look at Premium Software</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pro-hdr-image-processing-a-lightroom-approach-for-2024/"><u>Pro HDR Image Processing A Lightroom Approach for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10plus-free-video-intro-makers-for-youtubers-for-2024/"><u>Top 10+ Free Video Intro Makers for Youtubers for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/visual-producer-hub/"><u>Visual Producer Hub</u></a></li>
 </ul></div>
 
