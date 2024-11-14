@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2024-11-09T09:24:15.503Z
-updated: 2024-11-13T02:55:19.467Z
+date: 2024-11-09T20:15:57.760Z
+updated: 2024-11-13T23:03:21.394Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,27 +175,26 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-boost-your-videos-impact-with-gs-and-yt-conversion-for-2024/"><u>[New] Boost Your Video's Impact with GS and YT Conversion for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-comprehensively-reviewing-youtubes-restrictions-vs-cc-flexibility-for-2024/"><u>[New] Comprehensively Reviewing YouTube's Restrictions Vs. CC Flexibility for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-htc-vive-the-pinnacle-of-immersive-3d-playing-experiences/"><u>[New] HTC Vive The Pinnacle of Immersive 3D Playing Experiences</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-disruptive-beats-curated-list-of-music-mutators/"><u>[Updated] In 2024, Disruptive Beats Curated List of Music Mutators</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-remedy-for-accidental-youself-reappearance-during-fb-chats/"><u>[Updated] Remedy for Accidental 'Youself' Reappearance During FB Chats</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-revealing-the-ultimate-collection-of-youtube-beauty-experts/"><u>[Updated] Revealing the Ultimate Collection of YouTube Beauty Experts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-cracking-the-code-of-true-instagram-photos/"><u>2024 Approved Cracking the Code of True Instagram Photos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ng-edge-youtube-end-card-tactics-and-layouts-for-2024/"><u>Cutting Edge Youtube End Card Tactics & Layouts for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/demystifying-xbox-game-pass-for-gamers/"><u>Demystifying Xbox Game Pass for Gamers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pioneering-avengers-the-marvellous-world-builders-for-2024/"><u>Pioneering Avengers The Marvellous World-Builders for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723005757058-resolving-technical-issues-with-yakuza-6-pc-version-no-more-crashes/"><u>Resolving Technical Issues with Yakuza 6 PC Version - No More Crashes!</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/small-yet-mighty-discover-the-surprising-capabilities-of-a-budget-friendly-handheld-amazingness-why-this-8-in-1-adapter-outperforms-expensive-rivals-on-feat3/"><u>Small Yet Mighty: Discover the Surprising Capabilities of a Budget-Friendly, Handheld Amazingness! Why This 8-in-1 Adapter Outperforms Expensive Rivals on Features and Convenience</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-must-know-facts-for-choosing-the-right-smart-ring-a-preemptive-guide/"><u>The Must-Know Facts for Choosing the Right Smart Ring: A Preemptive Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-y200-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y200 Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-complete-manual-on-live-streaming-platforms-for-2024/"><u>Your Complete Manual on Live Streaming Platforms for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-capture-youtubes-subtitles-on-no-cost-platforms/"><u>[New] 2024 Approved Capture YouTube's Subtitles on No-Cost Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-the-leading-youtube-to-webm-video-conversion-tools/"><u>[New] 2024 Approved Explore the Leading YouTube-to-WebM Video Conversion Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-easy-in-getting-vrecorder-on-your-pc/"><u>[New] In 2024, Easy In Getting VRecorder on Your PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>[Updated] 2024 Approved Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>[Updated] 2024 Approved Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-hottest-templates-in-igs-vfx-community/"><u>[Updated] Navigating the Hottest Templates in IG's VFX Community</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-reinvent-your-youtube-presence-a-guide-to-elevated-subscription-rates/"><u>[Updated] Reinvent Your YouTube Presence A Guide to Elevated Subscription Rates</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-transforming-realities-into-engaging-documentaries-through-scriptwriting/"><u>[Updated] Transforming Realities Into Engaging Documentaries Through Scriptwriting</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixing-screen-config-issue-in-win-710/"><u>Fixing Screen Config Issue in Win 7/10</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-netflix-memories-capturing-every-view-with-mac/"><u>In 2024, Netflix Memories Capturing Every View with Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/proven-techniques-for-amplifying-your-impact-on-youtube-shorts-for-2024/"><u>Proven Techniques for Amplifying Your Impact on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-quality-comparison-mirrorless-or-dslr-cameras-for-2024/"><u>Video Quality Comparison Mirrorless or DSLR Cameras for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "Resolved: Fixing Steam's Inaccessible Friend List Issue"
-date: 2024-11-10T17:24:02.711Z
-updated: 2024-11-13T02:39:38.561Z
+date: 2024-11-11T16:53:14.585Z
+updated: 2024-11-14T06:46:53.833Z
 tags:
   - win11
   - win10
@@ -24,6 +24,13 @@ The long-anticipated horror game Resident Evil Village has finally been out. How
 * [Fix 3: Adjust your graphics settings](https://tools.techidaily.com/drivereasy/download/)
 * [Fix 4: Install the latest patch](https://tools.techidaily.com/drivereasy/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Verify game integrity
 
  The audio video out of sync issue could happen if the files of Reisdent Evil Village is corrupt. Luckily, Steam client has a handy feature that allows you to verify the integrity of the game – if any files on your PC are found different to the ones on Steam servers, they’ll be changed or repaired.
@@ -37,30 +44,16 @@ The steps are pretty easy:
 4. Click **LOCAL FILES** \> **Verify integrity of game files…** .  
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/05/INTEGRITY.png)
 5. Wait a few minutes for Steam to validate the files of the game. Again, any files found missing or corrupt would be automatically downloaded in the process.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 6. Re-launch Resident Evil Village to see if the lag problem has been mitigated. If yes, then congrats! If it’s no joy, please try **Fix 2** , below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Fix 2: Update your device drivers
 
@@ -76,14 +69,21 @@ The steps are pretty easy:
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the[**Pro version**](https://tools.techidaily.com/drivereasy/download/) – you’ll be prompted to upgrade when you click Update All).  
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/5-3.png)  
 **Note** : You can do it for free if you like, but it’s partly manual.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 4. Restart your computer for the changes to take effect.
 5. Check to see if the cutscene lag issue is solved. If it doesn’t do the trick, please continue with**Fix 3** , below.
@@ -129,24 +129,24 @@ The steps are pretty easy:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-your-online-presence-a-step-by-step-guide-to-viral-youtube-shorts/"><u>[New] 2024 Approved Boosting Your Online Presence A Step-by-Step Guide to Viral YouTube Shorts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-the-world-of-youtube-shorts-mastering-video-creation/"><u>[New] 2024 Approved Dive Into the World of YouTube Shorts Mastering Video Creation</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-evaluating-macs-leading-snipping-tools-compilation/"><u>[New] 2024 Approved Evaluating Mac's Leading Snipping Tools Compilation</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-dancing-to-the-tune-youtubes-hottest-music-video-responses-23-for-2024/"><u>[New] Dancing to the Tune YouTube's Hottest Music Video Responses, '23 for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-full-screen-in-obs-no-more-worry/"><u>[New] Full Screen in Obs, No More Worry</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-instagram-story-upgrade-how-to-add-music-effectively/"><u>[New] Instagram Story Upgrade How to Add Music Effectively</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-ten-simple-steps-to-acquire-igtv-media-for-2024/"><u>[New] Ten Simple Steps to Acquire IGTV Media for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[New] The Ultimate Guide Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-roadmap-for-monetization-success-on-youtube-via-adsense/"><u>[Updated] 2024 Approved A Roadmap for Monetization Success on YouTube via AdSense</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-youtube-tv-for-everyone-no-expertise-required/"><u>[Updated] 2024 Approved YouTube TV for Everyone No Expertise Required</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-demystifying-recmeisters-advanced-screen-capture-technology-for-2024/"><u>[Updated] Demystifying Recmeister's Advanced Screen Capture Technology for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-learning-ranks-top-10-education-centric-channels/"><u>[Updated] Learning Ranks Top 10 Education-Centric Channels</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-off-right-must-haves-for-youtube-enthusiasts/"><u>[Updated] Starting Off Right Must-Haves for YouTube Enthusiasts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-viewers-to-earners-journey-calculating-necessary-counts/"><u>2024 Approved Viewers to Earner's Journey Calculating Necessary Counts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-wrap-up-wisdom-for-media-masters/"><u>2024 Approved Wrap-Up Wisdom for Media Masters</u></a></li>
-<li><a href="https://common-error.techidaily.com/batterypower-icon-missing-windows-11-solved/"><u>Battery/Power Icon Missing Windows 11 [Solved]</u></a></li>
-<li><a href="https://games-able.techidaily.com/1719164636469-challenges-associated-with-updating-outdated-or-incorrect-maps/"><u>Challenges Associated with Updating Outdated or Incorrect Maps</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/discover-the-most-popular-online-music-subscription-services-this-year/"><u>Discover the Most Popular Online Music Subscription Services This Year</u></a></li>
-<li><a href="https://win-able.techidaily.com/no-more-glitches-troubleshooting-tips-for-a-smooth-fifa-19-gaming-experience/"><u>No More Glitches: Troubleshooting Tips for a Smooth FIFA 19 Gaming Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-100plus-cool-gaming-channel-names-for-every-gamer-for-2024/"><u>[New] 100+ Cool Gaming Channel Names for Every Gamer for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-7-free-video-editing-programs-that-work-flawlessly/"><u>[New] 2024 Approved 7 Free Video Editing Programs That Work Flawlessly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-television-experience-playback-tips-for-youtube-content/"><u>[New] 2024 Approved Enhancing Television Experience Playback Tips for YouTube Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-essential-insights-best-instagram-editors-for-mobile-and-pc/"><u>[New] 2024 Approved Essential Insights Best Instagram Editors for Mobile and PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-adsense-on-youtube-determining-your-income-from-1k-viewer-engagement-for-2024/"><u>[New] AdSense on YouTube Determining Your Income From 1K Viewer Engagement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-bend-reality-with-your-own-animated-craftsmanship/"><u>[Updated] 2024 Approved Bend Reality with Your Own Animated Craftsmanship</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortless-media-transition-from-mp3-to-youtube-video-posting/"><u>[Updated] 2024 Approved Effortless Media Transition From MP3 to YouTube Video Posting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-process-to-revamp-your-youtube-audio-tracks/"><u>[Updated] Step-by-Step Process to Revamp Your YouTube Audio Tracks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-stream-talent-twitter-live-broadcast-basics-for-2024/"><u>[Updated] Stream Talent Twitter Live Broadcast Basics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-9-mobile-apps-for-downloading-youtube-videos-android/"><u>[Updated] Top 9 Mobile Apps for Downloading YouTube Videos (Android)</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-fundamentals-of-captivating-video-scripts/"><u>2024 Approved The Fundamentals of Captivating Video Scripts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-trimmed-techniques-quick-quality-recording-for-dell/"><u>2024 Approved Trimmed Techniques Quick, Quality Recording for Dell</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-tips-to-resolve-jvmdll-not-found-on-your-pc/"><u>Comprehensive Tips to Resolve 'JVM_DLL Not Found' On Your PC</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/demystifying-chatgpt-and-discovering-applications-for-advanced-generative-ai-technology/"><u>Demystifying ChatGPT & Discovering Applications for Advanced Generative AI Technology</u></a></li>
+<li><a href="https://win-dash.techidaily.com/diagnosing-and-repairing-complications-in-realtek-rtl8811au-wireless-adapter-software-drivers/"><u>Diagnosing and Repairing Complications in Realtek RTL8811AU Wireless Adapter Software Drivers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-gps-location-on-tecno-spark-10-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Tecno Spark 10 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-vr-horizons-the-premier-pc-headsets-of-today/"><u>In 2024, VR Horizons The Premier PC Headsets of Today</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/snappy-photo-assembly-your-quick-google-collages-blueprint/"><u>Snappy Photo Assembly Your Quick Google Collages Blueprint</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-11-video-cameras-under-500-a-frugal-filmmakers-list-for-2024/"><u>Top 11 Video Cameras Under $500 A Frugal Filmmaker's List for 2024</u></a></li>
 </ul></div>
 

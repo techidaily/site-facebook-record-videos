@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Illumination Strategies for Filming"
-date: 2024-11-10T19:33:53.228Z
-updated: 2024-11-12T21:49:49.938Z
+date: 2024-11-10T07:27:03.880Z
+updated: 2024-11-14T00:08:36.447Z
 tags:
   - ai video
   - ai youtube
@@ -45,19 +45,25 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -86,6 +92,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -93,10 +106,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -104,13 +117,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,17 +133,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-leading-tools-discover-the-top-9-free-brand-designers/"><u>[New] 2024 Approved Exploring Leading Tools Discover the Top 9 FREE Brand Designers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-ppt-presentations-with-verbal-narration-guide/"><u>[New] 2024 Approved PPT Presentations with Verbal Narration Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ideal-screen-reporter-tech-boosting-youtubing-experience/"><u>[Updated] Ideal Screen Reporter Tech Boosting YouTubing Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-auto-play-youtube-iphoneandroid-no-notification/"><u>[Updated] In 2024, Auto-Play YouTube IPhone/Android, No Notification</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-youtube-ad-revenue-keeping-cc-active/"><u>[Updated] In 2024, Boosting YouTube Ad Revenue Keeping CC Active</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-learn-ipads-screen-sharing-basics/"><u>[Updated] Learn iPad's Screen Sharing Basics</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/analyzing-the-winning-factors-9-pc-features-that-trump-macs/"><u>Analyzing the Winning Factors: 9 PC Features That Trump Macs</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-poco-c50-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Poco C50 | Dr.fone</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-the-art-of-hiding-while-livestreaming-on-instagram/"><u>In 2024, The Art of Hiding While Livestreaming on Instagram</u></a></li>
-<li><a href="https://win-answers.techidaily.com/revive-your-windows-11-taskbar-expert-tips-and-solutions-to-make-it-functional/"><u>Revive Your Windows 11 Taskbar - Expert Tips & Solutions to Make It Functional</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-11-must-have-applications-and-services-for-windowsmac-users-a-comprehensive-guide-by-zdnet/"><u>Top 11 Must-Have Applications & Services for Windows/Mac Users: A Comprehensive Guide by ZDNet</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/unlocking-potential-with-android-camera-apps/"><u>Unlocking Potential with Android Camera Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effective-visual-brand-strategies-for-your-youtube-logo/"><u>[New] 2024 Approved Effective Visual Brand Strategies for Your YouTube Logo</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-video-gear-for-youtube-starters/"><u>[New] 2024 Approved Essential Video Gear for YouTube Starters</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-high-ranking-nintendo-switch-brawlers-index-max-156/"><u>[New] 2024 Approved High-Ranking Nintendo Switch Brawlers Index (Max 156)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-steps-towards-joining-filmoras-certified-creative-circle/"><u>[New] 2024 Approved Steps Towards Joining Filmora's Certified Creative Circle</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expanding-your-audience-stream-successfully-across-30plus-outlets-for-2024/"><u>[New] Expanding Your Audience Stream Successfully Across 30+ Outlets for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-mastering-the-art-of-speech-to-text-conversion-on-powerpoint-platform-for-2024/"><u>[New] Mastering the Art of Speech-to-Text Conversion on PowerPoint Platform for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-no-ads-content-creators-playbook-a-guide-to-monetizing-videos/"><u>[New] The No-Ads Content Creator’s Playbook A Guide to Monetizing Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-recording-gear-for-social-media-stars/"><u>[New] Ultimate Recording Gear for Social Media Stars</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-a-review-10-best-free-luts-with-download-links/"><u>[Updated] 2024 Approved A Review 10 Best Free LUTs with Download Links</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-gif-magic-on-mac-leading-tools-of-10/"><u>[Updated] 2024 Approved GIF Magic on Mac Leading Tools of 10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-the-worlds-most-popular-shorter-videos-free-for-2024/"><u>[Updated] Discovering the World's Most Popular Shorter Videos (FREE) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>[Updated] In 2024, Cutting Edge Computing Select the Optimal Device for Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-self-animated-wonders-cutting-edge-techniques-for-you/"><u>[Updated] Self-Animated Wonders Cutting Edge Techniques for You</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-ultimate-zoom-audio-capture-techniques/"><u>2024 Approved Ultimate ZOOM Audio Capture Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-facetime-call-history-on-iphone-15-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover FaceTime Call History on iPhone 15 Plus | Stellar</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-xiaomi-redmi-note-12-proplus-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi Redmi Note 12 Pro+ 5G Fingerprint Lock</u></a></li>
 </ul></div>
 
