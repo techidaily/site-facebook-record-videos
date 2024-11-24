@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlock Higher Views  Basic YouTube SEO Explained\""
-date: 2024-11-10T18:12:40.176Z
-updated: 2024-11-14T06:14:42.581Z
+date: 2024-11-18T03:56:40.839Z
+updated: 2024-11-24T00:49:13.607Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
@@ -83,6 +87,10 @@ Come up with as many relevant keywords as you can. Start by entering a keyword i
 Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
@@ -200,13 +208,6 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -215,24 +216,15 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -241,6 +233,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -267,22 +263,12 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -299,24 +285,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-content-game-with-these-5-proven-youtube-marketing-hacks-for-2024/"><u>[New] Elevate Your Content Game with These 5 Proven YouTube Marketing Hacks for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-breaking-into-livestrances-a-gamers-guide-to-youtube-success/"><u>[New] In 2024, Breaking Into Livestrances A Gamers' Guide to YouTube Success</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-average-income-for-popular-youtube-creators/"><u>[Updated] 2024 Approved Average Income for Popular YouTube Creators</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-best-8-online-locations-for-3d-text-psd-downloads/"><u>[Updated] Best 8 Online Locations for 3D Text PSD Downloads</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-effortless-shuffle-of-your-youtube-playlists/"><u>[Updated] In 2024, Effortless Shuffle of Your YouTube Playlists</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-laughter-lab-top-7-sketches-and-vignettes-for-youtubers/"><u>[Updated] Laughter Lab Top 7 Sketches & Vignettes for YouTubers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-the-world-of-webcams-for-high-quality-streams/"><u>[Updated] Navigating the World of Webcams for High-Quality Streams</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essential-guide-to-aspect-ratio-standards-on-yt/"><u>[Updated] The Essential Guide to Aspect Ratio Standards on YT</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-infographic-efficient-video-marketing-for-smalls/"><u>2024 Approved Infographic Efficient Video Marketing for Smalls</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-best-budget-friendly-high-fidelity-webm-players/"><u>2024 Approved The Best Budget-Friendly, High-Fidelity WebM Players</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-voice-modification-tools-essential-choices-for-vtuber-creators/"><u>2024 Approved Top Voice Modification Tools Essential Choices for VTuber Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-watch-deleted-youtube-secrets-to-accessing-lost-content/"><u>2024 Approved Watch Deleted YouTube Secrets to Accessing Lost Content</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/amazons-ongoing-deals-get-your-8tb-samsung-t5-external-ssd-now-for-a-steep-36-off-after-october-prime-extravaganza-zdnet-insights/"><u>Amazon's Ongoing Deals: Get Your 8TB Samsung T5 External SSD Now for a Steep 36% Off After October Prime Extravaganza | ZDNet Insights</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gratis-webm-to-flac-converter-online-movavi/"><u>Gratis WebM-to-FLAC Converter Online - Movavi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-it-worth-the-cost-uncovering-the-excellence-of-the-google-pixelbook-go-review/"><u>Is It Worth the Cost? Uncovering the Excellence of the Google Pixelbook Go Review</u></a></li>
-<li><a href="https://techtrends.techidaily.com/network-drives-made-easy-setting-up-on-your-apple-computer/"><u>Network Drives Made Easy: Setting Up on Your Apple Computer</u></a></li>
-<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Asus ROG Phone 8 | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-key-to-wealth-in-web-videos-view-count-imperative-for-2024/"><u>The Key to Wealth in Web Videos View Count Imperative for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-ideal-youtube-subset-of-viewers-for-2024/"><u>Unveiling the Ideal YouTube Subset of Viewers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-average-gain-for-youtubers-per-ad-exposure-in-2024/"><u>[New] Average Gain for YouTubers per Ad Exposure, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-srt-simplified-core-concepts-made-clear/"><u>[New] SRT Simplified Core Concepts Made Clear</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-achieve-sharpness-camera-tips-without-a-tripod/"><u>[Updated] 2024 Approved Achieve Sharpness Camera Tips Without a Tripod</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-unlocking-tiktoks-photoshop-magic-effortlessly/"><u>[Updated] In 2024, Unlocking TikTok's Photoshop Magic Effortlessly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-simplifying-the-art-of-gif-production/"><u>[Updated] Simplifying the Art of GIF Production</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streamline-your-video-queue-step-by-step-guide-to-a-youtube-saved-playlist/"><u>[Updated] Streamline Your Video Queue Step-By-Step Guide to a YouTube Saved Playlist</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-yt-outro-guidelines-keeping-viewers-hooked/"><u>[Updated] YT Outro Guidelines Keeping Viewers Hooked</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-roadmap-to-exceptional-spotify-ad-performance/"><u>2024 Approved The Roadmap to Exceptional Spotify Ad Performance</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-resolve-offline-printer-problems-in-os/"><u>How To Resolve Offline Printer Problems in OS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-how-to-use-video-titles-and-youtube-tags-for-more-views/"><u>In 2024, How to Use Video Titles and YouTube Tags for More Views?</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-todays-virtual-realty-hardware-exploration/"><u>In 2024, Today’s Virtual Realty Hardware Exploration</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movavi-transform-your-mxf-media-into-various-formats-without-cost/"><u>Movavi: Transform Your MXF Media Into Various Formats Without Cost</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-digital-age-mastery-of-facebook-twitter-instagram-and-youtube-for-optimal-engagement/"><u>Navigating the Digital Age: Mastery of Facebook, Twitter, Instagram & YouTube for Optimal Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocketing-numbers-enhancing-youtube-presence-for-2024/"><u>Skyrocketing Numbers Enhancing YouTube Presence for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-into-history-discovering-the-best-10-educational-yt-channels-for-2024/"><u>Step Into History Discovering the Best 10 Educational YT Channels for 2024</u></a></li>
 </ul></div>
 

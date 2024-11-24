@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Networking Haven  Beyond VidCon\""
-date: 2024-11-10T00:32:17.461Z
-updated: 2024-11-13T19:17:01.759Z
+date: 2024-11-17T20:36:32.726Z
+updated: 2024-11-23T23:30:51.086Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 1. **[VidCon](http://vidcon.com/)**
 
 **VidCon US:** June (Anaheim, California)
@@ -51,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -150,6 +158,10 @@ Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
 **Passes:**
@@ -188,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -212,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -227,29 +247,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-the-top-8-cost-free-videography-suites-for-digital-filmmakers/"><u>[New] 2024 Approved Discover the Top 8 Cost-Free Videography Suites for Digital Filmmakers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[New] In 2024, Capture Your Best Moments Top 8 Mirrorless Cameras For You</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-innovative-ways-to-record-youtube-videos/"><u>[New] Innovative Ways to Record YouTube Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-make-every-youtube-video-count-learn-how-to-free-transcribe-easily/"><u>[New] Make Every YouTube Video Count Learn How to Free-Transcribe Easily</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-logitech-webcam-basics-video-recording-made-easy/"><u>[Updated] 2024 Approved Logitech Webcam Basics Video Recording Made Easy</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-broadcast-easily-3-steps-to-post-mp3-on-youtube/"><u>[Updated] In 2024, Broadcast Easily 3 Steps to Post MP3 on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-uncover-the-10-best-makeup-experts-on-youtube-you-cant-ignore/"><u>[Updated] Uncover the 10 Best Makeup Experts on YouTube You Can't Ignore</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-earnings-guide-policy-overhaul-explained/"><u>[Updated] YouTube Earnings Guide Policy Overhaul Explained</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-secret-strategies-to-outshine-with-canva-photos/"><u>2024 Approved Secret Strategies to Outshine with Canva Photos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-a-health-tracker-consider-fitbit-sense-over-apple-watch/"><u>Choosing a Health Tracker? Consider Fitbit Sense Over Apple Watch</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ary-callings-innovative-naming-for-foodie-channels/"><u>Culinary Callings Innovative Naming for Foodie Channels</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-empower-your-filmmaking-skills-using-phone-cameras-for-recording/"><u>In 2024, Empower Your Filmmaking Skills Using Phone Cameras for Recording</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme C53? | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/step-by-step-solution-for-running-tiny-tinas-wonderlands-seamlessly-on-a-personal-computer/"><u>Step-by-Step Solution for Running Tiny Tina's Wonderlands Seamlessly on a Personal Computer</u></a></li>
-<li><a href="https://fox-access.techidaily.com/streamlined-accessibility-learning-iphoneipad-techniques-for-podcast-downloads/"><u>Streamlined Accessibility Learning iPhone/iPad Techniques for Podcast Downloads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/understanding-earnings-potential-per-video-consumption-for-2024/"><u>Understanding Earnings Potential per Video Consumption for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unveiling-youtubes-veiled-content-a-detailed-protocol-for-2024/"><u>Unveiling YouTube's Veiled Content A Detailed Protocol for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-daily-dollars-and-cents-average-income-from-youtubes-adsense-per-thousand-viewer-hours-for-2024/"><u>[New] Daily Dollars and Cents Average Income From YouTube's AdSense Per Thousand Viewer Hours for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-ignite-your-online-presence-nine-essential-tips-for-mastering-instagram-stardom/"><u>[New] Ignite Your Online Presence Nine Essential Tips for Mastering Instagram Stardom</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-the-pioneering-path-of-vr-technology/"><u>[New] In 2024, The Pioneering Path of VR Technology</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-video-presentation-with-these-7-free-makers/"><u>[Updated] 2024 Approved Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-uploads-more-views-youtubes-easily-overlooked-hacks/"><u>[Updated] Free Uploads, More Views YouTube's Easily Overlooked Hacks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-customizing-youtube-viewing-policies-for-your-content/"><u>[Updated] In 2024, Customizing YouTube Viewing Policies for Your Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-guide-to-making-a-hit-youtuber-short/"><u>[Updated] Step-by-Step Guide to Making a Hit Youtuber Short</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-trending-youtubers/"><u>[Updated] The Ultimate Guide to Trending YouTubers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-fb-livestream-success-on-television-four-pathways/"><u>2024 Approved FB Livestream Success on Television Four Pathways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-chosen-best-asus-routers-of-the-new-decade/"><u>Expertly Chosen Best Asus Routers of the New Decade</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-interpreting-the-significance-of-a-blue-image-on-fb-chat/"><u>In 2024, Interpreting the Significance of a Blue Image on FB Chat</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-surging-social-media-accelerating-instagram-interactions/"><u>In 2024, Surging Social Media Accelerating Instagram Interactions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/quick-remedies-when-your-roku-screen-stays-black-a-comprehensive-guide/"><u>Quick Remedies When Your Roku Screen Stays Black: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/raucous-reels-crafting-7-comedy-storylines-for-social-media-stars-for-2024/"><u>Raucous Reels Crafting 7 Comedy Storylines for Social Media Stars for 2024</u></a></li>
+<li><a href="https://tools.techidaily.com/softwarezirkel/products/"><u>Softwarezirkel's Products</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

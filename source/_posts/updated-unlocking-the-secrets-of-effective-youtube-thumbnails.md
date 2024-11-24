@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlocking the Secrets of Effective YouTube Thumbnails"
-date: 2024-11-09T16:51:22.745Z
-updated: 2024-11-13T23:58:40.279Z
+date: 2024-11-16T19:21:30.826Z
+updated: 2024-11-23T22:02:07.541Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 4. [How to Make Thumbnails that Get Clicks (Without Clickbait!)](#clicks)
 5. [Animated YouTube Thumbnails](#gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
@@ -43,6 +47,10 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -70,13 +78,6 @@ You should also avoid fonts that are harder to read. Fonts with a lot of curves 
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
 One increasingly popular style of YouTube thumbnail is what we’re going to call the ‘Emotional Laser’. It’s bright (like, blindingly bright), it communicates a clear feeling, and it creates high expectations for how exciting the video’s content is going to be.
@@ -84,6 +85,10 @@ One increasingly popular style of YouTube thumbnail is what we’re going to cal
 The three main elements of the Emotional Laser thumbnail are a background (usually bright), your face on the right wearing an over-pronounced expression, and either the thing your expression is in reaction to (i.e. food, a product, the topic of your video in text) or reinforcement of your emotion (i.e an emoji or question marks) on the left.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
 
@@ -106,13 +111,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 #### #4. Add Extras (Text, Emojis, etc.)
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How to Upload a YouTube Thumbnail
 
@@ -144,13 +142,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -190,6 +181,10 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -198,6 +193,10 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
@@ -205,13 +204,6 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -228,18 +220,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cultivate-creativity-inspiration-driven-video-titles/"><u>[New] In 2024, Cultivate Creativity Inspiration-Driven Video Titles</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-full-spectrum-alliance-an-mcn-decision-blueprint/"><u>[New] The Full Spectrum Alliance An MCN Decision Blueprint</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-seamless-entry-into-friends-tiktok-experiences/"><u>[Updated] 2024 Approved Seamless Entry Into Friends' TikTok Experiences</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-creating-striking-channel-imagery-best-practices-for-success/"><u>[Updated] In 2024, Creating Striking Channel Imagery Best Practices for Success</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-integrating-video-conferencing-mastering-skypes-screen-sharing-functionality/"><u>[Updated] Integrating Video Conferencing Mastering Skype's Screen Sharing Functionality</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-content-distribution-a-close-look-at-igtv-and-youtube/"><u>[Updated] Navigating Content Distribution A Close Look at IGTV and YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-best-8-free-editing-programs-to-streamline-your-youtube-projects/"><u>[Updated] The Best 8 Free Editing Programs to Streamline Your YouTube Projects</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effiziente-methoden-zur-automatischen-synchronisation-von-dokumenten-mit-microsoft-onedrive/"><u>Effiziente Methoden Zur Automatischen Synchronisation Von Dokumenten Mit Microsoft OneDrive</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-vivo-by-drfone-android/"><u>How to Bypass FRP on Vivo?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/revolutionize-channel-wrapping-with-expert-templates-and-how-tos-for-2024/"><u>Revolutionize Channel Wrapping with Expert Templates & How-Tos for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/secure-multimedia-suite-with-movavi-edit-videos-safely-and-effortlessly/"><u>Secure Multimedia Suite with Movavi - Edit Videos Safely & Effortlessly</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/the-role-of-memory-response-times-in-enhancing-or-hindering-pc-speed/"><u>The Role of Memory Response Times in Enhancing or Hindering PC Speed</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-premiere-pro-on-mac-the-industry-standard-for-video-editing-pros/"><u>Updated Premiere Pro on Mac The Industry Standard for Video Editing Pros</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-7-uncomplicated-steps-for-skyrocketing-subscribers/"><u>[New] 2024 Approved 7 Uncomplicated Steps for Skyrocketing Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-makeovers-made-easy-top-10-online-tools-for-artists-for-2024/"><u>[New] Channel Makeovers Made Easy - Top 10 Online Tools for Artists for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-engaging-audiences-with-creative-text-features/"><u>[New] Engaging Audiences with Creative Text Features</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-balancing-viral-potential-with-long-term-traction-in-videos/"><u>[New] In 2024, Balancing Viral Potential with Long-Term Traction in Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-engage-more-viewers-unveiling-top-youtube-font-secrets/"><u>[New] In 2024, Engage More Viewers Unveiling Top YouTube Font Secrets</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-navigating-novelty-applying-cartoon-lenses-in-snapchat/"><u>[New] In 2024, Navigating Novelty Applying Cartoon Lenses in Snapchat</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-leading-10-decibel-boosters-windows-macos-iphones/"><u>[New] Leading 10 Decibel Boosters Windows, MacOS, iPhones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-the-art-of-tripod-utilization-for-improved-vlogs/"><u>[New] Mastering the Art of Tripod Utilization for Improved Vlogs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastery-in-mapping-out-your-youtube-audience/"><u>[New] Mastery in Mapping Out Your YouTube Audience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailored-tunes-creating-custom-youtube-playlists/"><u>[New] Tailored Tunes Creating Custom Youtube Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-guiding-you-through-youtubes-security-settings/"><u>[Updated] Guiding You Through YouTube's Security Settings</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-beat-bazaar-curation-of-superior-dj-video-samples-for-download/"><u>[Updated] In 2024, Beat Bazaar Curation of Superior DJ Video Samples for Download</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-inspiring-imagination-unveiling-top-6-nft-makers-for-artists/"><u>[Updated] Inspiring Imagination Unveiling Top 6 NFT Makers for Artists</u></a></li>
+<li><a href="https://win-answers.techidaily.com/error-code-aturate210-in-cod-vanguard-development-solutions-and-insights/"><u>Error Code Aturate(210) in COD Vanguard Development - Solutions and Insights</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/open-iphone-sim-card-with-household-items-no-ejector-tool-required/"><u>Open iPhone SIM Card with Household Items – No Ejector Tool Required!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/overview-the-spectrum-of-visual-recorders-for-2024/"><u>Overview The Spectrum of Visual Recorders for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/professional-panoramic-vision-leading-360-cameras-of-2023-for-2024/"><u>Professional Panoramic Vision Leading 360° Cameras of 2023 for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/record-stunning-4k-videos-at-60fps-on-your-iphone-trouble-free-viewing-experience/"><u>Record Stunning 4K Videos at 60Fps on Your iPhone - Trouble-Free Viewing Experience</u></a></li>
+<li><a href="https://blog-min.techidaily.com/web-based-gratis-ogm-vob-movavi/"><u>Web-Based Gratis OGM 파일을 VOB로 전환: Movavi의 단겭 방법</u></a></li>
 </ul></div>
 

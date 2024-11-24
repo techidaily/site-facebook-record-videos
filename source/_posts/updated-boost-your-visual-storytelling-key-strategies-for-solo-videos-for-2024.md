@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos for 2024\""
-date: 2024-11-08T01:20:19.989Z
-updated: 2024-11-13T18:57:08.422Z
+date: 2024-11-22T17:35:35.151Z
+updated: 2024-11-23T19:14:50.664Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -68,10 +72,7 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -81,13 +82,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -106,10 +100,7 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -119,13 +110,14 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,19 +134,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-compiling-leading-short-form-video-editors-iosandroid-edition/"><u>[New] 2024 Approved Compiling Leading Short-Form Video Editors IOS/Android Edition</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cultivating-your-persona-in-the-world-of-gamers/"><u>[New] 2024 Approved Cultivating Your Persona in the World of Gamers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-unlocking-ppts-potential-with-voiceover-techniques/"><u>[New] In 2024, Unlocking PPT's Potential with Voiceover Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-the-game-crafting-a-pro-gaming-channels-success-story-for-2024/"><u>[Updated] Ace the Game Crafting a Pro Gaming Channels Success Story for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-artedit-master/"><u>[Updated] ArtEdit Master</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-engagement-the-pillars-of-youtube-rankings/"><u>[Updated] In 2024, Elevating Engagement The Pillars of YouTube Rankings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-proven-techniques-to-enhance-subscriber-count-with-effective-channel-branding/"><u>[Updated] Proven Techniques to Enhance Subscriber Count with Effective Channel Branding</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/10-top-free-online-photo-editor/"><u>10 Top Free Online Photo Editor</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Meizu 21 | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-motorola-razr-40-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Motorola Razr 40 FRP Bypass With Best Methods</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Poco M6 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-the-imessage-user-not-signed-in-issue-on-your-iphone/"><u>Resolving the 'iMessage: User Not Signed In' Issue on Your iPhone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/smart-growth-metropolis-balancing-development-and-nature-for-2024/"><u>Smart Growth Metropolis Balancing Development and Nature for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-poco-c55-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Poco C55 FRP Bypass</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-ways-to-get-background-stock-images-for-photos-and-videos/"><u>[New] Best Ways to Get Background Stock Images for Photos and Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-daily-blog-key-practices-and-avoidance-tactics/"><u>[New] In 2024, Elevate Your Daily Blog Key Practices and Avoidance Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-essential-how-to-for-youtube-comment-control/"><u>[New] The Essential How-To for YouTube Comment Control</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-guide-choosing-among-top-9-free-logo-creators/"><u>[Updated] Exclusive Guide Choosing Among Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-asus-rog-phone-8-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-hp-officejet-pro-n8720-driver-software-for-your-windows-computer/"><u>Get the Latest HP OfficeJet Pro N8720 Driver Software for Your Windows Computer</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-apple-iphone-se-2022-by-drfone-ios/"><u>How to Remove and Reset Face ID on Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/top-16-converteurs-mp4-en-mp3-pour-lannee-2024-le-guide-ultime/"><u>Top 16 Converteurs MP4 en MP3 Pour L'année 2024 : Le Guide Ultime</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/visionaries-inventing-new-marvel-worlds-for-2024/"><u>Visionaries Inventing New Marvel Worlds for 2024</u></a></li>
 </ul></div>
 

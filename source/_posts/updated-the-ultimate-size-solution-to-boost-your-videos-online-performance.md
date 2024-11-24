@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Ultimate Size Solution to Boost Your Video's Online Performance"
-date: 2024-11-07T18:56:38.130Z
-updated: 2024-11-14T02:23:41.803Z
+date: 2024-11-18T17:47:51.252Z
+updated: 2024-11-23T18:06:57.904Z
 tags:
   - ai video
   - ai youtube
@@ -64,21 +64,22 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
@@ -99,10 +100,11 @@ To change the thumbnail on an already uploaded video you need to follow these st
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -113,10 +115,7 @@ You may want to know:
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
@@ -127,13 +126,6 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -146,19 +138,6 @@ Wondershare Filmora is an outstanding tool if you want to make a perfect thumbna
 Let's see how you can create your thumbnail using Wondershare Filmora:
 
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
 
@@ -193,20 +172,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-digital-vault-for-internet-streams-a-recording-blueprint/"><u>[New] 2024 Approved Digital Vault for Internet Streams A Recording Blueprint</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-easy-path-to-popularity-two-tactics-for-youtube-fame/"><u>[New] 2024 Approved Easy Path to Popularity Two Tactics for YouTube Fame</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-infusing-vitality-into-text-an-animated-adventure/"><u>[New] Infusing Vitality Into Text An Animated Adventure</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-adding-a-digital-clock-to-your-youtube-video-playback-for-2024/"><u>[Updated] Adding a Digital Clock to Your YouTube Video Playback for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-future-of-fresh-air-urban-planning-with-a-green-perspective/"><u>[Updated] The Future of Fresh Air Urban Planning with a Green Perspective</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/expert-recommended-the-leading-10-photo-restoration-programs-compatible-with-pc-and-mac-systems/"><u>Expert-Recommended: The Leading 10 Photo Restoration Programs Compatible with PC and Mac Systems</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On OnePlus Ace 2V? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-searching-for-monetary-rewards-of-review-vlogs/"><u>In 2024, Searching for Monetary Rewards of Review Vlogs</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-infinix-smart-7-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Infinix Smart 7 for Streaming | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/itunes-update-allows-iphone-users-to-easily-import-and-enjoy-non-apple-tracks/"><u>ITunes Update Allows iPhone Users to Easily Import and Enjoy Non-Apple Tracks</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-best-6-web-based-music-segmentation-tools/"><u>New 2024 Approved Best 6 Web-Based Music Segmentation Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/shaking-up-the-status-quo-unique-naming-tips-for-filmmakers-for-2024/"><u>Shaking Up the Status Quo Unique Naming Tips for Filmmakers for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/tackling-the-top-6-car-ai-snags-head-on-your-step-by-step-guide/"><u>Tackling the Top 6 Car AI Snags Head On: Your Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-essential-list-of-online-video-ripper-tools-for-2024/"><u>The Essential List of Online Video Ripper Tools for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-rewind-ritual-making-playlists-run-opposite-to-current-for-2024/"><u>The Rewind Ritual Making Playlists Run Opposite to Current for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-a-guide-to-conveniently-documenting-your-gaming-victories/"><u>[New] A Guide to Conveniently Documenting Your Gaming Victories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieve-impact-innovative-imovie-techniques-for-youtube-startups-for-2024/"><u>[New] Achieve Impact Innovative iMovie Techniques for YouTube Startups for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-captivating-asmr-scenes-techniques-for-successful-recording-for-2024/"><u>[Updated] Crafting Captivating ASMR Scenes Techniques for Successful Recording for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-evaluating-the-financial-giants-mr-beast/"><u>[Updated] In 2024, Evaluating the Financial Giants Mr. Beast</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-perfect-harmony-how-to-add-audio-content-in-adobe-premiere-for-2024/"><u>[Updated] Perfect Harmony How To Add Audio Content in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-video-aspect-ratios-in-youtube-platform/"><u>2024 Approved Navigating Video Aspect Ratios in YouTube Platform</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/an-in-depth-look-at-copyright-and-sharing-tunes-on-instagram/"><u>An In-Depth Look at Copyright and Sharing Tunes on Instagram</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-flv-file-conversion-easy-safe-and-secure-with-movavi-video-editor/"><u>Free FLV File Conversion - Easy, Safe & Secure with Movavi Video Editor</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intel-driver-utility-how-to-find-and-download-the-latest-version/"><u>Intel Driver Utility: How To Find And Download The Latest Version</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-technical-hurdles-stabilizing-minecraft-dungeons-gameplay-on-desktop-computers/"><u>Overcoming Technical Hurdles: Stabilizing Minecraft Dungeons Gameplay on Desktop Computers</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-to-restoring-connectivity-on-an-unresponsive-dns-server/"><u>Step-by-Step Guide to Restoring Connectivity on an Unresponsive DNS Server</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/stumble-upon-substantial-comment-sections-for-2024/"><u>Stumble upon Substantial Comment Sections for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 12 Pro | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-11-10T03:43:23.691Z
-updated: 2024-11-13T20:28:26.653Z
+date: 2024-11-21T00:28:15.214Z
+updated: 2024-11-23T22:19:00.616Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,10 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -120,10 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -141,24 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>[New] 2024 Approved Elevating Your Content 6 Steps to Higher YouTube Visibility</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-new-developments-in-facebook-2023-edition/"><u>[New] 2024 Approved New Developments in Facebook - 2023 Edition</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-earning-potential-for-creators-in-youtube-ads/"><u>[New] In 2024, Earning Potential for Creators in YouTube Ads?</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-securing-quieter-steadier-photo-screenshots/"><u>[New] Securing Quieter, Steadier Photo Screenshots</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-quality-video-summaries-with-smart-templates/"><u>[New] Top-Quality Video Summaries with Smart Templates</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-world-beyond-men-top-10-inspirational-youtube-stars/"><u>[Updated] 2024 Approved A World Beyond Men Top 10 Inspirational YouTube Stars</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-blitz-broadcasting-channel-your-playlist-swiftly/"><u>[Updated] 2024 Approved Blitz Broadcasting Channel Your Playlist Swiftly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-channels-visibility-through-proven-methods-for-2024/"><u>[Updated] Elevate Your Channels Visibility Through Proven Methods for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-ios-video-editor-apps-top-10-best-to-know-for-2024/"><u>[Updated] Essential iOS Video Editor Apps Top 10 Best to Know for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-identifying-premium-free-online-tools-for-efficient-srt-translations/"><u>[Updated] In 2024, Identifying Premium Free Online Tools for Efficient SRT Translations</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-learn-to-fine-tune-youtube-videos-for-efficient-consumption/"><u>[Updated] Learn to Fine-Tune YouTube Videos for Efficient Consumption</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-premium-jokester-visualizer/"><u>[Updated] Premium Jokester Visualizer</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-compilation-budget-friendly-editing-tools/"><u>[Updated] The Ultimate Compilation Budget-Friendly Editing Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersive-storytelling-through-total-environmental-capture/"><u>2024 Approved Immersive Storytelling Through Total Environmental Capture</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1726223732738-f4vflv-movavi/"><u>無料で高速F4VおよびFLV動画形式の安全なオンライン変換 - Movavi 利用方法ガイド</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/-your-vision-best-cameras-for-video-creators-for-2024/"><u>Craft Your Vision Best Cameras for Video Creators for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-a-comprehensive-guide-to-earnings-from-youtube-short-videos/"><u>In 2024, A Comprehensive Guide to Earnings From YouTube Short Videos</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolved-overcoming-the-challenge-of-non-responsive-voice-chat-in-phasmophobia/"><u>Resolved: Overcoming the Challenge of Non-Responsive Voice Chat in Phasmophobia</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/techniques-to-avoid-blackout-issues-on-online-video-platform-for-2024/"><u>Techniques to Avoid Blackout Issues on Online Video Platform for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-how-to-screen-record-on-iphone-in-an-easy-way/"><u>[New] 2024 Approved How to Screen Record on Iphone in An Easy Way?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-deciphering-the-code-youtube-community-rules-explained-for-2024/"><u>[New] Deciphering the Code YouTube Community Rules Explained for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights/"><u>[New] In 2024, Avoid Blandness in Your Vids Top Recommended YouTube Thumbnail Heights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-trustworthy-tactics-for-multiplying-a-million-views-on-youtube/"><u>[New] Trustworthy Tactics for Multiplying a Million Views on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tutorial-incorporating-youtube-soundtracks-in-imovie/"><u>[New] Tutorial Incorporating YouTube Soundtracks in iMovie</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-uncovered-the-hidden-youtube-shorts-fix/"><u>[New] Uncovered The Hidden YouTube Shorts Fix</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-imovie-techniques-to-upgrade-your-youtube-content/"><u>[Updated] 2024 Approved Essential iMovie Techniques to Upgrade Your YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-most-influential-gamers-on-youtube/"><u>[Updated] Most Influential Gamers on YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-art-of-saturation-and-contrast-in-gopro-editing/"><u>[Updated] The Art of Saturation and Contrast in GoPro Editing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-frame-perfection-ultimate-picks-for-photographic-lenses/"><u>2024 Approved Frame Perfection Ultimate Picks for Photographic Lenses</u></a></li>
+<li><a href="https://network-issues.techidaily.com/adjust-screens-vertical-alignment/"><u>Adjust Screen's Vertical Alignment</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/cutting-through-cosmic-commerce-with-offworld-trading-company-a-complete-empire-blueprint/"><u>Cutting Through Cosmic Commerce with Offworld Trading Company - A Complete Empire Blueprint</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/e-lecture-documentation-for-2024/"><u>E-Lecture Documentation for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/i-3-migliori-lettori-dvd-gratuiti-compatibili-con-windows-10-risoluzione-completa-per-la-visione-di-qualsiasi-filmato/"><u>I 3 Migliori Lettori DVD Gratuiti Compatibili Con Windows 10: Risoluzione Completa per La Visione Di Qualsiasi Filmato</u></a></li>
+<li><a href="https://review-topics.techidaily.com/online-signatures-for-docx-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Online signatures for .docx file</u></a></li>
+<li><a href="https://fox-links.techidaily.com/premier-digital-hubs-seamless-ringtones-acquisition/"><u>Premier Digital Hubs Seamless Ringtones Acquisition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tiny-snippets-deciphered-important-facts-in-2024/"><u>Tiny Snippets Deciphered Important Facts, In 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Improve Latency & Frame Rate in Counter-Strike 2 for Better Gameplay
-date: 2024-11-11T04:08:35.109Z
-updated: 2024-11-14T08:23:21.723Z
+date: 2024-11-18T21:16:48.404Z
+updated: 2024-11-23T16:43:46.773Z
 tags:
   - win11
   - win10
@@ -28,13 +28,6 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
 5. **[Adjust the in-game graphics settings](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Configure your graphics card settings](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Fix 1 – Update your graphics driver
 
  The most common cause of Escape from Tarkov FPS drops is a faulty or outdated graphics driver. GPU manufacturers keep optimizing their drivers for the latest titles. So we recommend you check for the driver update regularly to ensure smooth gameplay.
@@ -54,6 +47,10 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Normally you should see a significant performance improvement after you update all the device drivers on your computer. But if not, take a look at the next fix below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 2 – Close unnecessary background programs
 
@@ -76,14 +73,11 @@ Many players are complaining about the Escape from Tarkov low FPS since the rece
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-power-plan-1-1.jpg)
 2. Select**High** **performance** . (If you don’t see it, expand**Hide additional plans** .)  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/change-power-plan-2-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If you’re on a high-end PC, the**Ultimate Performance** mode may help you fully unleash the potential of your machine. Here’s how to enable this mode.
 
@@ -97,6 +91,10 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/ultimate-performance-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Check how the game works. If the issue persists, proceed to the next method.
 
 ### Fix 4 – Disable fullscreen optimizations
@@ -109,38 +107,19 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 3. Select the**Compatibility** tab and tick**Disable full-screen optimisations** . Then, click**Change high DPI settings** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/disable-fullscreen-optimizations-1.jpg)
 4. Tick**Override high DPI scaling behaviour** and choose**Application** from the drop-down menu. Then, click**OK** to save the changes.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/disable-fullscreen-optimizations-2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Launch EFT to check the game performance. If this gives you no luck, there are two more fixes to try.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5 – Adjust the in-game graphics settings
 
@@ -156,29 +135,20 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 5. Select the**POSTFX** tab, and make sure to**untick Enable PostFX** .  
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/tarkov-settings-3.jpg)
 6. Click**Save** to apply the changes.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Test the issue again. If you’re still facing low FPS in Escape from Tarkov, continue to the next fix.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 6 – Configure the graphics card settings
@@ -195,6 +165,10 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/nvidia-settings.jpg)
 4. Modify the settings as below:  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Anisotropic filtering_ :**Application-controlled**  
 _Antialiasing – FXAA_ :**Off**  
@@ -239,16 +213,19 @@ Restart the game to test, and you should find the FPS increases now.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-demystifying-the-journey-to-knowing-who-watches-you/"><u>[New] In 2024, Demystifying the Journey to Knowing Who Watches You</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-infusing-humor-into-your-social-media-posts/"><u>[New] Infusing Humor Into Your Social Media Posts</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-optimizing-video-playback-for-engaged-audiences/"><u>[New] Optimizing Video Playback for Engaged Audiences</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transforming-unboxing-magic-7-ways/"><u>[New] Transforming Unboxing Magic 7 Ways</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-bring-your-gslides-to-life-with-youtube-media/"><u>[Updated] 2024 Approved Bring Your GSlides to Life with YouTube Media</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-fullview-pacts-the-art-of-media-company-selection/"><u>[Updated] FullView Pacts The Art of Media Company Selection</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-master-memes-access-to-premium-free-designs/"><u>[Updated] Master Memes Access to Premium FREE Designs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-rapid-learning-from-images-to-effective-youtube-thumbnails/"><u>[Updated] Rapid Learning From Images To Effective YouTube Thumbnails</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/deplacer-efficacement-des-fichiers-volumineux-par-e-mail-les-meilleures-methodes/"><u>Déplacer Efficacement Des Fichiers Volumineux Par E-Mail : Les Meilleures Méthodes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-grossing-youtube-titans-for-2024/"><u>Top-Grossing YouTube Titans for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unstuck-from-chatgpt-glitches-on-mobile-top-fixes-for-iphone-users/"><u>Unstuck From ChatGPT Glitches on Mobile? Top Fixes for iPhone Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-analyzing-youtubes-process-for-selective-comment-showcasing/"><u>[New] 2024 Approved Analyzing YouTube's Process for Selective Comment Showcasing</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-elevate-your-engagement-with-strategic-youtube-titles/"><u>[New] Elevate Your Engagement with Strategic YouTube Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comprehensive-overview-recording-saving-and-sharing-youtube-videos-for-free/"><u>[New] In 2024, A Comprehensive Overview Recording, Saving & Sharing YouTube Videos for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youth-empowerment-your-life-story-can-inspire/"><u>[New] Youth Empowerment Your Life Story Can Inspire</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-raw-footage-to-highlight-hits/"><u>[Updated] From Raw Footage to Highlight Hits</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-ancient-artifacts-iphone-x-selfies/"><u>[Updated] In 2024, Ancient Artifacts – iPhone X Selfies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chart-your-course-navigating-the-waters-of-youtube-subscription-surges/"><u>[Updated] In 2024, Chart Your Course Navigating the Waters of YouTube Subscription Surges</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-zooms-filters-for-clear-premium-calls/"><u>[Updated] In 2024, Mastering Zoom's Filters for Clear, Premium Calls</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-precision-in-sound-10-tips-for-professional-audio-quality/"><u>[Updated] Precision in Sound 10 Tips for Professional Audio Quality</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-screen-shutter-tips-free-windows-edition/"><u>[Updated] Screen Shutter Tips Free Windows Edition</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-mastering-audio-transitions-in-premiere-pro/"><u>2024 Approved Mastering Audio Transitions in Premiere Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-branding-with-visuals-inserting-watermarks-into-youtube-vids/"><u>In 2024, Branding with Visuals Inserting Watermarks Into YouTube Vids</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-easy-processes-for-downloading-live-conversations/"><u>In 2024, Easy Processes for Downloading Live Conversations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/omnicharge-omni-20-user-manual-unlock-the-potential-of-universal-wireless-charging-in-a-compact-package/"><u>Omnicharge Omni 20 User Manual: Unlock the Potential of Universal, Wireless Charging in a Compact Package</u></a></li>
 </ul></div>
 

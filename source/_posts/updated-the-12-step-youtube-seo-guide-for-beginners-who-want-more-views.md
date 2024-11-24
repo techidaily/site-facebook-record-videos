@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The 12-Step YouTube SEO Guide for Beginners Who Want More Views\""
-date: 2024-11-13T05:44:36.308Z
-updated: 2024-11-14T06:41:15.267Z
+date: 2024-11-17T04:43:06.501Z
+updated: 2024-11-23T16:23:23.889Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Nothing complicated. No paid programs or expensive apps needed. We are going bac
 Ready?
 
 Let’s Go!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Research Your Topic and Competitors
 
@@ -84,11 +88,19 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -200,13 +212,6 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -216,10 +221,7 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
@@ -228,6 +230,10 @@ Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -235,13 +241,6 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -271,13 +270,6 @@ Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -293,17 +285,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-easy-ways-to-add-music-to-imovie-from-youtube-for-2024/"><u>[New] Easy Ways to Add Music to iMovie From YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-the-hidden-truth-behind-youtubes-viewer-numbers-for-2024/"><u>[Updated] Discovering the Hidden Truth Behind YouTube's Viewer Numbers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-dominate-youtube-with-effective-content-strategies-for-2024/"><u>[Updated] Dominate YouTube with Effective Content Strategies for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-spots-for-stunning-3d-metallic-type-creations/"><u>[Updated] In 2024, Leading Spots for Stunning 3D Metallic Type Creations</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-infinix-hot-40i-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Infinix Hot 40i System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/expert-analysis-by-tom-on-cutting-edge-computing-equipment/"><u>Expert Analysis by Tom on Cutting-Edge Computing Equipment</u></a></li>
-<li><a href="https://win11.techidaily.com/implementing-quick-fix-in-windows-11/"><u>Implementing Quick Fix in Windows 11</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-harness-freedom-with-top-rated-android-editing-apps/"><u>In 2024, Harness Freedom with Top-Rated Android Editing Apps</u></a></li>
-<li><a href="https://blog-min.techidaily.com/quick-guide-generate-srt-subtitle-files-from-mkv-movies-for-free/"><u>Quick Guide: Generate SRT Subtitle Files From MKV Movies for Free</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/secrets-revealed-the-best-youtube-thumbnails-for-virality-for-2024/"><u>Secrets Revealed The Best YouTube Thumbnails for Virality for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-ultimate-guide-to-selecting-the-best-mp4-encoder-for-efficient-video-file-transcoding/"><u>The Ultimate Guide to Selecting the Best MP4 Encoder for Efficient Video File Transcoding</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/bes-financial-frontier-maximizing-your-content-revenue-for-2024/"><u>YouTube's Financial Frontier Maximizing Your Content Revenue for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-youngest-millionaire-on-youtube-ryans-unprecedented-wealth-accumulation/"><u>[New] 2024 Approved Youngest Millionaire on YouTube Ryan's Unprecedented Wealth Accumulation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audio-enhancement-for-online-video-creators/"><u>[New] In 2024, Audio Enhancement for Online Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-efficient-viewing-the-comprehensive-guide-for-creating-youtube-watch-later-lists/"><u>[New] In 2024, Efficient Viewing The Comprehensive Guide for Creating YouTube Watch Later Lists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-three-secure-approaches-for-youtube-to-mp3-file-conversion/"><u>[New] Three Secure Approaches for YouTube-to-MP3 File Conversion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-brush-up-your-youtube-videos-with-color-correction-for-2024/"><u>[Updated] Brush Up Your Youtube Videos with Color Correction for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-insights-for-youtube-end-credits-top-makers-advice-for-2024/"><u>[Updated] Expert Insights for YouTube End Credits - Top Makers' Advice for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-jumpstart-your-journey-essential-youtubing-skills-course/"><u>[Updated] In 2024, Jumpstart Your Journey Essential YouTubing Skills Course</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-quick-guide-sharing-igtv-in-the-world-of-insta-stories/"><u>[Updated] In 2024, Quick Guide Sharing IGTV in the World of Insta Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-making-your-channels-subscribe-button-pop/"><u>[Updated] Making Your Channel's Subscribe Button Pop</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-genesis-of-apples-m1-an-insight/"><u>[Updated] The Genesis of Apple's M1 An Insight</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-huawei-p60-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Huawei P60</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/efficient-muziek-onder-video-laten-zitten-met-movavi-eenvoudige-stappen-voor-optimale-kijk-ervaring/"><u>Efficiënt Muziek Onder Video Laten Zitten Met Movavi - Eenvoudige Stappen Voor Optimale Kijk Ervaring</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-ordinary-to-epic-iphones-best-landscape-tricks/"><u>From Ordinary to Epic IPhone's Best Landscape Tricks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-motorola-edge-40-neo-by-drfone-android/"><u>In 2024, How to Bypass FRP on Motorola Edge 40 Neo?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-minecraft-dungeons-constant-pc-crashes-a-step-by-step-guide/"><u>Solving Minecraft Dungeons Constant PC Crashes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-battle-between-youtubes-copyright-clause-and-cc-license-for-2024/"><u>The Battle Between YouTube’s Copyright Clause & CC License for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/turn-backwards-youtube-content-inversion-tips-for-2024/"><u>Turn Backwards YouTube Content Inversion Tips for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2024-11-09T20:15:57.760Z
-updated: 2024-11-13T23:03:21.394Z
+date: 2024-11-19T04:43:31.325Z
+updated: 2024-11-23T20:21:17.788Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,26 +175,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-capture-youtubes-subtitles-on-no-cost-platforms/"><u>[New] 2024 Approved Capture YouTube's Subtitles on No-Cost Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-the-leading-youtube-to-webm-video-conversion-tools/"><u>[New] 2024 Approved Explore the Leading YouTube-to-WebM Video Conversion Tools</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-easy-in-getting-vrecorder-on-your-pc/"><u>[New] In 2024, Easy In Getting VRecorder on Your PC</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-audio-upheavals-top-rhythmic-disruptors-for-devices/"><u>[Updated] 2024 Approved Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>[Updated] 2024 Approved Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-hottest-templates-in-igs-vfx-community/"><u>[Updated] Navigating the Hottest Templates in IG's VFX Community</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-reinvent-your-youtube-presence-a-guide-to-elevated-subscription-rates/"><u>[Updated] Reinvent Your YouTube Presence A Guide to Elevated Subscription Rates</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-transforming-realities-into-engaging-documentaries-through-scriptwriting/"><u>[Updated] Transforming Realities Into Engaging Documentaries Through Scriptwriting</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Oppo A1x 5G | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/fixing-screen-config-issue-in-win-710/"><u>Fixing Screen Config Issue in Win 7/10</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-netflix-memories-capturing-every-view-with-mac/"><u>In 2024, Netflix Memories Capturing Every View with Mac</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/proven-techniques-for-amplifying-your-impact-on-youtube-shorts-for-2024/"><u>Proven Techniques for Amplifying Your Impact on YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/video-quality-comparison-mirrorless-or-dslr-cameras-for-2024/"><u>Video Quality Comparison Mirrorless or DSLR Cameras for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-supercharge-your-channel-growth-harness-the-potential-of-collaborative-videos/"><u>[New] Supercharge Your Channel Growth Harness the Potential of Collaborative Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-ultimate-guide-to-slowing-youtube-videos-37-chars/"><u>[New] The Ultimate Guide to Slowing YouTube Videos (37 Chars)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-10-leading-mobile-vr-headsets-ranked/"><u>[Updated] 2024 Approved 10 Leading Mobile VR Headsets Ranked</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-easy-way-to-edit-youtube-videos-in-imovie/"><u>[Updated] 2024 Approved Easy Way to Edit YouTube Videos in iMovie</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-traffic-with-smart-youtube-title-and-tag-use/"><u>[Updated] In 2024, Boosting Traffic with Smart YouTube Title & Tag Use</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-earnings-expansion-the-significance-of-500-subs-club/"><u>[Updated] In 2024, Earnings Expansion The Significance of 500 Subs Club</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-prime-pick-best-microphone-for-youtube-gurus/"><u>2024 Approved Prime Pick Best Microphone for YouTube Gurus</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-the-new-eu-regulation-on-artificial-intelligence-influence-platforms-similar-to-chatgpt/"><u>How Does the New EU Regulation on Artificial Intelligence Influence Platforms Similar to ChatGPT?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-spark-20c-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Spark 20C Is Unlocked</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-effortless-srt-to-txt-conversion-in-under-minutes/"><u>In 2024, Effortless SRT to TXT Conversion in Under Minutes</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96499466-9781594734588-practicing-the-sacred-art-of-listening/"><u>Practicing the Sacred Art of Listening | Free Book</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

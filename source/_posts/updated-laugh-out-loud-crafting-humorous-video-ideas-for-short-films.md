@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Laugh Out Loud  Crafting Humorous Video Ideas for Short Films\""
-date: 2024-11-06T23:00:30.157Z
-updated: 2024-11-14T05:53:14.694Z
+date: 2024-11-23T01:18:02.650Z
+updated: 2024-11-23T23:39:37.512Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-1.jpg)
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
@@ -92,6 +96,10 @@ The dripping sound of water, raindrops, flowing trees, and blowing air make some
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Just give it a try and dance with the music you create with all the worldwide listeners of YouTube Shorts Channel with this idea.
 
 #### Idea 8: Mimic Cartoon character
@@ -99,6 +107,10 @@ Just give it a try and dance with the music you create with all the worldwide li
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
@@ -121,10 +133,7 @@ Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Ch
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
@@ -174,10 +183,7 @@ Thus, start utilizing these powerful ideas and tips and head towards your YouTub
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -195,14 +201,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-unbeatable-mobilized-game-slowdowns/"><u>[New] In 2024, Unbeatable Mobilized Game Slowdowns</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-learn-to-film-great-content-on-your-mac-for-youtube-beginners/"><u>[Updated] Learn to Film Great Content on Your Mac for YouTube Beginners</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-visualize-success-discover-the-top-10-online-tools-for-channel-branding/"><u>2024 Approved Visualize Success - Discover the Top 10 Online Tools for Channel Branding</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-teach-you-to-transfer-files-from-motorola-edge-40-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways To Teach You To Transfer Files from Motorola Edge 40 Pro to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/mastering-excel-techniques-for-identifying-and-tallying-unique-entries/"><u>Mastering Excel: Techniques for Identifying and Tallying Unique Entries</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/preservation-in-audio-how-ffmpeg-handles-originality-for-2024/"><u>Preservation in Audio How FFmpeg Handles Originality for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/quick-techniques-for-documenting-youtube-videos-for-2024/"><u>Quick Techniques for Documenting YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/skyrocketing-growth-top-strategies-to-increase-views-in-freefire-tagging-for-2024/"><u>Skyrocketing Growth Top Strategies to Increase Views in FreeFire Tagging for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-10-yoga-youtube-channels-to-follow-keep-fit-for-2024/"><u>Top 10 Yoga YouTube Channels to Follow - Keep Fit for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-content-strategy-unleashed-top-8-youtube-ranks-explored-for-2024/"><u>[New] Content Strategy Unleashed - Top 8 YouTube Ranks Explored for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-design-top-5-3d-intro-makers-for-2024/"><u>[New] Cutting-Edge Design Top 5 3D Intro Makers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-dissecting-the-financial-lifeblood-of-tseries-via-youtube-engagement-for-2024/"><u>[New] Dissecting the Financial Lifeblood of TSeries via YouTube Engagement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audiences-on-the-rise-gauge-for-2024/"><u>[Updated] Audiences on the Rise Gauge for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-break-bot-patterns-enhance-organic-video-reach/"><u>[Updated] In 2024, Break Bot Patterns, Enhance Organic Video Reach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-the-economic-landscape-of-short-video-royalties/"><u>[Updated] Navigating the Economic Landscape of Short Video Royalties</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-insiders-blueprint-for-commanding-attention-with-posts/"><u>[Updated] The Insider's Blueprint for Commanding Attention with Posts</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-integrating-slug-lines-into-your-writing-process/"><u>2024 Approved Integrating Slug Lines Into Your Writing Process</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-steady-your-screen-the-key-to-slowdown-in-youtube-videos-48-chars/"><u>2024 Approved Steady Your Screen The Key to Slowdown in YouTube Videos (48 Chars)</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-t2-pro-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo T2 Pro 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-streamlabs-versus-obs-the-ultimate-showdown/"><u>In 2024, Streamlabs Versus OBS The Ultimate Showdown</u></a></li>
+<li><a href="https://win-answers.techidaily.com/kofxv-no-longer-crashes-solutions-and-tips-for-a-seamless-gaming-experience-on-your-computer/"><u>KOFXV No Longer Crashes: Solutions and Tips for a Seamless Gaming Experience on Your Computer</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719578245800-language-barrier-breakthroughs-with-an-epic-95-savings-opportunity/"><u>Language Barrier Breakthroughs with an Epic 95% Savings Opportunity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-end-screen-and-cards-strategies-for-yt-for-2024/"><u>Perfect End Screen & Cards Strategies for YT for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/procedure-for-removing-stashed-videos-from-watch-later-for-2024/"><u>Procedure for Removing Stashed Videos From Watch Later for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/realme-12plus-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 12+ 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-undetected-wi-fi-on-your-windows-11-device/"><u>Troubleshooting Guide: Fixing Undetected Wi-Fi on Your Windows 11 Device</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-hp-officejet-4655-with-newest-driver-version/"><u>Update Your HP OfficeJet 4655 with Newest Driver Version</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-video-magic-comprehensive-editing-for-professionals-for-2024/"><u>YouTube Video Magic Comprehensive Editing for Professionals for 2024</u></a></li>
 </ul></div>
 

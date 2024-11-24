@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-11-10T16:01:25.248Z
-updated: 2024-11-13T18:45:07.146Z
+date: 2024-11-21T01:30:09.976Z
+updated: 2024-11-23T20:25:38.633Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -69,25 +77,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-12-simple-tricks-to-make-your-youtube-videos-go-viral/"><u>[New] 2024 Approved 12 Simple Tricks to Make Your YouTube Videos Go Viral</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-makers-earnings-exploring-youtube-shorts-revenue-structure/"><u>[New] 2024 Approved Dive Into Maker's Earnings Exploring YouTube Shorts Revenue Structure</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-strategic-shifts-in-social-media-predictions-for-facebooks-future/"><u>[New] Strategic Shifts in Social Media Predictions for Facebook's Future</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[Updated] 2024 Approved Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-navigating-the-challenges-of-remote-podcasting/"><u>[Updated] 2024 Approved Navigating the Challenges of Remote Podcasting</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-download-free-mcb-logo-templates/"><u>[Updated] In 2024, Download Free MCB Logo Templates</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-perfectly-preserve-and-profitably-play-your-phones-gifs/"><u>[Updated] In 2024, Perfectly Preserve and Profitably Play Your Phone's GIFs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-jest-journeys-charting-7-comedic-paths-to-viral-videos/"><u>[Updated] Jest Journeys Charting 7 Comedic Paths to Viral Videos</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-tecno-spark-10-4g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-quickscreenrecorder-easy-captures-anytime/"><u>2024 Approved QuickScreenRecorder Easy Captures, Anytime</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-tour-through-top-virtual-biking-experiences/"><u>A Tour Through Top Virtual Biking Experiences</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-tecno-spark-10-4g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Tecno Spark 10 4G Face Lock?</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/s-leading-lego-animation-artists-for-2024/"><u>S Leading Lego Animation Artists for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-15-steps-towards-perfecting-your-educational-video-content-for-youtube/"><u>[New] 2024 Approved 15 Steps Towards Perfecting Your Educational Video Content for YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-tutorial-editing-photos-by-cutting-out-the-surround/"><u>[New] Ultimate Tutorial Editing Photos by Cutting Out the Surround</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-banishing-blackout-blues-from-youtube-videos/"><u>[Updated] 2024 Approved Banishing Blackout Blues From YouTube Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-low-cost-cameras-that-dont-compromise-quality/"><u>[Updated] 2024 Approved Low-Cost Cameras That Don't Compromise Quality</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-a-thorough-evaluation-of-the-high-resolution-dell-p2715q-monitor/"><u>[Updated] A Thorough Evaluation of the High-Resolution Dell P2715Q Monitor</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-top-20-fonts-for-captivating-youtube-thumbnails/"><u>2024 Approved Top 20 Fonts for Captivating YouTube Thumbnails</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/boost-your-teams-collaboration-with-advanced-slack-techniques/"><u>Boost Your Team's Collaboration with Advanced Slack Techniques</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/crackle-streaming-service-watch-top-movies-and-shows-without-spending-a-penny/"><u>Crackle Streaming Service – Watch Top Movies and Shows Without Spending a Penny</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-7-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 7 Data Completely | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>How To Activate and Use Life360 Ghost Mode On Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premier-asmr-videography-choices-for-2024/"><u>Premier ASMR Videography Choices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-youtubes-earning-potential-in-the-new-year-for-2024/"><u>Unlocking YouTube's Earning Potential in the New Year for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

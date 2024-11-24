@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Evolution of YouTube Shorts Popularity Metrics"
-date: 2024-11-07T21:54:52.753Z
-updated: 2024-11-13T23:46:54.950Z
+date: 2024-11-19T20:14:24.553Z
+updated: 2024-11-23T22:23:23.900Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ Here we are going to introduce you how to make money on YouTube Shorts and some 
 * [**Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?**](#part3)
 * [**Part 4: FAQs about YouTube Shorts Fund**](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What's YouTube Shorts Fund?
 
 The **YouTube Shorts Fund** is a part of the YouTube Shorts monetization scheme. It's a $100M fund distributed throughout 2021 - 2022.
@@ -56,10 +60,7 @@ However, this YouTube Shorts Fund is generally not limited to just the YouTube P
 Moreover, YouTube kept sharing additional details as they got closer to the same concept.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The Future of Monetization on Shorts
@@ -71,10 +72,7 @@ Even YouTube is excited to begin rewarding creators for their contributions via 
 All in all, YouTube has helped an entire generation of artists and creators turn their creativity into businesses with the YouTube Shorts Fund. YouTube has paid $30 billion-plus money to artists, creators, artists, and media companies over the last three years. They remain deeply committed to supporting the next generation of mobile creators while introducing the YouTube Shorts Fund.
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Join/Apply for YouTube Shorts Fund?
@@ -100,13 +98,6 @@ YouTube will divide this fund from the Shorts Fund on a rolling basis. The creat
 The best way you can create is to keep uploading excellent content. You can use this time to become a pro at creating compelling YouTube Shorts among the broader audience base. It would help to grow your audience with Shorts so that your YouTube channel will be present on YouTube's radar.
 
 The YouTube Shorts Fund is an ideal opportunity for creators of all sizes to activate YouTube Shorts monetization.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?
 
@@ -148,10 +139,7 @@ A common reason behind this is that you do not hold the viewer's attention. The 
 Videos up to 60 seconds will show a trim editor. For videos longer than 60 seconds, you need to hit the **Edit** button into a Short video size to trim your video up to 60 seconds or less.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -163,6 +151,10 @@ If you've never used YouTube before, that's an even great reason to give YouTube
 Most people probably wouldn't get attracted if any other company launched a new short-form vertical video platform. But because Shorts comes from a platform like YouTube — which has a long history of a massive audience, creator-friendly scenarios, and the power of Google backing it up — the new platform is a must-try for any video creator and creative individual. And, the addition of $100 million YouTube Shorts fund in financial support is a lot of delicious icing on the cake.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -179,24 +171,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-apps-for-3d-video-intros-on-social-platforms-for-2024/"><u>[New] Best Apps for 3D Video Intros on Social Platforms for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-compact-cities-for-a-sustainable-future-for-2024/"><u>[New] Crafting Compact Cities for a Sustainable Future for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-choosing-youtube-downloader-apps-on-your-android-device/"><u>[New] In 2024, Choosing YouTube Downloader Apps on Your Android Device</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-enhancing-dji-flights-20-free-color-adjustments-dji-mini-and-air/"><u>[New] In 2024, Enhancing DJI Flights 20 Free Color Adjustments (DJI Mini & Air)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-video-reach-convert-yt-to-igtv/"><u>[New] In 2024, Enhancing Video Reach Convert YT to IGTV</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-next-gen-gamers-wealth-wave-predictions/"><u>[New] Next-Gen Gamers' Wealth Wave Predictions</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-upgrade-to-better-beats-with-these-top-free-analyzers/"><u>[New] Upgrade to Better Beats with These Top Free Analyzers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-stepwise-approach-to-uploading-youtube-shorts-on-laptop-phone/"><u>[New] Your Stepwise Approach to Uploading YouTube Shorts on Laptop, Phone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-youtubes-latest-revenue-guidelines-for-2024/"><u>[Updated] Exploring YouTube's Latest Revenue Guidelines for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-craft-your-study-of-the-past-with-these-top-10-channels/"><u>[Updated] In 2024, Craft Your Study of the Past with These Top 10 Channels</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-leading-speech-gatherers-in-educational-environments/"><u>[Updated] Leading Speech Gatherers in Educational Environments</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-digital-storyboard-studio/"><u>2024 Approved Digital Storyboard Studio</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/experience-ultimate-picture-quality-with-samsung-qn55q6-in-depth-4k-uhd-and-hdr10plus-review/"><u>Experience Ultimate Picture Quality with Samsung QN55Q6지납습바 - In-Depth 4K UHD and HDR10+ Review</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-a15-4g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy A15 4G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-master-the-art-of-choosing-best-rated-church-streams/"><u>In 2024, Master the Art of Choosing Best-Rated Church Streams</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-snippets-guide-essential-insights-unveiled/"><u>In 2024, YouTube Snippets Guide Essential Insights Unveiled</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/initiating-instant-integration-linking-local-files-with-cclouddrives/"><u>Initiating Instant Integration: Linking Local Files with C:/CloudDrives</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-voice-cloning-simplified-two-approaches-to-achieve-consistent-ai-voices/"><u>New In 2024, Voice Cloning Simplified Two Approaches to Achieve Consistent AI Voices</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-10-groundbreaking-examples-of-the-metaverse-unpacked/"><u>[New] 10 Groundbreaking Examples of the Metaverse Unpacked</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-advanced-guide-to-mastering-the-art-of-morphvox-audio-transformation-for-2024/"><u>[New] Advanced Guide to Mastering the Art of MorphVOX Audio Transformation for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-the-process-of-finding-your-own-musical-compilation-on-youtube/"><u>[New] Streamlining the Process of Finding Your Own Musical Compilation on Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-science-behind-youtube-video-upload-cycles-and-their-impact-on-engagement/"><u>[New] The Science Behind YouTube Video Upload Cycles and Their Impact on Engagement</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-next-favorite-youtuber-might-be-just-a-test-away-six-categories-explored/"><u>[New] Your Next Favorite YouTuber Might Be Just a Test Away Six Categories Explored</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-how-to-edit-audio-on-youtube/"><u>[Updated] 2024 Approved How to Edit Audio on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-location-love-your-ultimate-poi-assistant-for-timely-tips-and-tricks/"><u>[Updated] 2024 Approved Location Love Your Ultimate POI Assistant for Timely Tips and Tricks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-guide-to-video-to-audio-10-best-tools-reviewed-for-2024/"><u>[Updated] Expert Guide to Video-to-Audio #10 Best Tools Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-playbook-for-a-thriving-youtube-gaming-platform/"><u>[Updated] The Ultimate Playbook for a Thriving YouTube Gaming Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-your-youtube-potential-steps-to-finding-and-managing-video-collab-partners/"><u>[Updated] Unleash Your YouTube Potential Steps to Finding & Managing Video Collab Partners</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-honor-play-40c-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Honor Play 40C without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/breaking-barriers-how-language-learning-empowers-individuals/"><u>Breaking Barriers: How Language Learning Empowers Individuals</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/como-transformar-facilmente-archivos-aifc-en-mp3-sin-costo-con-la-herramienta-en-linea-de-movavi/"><u>Cómo Transformar Fácilmente Archivos AIFC en MP3 Sin Costo Con La Herramienta en Línea De Movavi</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-y200e-5g-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Y200e 5G.</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/motorola-edgeplus-2023-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Edge+ (2023) Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ryzen-platform-and-southbridge-chipset-driver-immediate-download-available/"><u>Ryzen Platform and Southbridge Chipset Driver - Immediate Download Available</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/swift-rescaling-perfect-mac-pixels-with-youtube-for-2024/"><u>Swift Rescaling Perfect Mac Pixels with YouTube for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/turning-views-into-revenue-mastering-youtubes-financial-landscape-for-2024/"><u>Turning Views Into Revenue Mastering YouTube's Financial Landscape for 2024</u></a></li>
 </ul></div>
 

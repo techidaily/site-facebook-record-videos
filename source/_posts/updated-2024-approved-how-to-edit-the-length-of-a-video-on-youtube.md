@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Edit the Length of a Video on YouTube\""
-date: 2024-11-07T04:40:41.564Z
-updated: 2024-11-13T18:56:55.574Z
+date: 2024-11-18T19:44:38.926Z
+updated: 2024-11-23T23:58:59.999Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -67,6 +83,10 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -83,25 +103,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dive-into-the-world-of-expertise-with-youtubes-top-10-makeup-vloggers/"><u>[New] 2024 Approved Dive Into the World of Expertise with YouTube's Top 10 Makeup Vloggers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-bypassing-barriers-privately-share-youtube-video-via-google/"><u>[New] In 2024, Bypassing Barriers Privately Share YouTube Video via Google</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-disrupters-guide-to-android-and-ios-music-shakers/"><u>[New] The Disrupter's Guide to Android & iOS Music Shakers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-20-best-youtube-thumbnail-fonts-to-make-your-video-stunning-for-2024/"><u>[Updated] 20 Best YouTube Thumbnail Fonts to Make Your Video Stunning for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhance-youtubes-conversations-with-emojis/"><u>[Updated] 2024 Approved Enhance Youtubes' Conversations with Emojis</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-photo-and-film-capture-apps-iphone-and-android-edition/"><u>[Updated] 2024 Approved Essential Photo & Film Capture Apps IPhone & Android Edition</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-free-fix-swiftly-eradicate-unwanted-eyeshine-from-your-iphone-pics/"><u>[Updated] In 2024, Free Fix Swiftly Eradicate Unwanted Eyeshine From Your iPhone Pics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-softer-side-of-promotion-elevating-your-audience-count/"><u>[Updated] The Softer Side of Promotion Elevating Your Audience Count</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/enhancing-your-pubg-experience-with-nvidia-configuration-tips-and-tricks/"><u>Enhancing Your PUBG Experience with Nvidia Configuration Tips and Tricks</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-best-online-tiktok-watermark-removers-you-should-try/"><u>In 2024, Best Online TikTok Watermark Removers You Should Try</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-motorola-g54-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Motorola G54 5G Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-leap-into-adventure-mastering-the-realm-of-virtual-reality/"><u>In 2024, Leap Into Adventure Mastering the Realm of Virtual Reality</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-xiaomi-civi-3-disney-100th-anniversary-edition-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Xiaomi Civi 3 Disney 100th Anniversary Edition without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-muting-unwanted-noise-obs-audio-solution/"><u>[New] 2024 Approved Muting Unwanted Noise OBS Audio Solution</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-live-setup-in-minutes/"><u>[Updated] 2024 Approved Instagram Live Setup in Minutes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-webcast-winners/"><u>[Updated] Exclusive Webcast Winners</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-highest-quality-action-capturing-methods-for-2024/"><u>[Updated] Highest Quality Action Capturing Methods for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-seamless-video-transfer-from-youtube-to-instagram/"><u>[Updated] Seamless Video Transfer From YouTube to Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-content-creators-optimal-stabilizer-companies/"><u>[Updated] YouTube Content Creators Optimal Stabilizer Companies</u></a></li>
+<li><a href="https://common-error.techidaily.com/master-the-troubleshooting-of-persistent-windows-10-update-failures/"><u>Master the Troubleshooting of Persistent Windows 10 Update Failures</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigate-numbers-easier-explore-the-best-7-ai-systems-designed-to-decipher-mathematical-problems/"><u>Navigate Numbers Easier: Explore the Best 7 AI Systems Designed to Decipher Mathematical Problems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pro-thumbnails-made-simple-macos-style-for-2024/"><u>Pro Thumbnails Made Simple MacOS Style for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategies-to-rectify-non-displayed-thumbnails-on-shorts-videos-for-2024/"><u>Strategies to Rectify Non-Displayed Thumbnails on Shorts Videos for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

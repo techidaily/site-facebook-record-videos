@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Guide to Turning YouTube Screen Time Into a FREE Screencast\""
-date: 2024-11-07T04:25:53.313Z
-updated: 2024-11-14T01:38:35.621Z
+date: 2024-11-20T05:17:20.811Z
+updated: 2024-11-23T18:28:37.777Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,14 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -57,27 +65,17 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
-Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
 ## A better way to record Screencast and Upload to YouTube
 
@@ -86,10 +84,7 @@ For those who are interested in capturing screencast with high-quality videos an
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Top Features
@@ -114,10 +109,7 @@ With all impressive features, there is no doubt to say that Filmora can serve yo
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -135,24 +127,16 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-behind-the-scenes-insider-knowledge-for-youtube-video-production-for-2024/"><u>[New] Behind the Scenes Insider Knowledge for YouTube Video Production for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-circulating-content-the-art-of-playlist-sharing/"><u>[New] In 2024, Circulating Content The Art of Playlist Sharing</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-10-leading-video-conferencing-software-for-phonespcs/"><u>[Updated] 10 Leading Video Conferencing Software for Phones/PCs</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-captivate-and-expand-your-online-following-with-viral-youtube-shorts/"><u>[Updated] 2024 Approved How to Captivate and Expand Your Online Following with Viral YouTube Shorts</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitta-to-trackable-audio-transitions/"><u>[Updated] 2024 Approved Twitta to Trackable Audio Transitions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-recorder-choice-for-high-quality-youtube-content-for-2024/"><u>[Updated] Expert Recorder Choice for High-Quality YouTube Content for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-raw-to-refined-mastering-the-art-of-pc-video-editing-on-windows/"><u>[Updated] From Raw to Refined Mastering the Art of PC Video Editing on Windows</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-expert-evaluation-chilled-delights-playback-tools/"><u>[Updated] In 2024, Expert Evaluation Chilled Delights Playback Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-proven-strategies-for-successful-youtube-shorts/"><u>[Updated] Proven Strategies for Successful YouTube Shorts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-strategic-insightfulness-comparing-your-channel-to-competitors-crafts/"><u>[Updated] Strategic Insightfulness Comparing Your Channel to Competitors' Crafts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-comprehensive-handbook-of-youtube-views-and-financial-growth/"><u>[Updated] The Comprehensive Handbook of YouTube Views and Financial Growth</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-enjoyable-gaming-experiences-with-pokemon-shining-pearl/"><u>Discover Enjoyable Gaming Experiences with Pokemon Shining Pearl</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/effective-techniques-to-boost-your-sites-ranking-on-google-servers/"><u>Effective Techniques to Boost Your Site's Ranking on Google Servers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/five-quick-wins-against-pc-game-freezes-in-naval-strategy-game-world-of-warships/"><u>Five Quick Wins Against PC Game Freezes in Naval Strategy Game World of Warships</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-infinix-note-30-pro-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Infinix Note 30 Pro.</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-storyremix-for-windows-11-enhancing-videos-with-photos/"><u>Mastering StoryRemix for Windows 11 Enhancing Videos with Photos</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-harmonic-voyages-adding-profound-echoes-to-your-audio-creations-on-a-pc-with-windows-os-for-2024/"><u>New Harmonic Voyages Adding Profound Echoes to Your Audio Creations on a PC with Windows OS for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-best-storytelling-techniques-to-grow-your-youtube-channel-for-2024/"><u>The Best Storytelling Techniques to Grow Your YouTube Channel for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-asmr-gear-expert-picked-microphone-selections-for-2024/"><u>Top ASMR Gear Expert-Picked Microphone Selections for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-free-youtube-to-mp3-converters-you-should-know-onlinewinmac-for-2024/"><u>[New] Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac] for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-chart-a-course-to-higher-views-with-top-optimization-tactics/"><u>[New] In 2024, Chart a Course to Higher Views with Top Optimization Tactics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-uniting-creators-how-to-fuse-youtube-and-tiktok-platforms-effectively/"><u>[New] Uniting Creators How to Fuse YouTube and TikTok Platforms Effectively</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-make-thumbnails-for-youtube-with-mobile-phones/"><u>[Updated] How to Make Thumbnails for YouTube With Mobile Phones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-uncovering-the-dynamics-of-youtubes-post-upload-system/"><u>[Updated] Uncovering the Dynamics of YouTube's Post-Upload System</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-beats-essential-background-scores-for-viral-video-shorts-for-2024/"><u>Buzzing Beats Essential Background Scores for Viral Video Shorts for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fotor-pro-advanced-workflow-for-2024/"><u>Fotor Pro Advanced Workflow for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Xiaomi Phone with Broken Screen</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/logitech-webcam-filming-tips-for-clear-visuals-and-smooth-sessions/"><u>Logitech Webcam Filming Tips for Clear Visuals and Smooth Sessions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-nokia-130-music-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Nokia 130 Music Black and White | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-foundation-for-success-equipping-new-channels-for-2024/"><u>The Foundation for Success Equipping New Channels for 2024</u></a></li>
 </ul></div>
 
