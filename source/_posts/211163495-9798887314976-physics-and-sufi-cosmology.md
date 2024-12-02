@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2024-11-19T04:43:31.325Z
-updated: 2024-11-23T20:21:17.788Z
+date: 2024-11-30T22:10:16.721Z
+updated: 2024-12-02T00:44:01.645Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,20 +175,24 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-supercharge-your-channel-growth-harness-the-potential-of-collaborative-videos/"><u>[New] Supercharge Your Channel Growth Harness the Potential of Collaborative Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/he-ultimate-guide-to-slowing-youtube-videos-37-chars/"><u>[New] The Ultimate Guide to Slowing YouTube Videos (37 Chars)</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-10-leading-mobile-vr-headsets-ranked/"><u>[Updated] 2024 Approved 10 Leading Mobile VR Headsets Ranked</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-easy-way-to-edit-youtube-videos-in-imovie/"><u>[Updated] 2024 Approved Easy Way to Edit YouTube Videos in iMovie</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-traffic-with-smart-youtube-title-and-tag-use/"><u>[Updated] In 2024, Boosting Traffic with Smart YouTube Title & Tag Use</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-earnings-expansion-the-significance-of-500-subs-club/"><u>[Updated] In 2024, Earnings Expansion The Significance of 500 Subs Club</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-prime-pick-best-microphone-for-youtube-gurus/"><u>2024 Approved Prime Pick Best Microphone for YouTube Gurus</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-does-the-new-eu-regulation-on-artificial-intelligence-influence-platforms-similar-to-chatgpt/"><u>How Does the New EU Regulation on Artificial Intelligence Influence Platforms Similar to ChatGPT?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-tecno-spark-20c-is-unlocked-by-drfone-android/"><u>How To Check if Your Tecno Spark 20C Is Unlocked</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-effortless-srt-to-txt-conversion-in-under-minutes/"><u>In 2024, Effortless SRT to TXT Conversion in Under Minutes</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96499466-9781594734588-practicing-the-sacred-art-of-listening/"><u>Practicing the Sacred Art of Listening | Free Book</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-video-edits-without-spending-navigate-through-the-8-tools-for-2024/"><u>[New] Cutting-Edge Video Edits Without Spending Navigate Through The 8 Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earning-in-a-world-dominated-by-youtubers/"><u>[New] In 2024, Earning in a World Dominated by YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[New] The Tug-of-War Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-transform-your-memories-into-engaging-facebook-slides/"><u>[New] Transform Your Memories Into Engaging Facebook Slides</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-corrected-clandestine-miniature-video-absence/"><u>[Updated] 2024 Approved Corrected Clandestine Miniature Video Absence</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-loom-labyrinthine-exploring-the-art-of-recordings/"><u>[Updated] 2024 Approved Loom Labyrinthine Exploring the Art of Recordings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-skyrocket-viewer-count-efficient-templated-content-creation-in-youtube-descs/"><u>[Updated] 2024 Approved Skyrocket Viewer Count Efficient Templated Content Creation in YouTube Descs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-novice-to-pro-youtube-shorts-guide/"><u>[Updated] From Novice to Pro YouTube Shorts Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-top-10-pc-vr-headsets/"><u>[Updated] In 2024, Top 10 PC VR Headsets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategic-video-collaborations-for-viewership-increase/"><u>[Updated] Strategic Video Collaborations for Viewership Increase</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-channel-up-your-earning-potential-with-youtube-shorts-strategy/"><u>2024 Approved Channel Up Your Earning Potential with YouTube Shorts Strategy</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-lava-yuva-2-pro-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Lava Yuva 2 Pro</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-poco-f5-pro-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Poco F5 Pro 5G to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-11-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 11 Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intel-iris-pro-655-gpu-drivers-optimized-for-windows-10-and-windows-11/"><u>Intel Iris Pro 655 GPU Drivers - Optimized for Windows 10 & Windows 11</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

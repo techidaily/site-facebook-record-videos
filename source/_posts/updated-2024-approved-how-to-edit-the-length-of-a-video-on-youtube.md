@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Edit the Length of a Video on YouTube\""
-date: 2024-11-18T19:44:38.926Z
-updated: 2024-11-23T23:58:59.999Z
+date: 2024-11-30T08:34:10.962Z
+updated: 2024-12-02T00:23:36.142Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,16 +103,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-muting-unwanted-noise-obs-audio-solution/"><u>[New] 2024 Approved Muting Unwanted Noise OBS Audio Solution</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-live-setup-in-minutes/"><u>[Updated] 2024 Approved Instagram Live Setup in Minutes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exclusive-webcast-winners/"><u>[Updated] Exclusive Webcast Winners</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-highest-quality-action-capturing-methods-for-2024/"><u>[Updated] Highest Quality Action Capturing Methods for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-seamless-video-transfer-from-youtube-to-instagram/"><u>[Updated] Seamless Video Transfer From YouTube to Instagram</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-content-creators-optimal-stabilizer-companies/"><u>[Updated] YouTube Content Creators Optimal Stabilizer Companies</u></a></li>
-<li><a href="https://common-error.techidaily.com/master-the-troubleshooting-of-persistent-windows-10-update-failures/"><u>Master the Troubleshooting of Persistent Windows 10 Update Failures</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/navigate-numbers-easier-explore-the-best-7-ai-systems-designed-to-decipher-mathematical-problems/"><u>Navigate Numbers Easier: Explore the Best 7 AI Systems Designed to Decipher Mathematical Problems</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pro-thumbnails-made-simple-macos-style-for-2024/"><u>Pro Thumbnails Made Simple MacOS Style for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On Realme 11X 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/strategies-to-rectify-non-displayed-thumbnails-on-shorts-videos-for-2024/"><u>Strategies to Rectify Non-Displayed Thumbnails on Shorts Videos for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-mediasphere-app-user-experience-report-for-2024/"><u>[New] MediaSphere App User Experience Report for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-footprint-how-to-share-your-short-videos-on-computers-and-phones/"><u>[Updated] 2024 Approved Digital Footprint How to Share Your Short Videos on Computers & Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-guffaw-gazette-twitters-funniest-threads/"><u>[Updated] Guffaw Gazette Twitter's Funniest Threads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-8-real-time-strategies-to-boost-viewership/"><u>[Updated] Top 8 Real-Time Strategies to Boost Viewership</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/cost-effective-4k-photography-gear-for-2024/"><u>Cost-Effective 4K Photography Gear for 2024</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/enhancing-public-services-how-artificial-intelligence-elevates-agency-operations/"><u>Enhancing Public Services: How Artificial Intelligence Elevates Agency Operations</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gaining-an-edge-in-the-marketplace-with-ai-companion-gpt/"><u>Gaining an Edge in the Marketplace with AI Companion, GPT</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-look-at-motorola-edgeplus-beyond-just-flagship-features/"><u>In-Depth Look at Motorola Edge+: Beyond Just Flagship Features</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/life-with-less-complexity-embracing-the-hp-chromebook-experience-and-saving-big-get-136-off-now/"><u>Life with Less Complexity: Embracing the HP Chromebook Experience and Saving Big – Get $136 Off Now!</u></a></li>
+<li><a href="https://win-trending.techidaily.com/1728502713506-pcpc/"><u>PCからPCへ効率的に大量ファイル転送:保護と速度を高める方法</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-your-crafting-skills-using-these-7-sounds-tracks-for-2024/"><u>Perfect Your Crafting Skills Using These 7 Sounds Tracks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reverse-viewing-crafts-creative-youtube-video-methods-for-2024/"><u>Reverse Viewing Crafts Creative Youtube Video Methods for 2024</u></a></li>
 </ul></div>
 

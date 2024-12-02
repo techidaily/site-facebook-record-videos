@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Upload Videos Effortlessly with Premiere on YouTube"
-date: 2024-07-31T03:22:08.605Z
-updated: 2024-08-01T03:22:08.605Z
+date: 2024-11-28T17:38:34.608Z
+updated: 2024-12-02T06:13:14.962Z
 tags:
   - ai video
   - ai youtube
@@ -44,9 +44,6 @@ thumbnail: https://www.lifewire.com/thmb/6bI4-FcZSWTVUZEJxVaAcTGWDhU=/400x300/fi
 
  To do this you simply select the sequence within the Timeline or in the Project Panel, and go through the menu tree via **File > Export > Media** to bring up the export dialogue.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![exportdialogue](https://images.wondershare.com/multimedia/exportdialogue.png)
 
  To create your Master Copy, simply select the first option of 'Match Sequence Settings', this exports a file that is of the same quality as your original footage, essentially producing a digital copy of the work for archiving before anything else is done.
@@ -57,10 +54,11 @@ thumbnail: https://www.lifewire.com/thmb/6bI4-FcZSWTVUZEJxVaAcTGWDhU=/400x300/fi
 
  The first option we have to consider is the file format that our finished video needs to be in. Here you should refer to YouTube for its guidelines, whilst they do accept a number of file formats, digging through the YouTube help system to find the settings for highest quality we find that they recommend MPEG4 as the container, using the  codec.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube-recommended-settings](https://images.wondershare.com/multimedia/youtube-recommended-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We can also see further recommended settings in this screenshot that will be covered later.
 
@@ -74,24 +72,26 @@ thumbnail: https://www.lifewire.com/thmb/6bI4-FcZSWTVUZEJxVaAcTGWDhU=/400x300/fi
 
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
 
 #### 4\. Preset
 
  The next field we come to is the 'Preset' dropdown menu. This is a major help to most people, as Adobe have very kindly included large numbers of presets to quickly adapt video settings to suit specific uses. They vary depending on the exact version of Premiere you are using, and each format type does have its own list of presets,  as we can see has a large number for YouTube, but also has many presets for specific devices (presets for iPad, Kindle, Nook, various other tablets and phones, Vimeo and a host of others) to make getting the right settings that bit easier for us.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![presets](https://images.wondershare.com/multimedia/presets.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It is important here to select the correct preset from the various YouTube options. You want to select the resolution and frame rate that match your source file, for the best results. So, if your source file is 1080p with a frame rate of 29.97 fps then that is the YouTube setting you would select.
 
  Once a preset is selected a summary of the settings is displayed below, normally these will be well suited to your project, however you can fine tune anything you wish by selecting the video or audio tabs at the bottom which give you the chance to adjust each parameter individually. If you do this, you can save these changes as a custom preset by clicking the button at the side of the Preset dropdown menu and simply use it on later projects by selecting it from the list the same as any other, a great time saving tool.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![finetuning](https://images.wondershare.com/multimedia/finetuning.png)
 
 #### 5\. Rendering
@@ -118,23 +118,25 @@ thumbnail: https://www.lifewire.com/thmb/6bI4-FcZSWTVUZEJxVaAcTGWDhU=/400x300/fi
 
  On the top of your homepage on the right is the upload button, selecting that brings up the select file menu as below.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![upload-menu](https://images.wondershare.com/multimedia/upload-menu.png)
 
  You can either drag your file into the window or click on it to open a standard file browser to locate the desired file, click and the upload will begin. The dropdown underneath allows you to set the video as Public, Unlisted or Private. You can change this at any time once the video is uploaded as well.
 
  This opens the upload progress window, where you can add in a name, description and tags as well as add the video to a playlist or adjust the privacy settings as the video is uploading.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![upload-progress](https://images.wondershare.com/multimedia/upload-progress.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once the upload as finished, you can do final adjustments to settings and choose a thumbnail for the video. The final step is to click the 'Publish' button and your video will be processed and go live.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
@@ -144,12 +146,26 @@ Benjamin Arango is a writer and a lover of all things video.
 
 Follow @Benjamin Arango
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-earnings-on-youtube-universal-device-accessibility/"><u>[New] Maximizing Earnings on YouTube Universal Device Accessibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-crafting-curls-and-contours-creating-a-personalized-beauty-channel/"><u>[Updated] 2024 Approved Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-designing-news-outro-sequences-for-2024/"><u>[Updated] Designing News Outro Sequences for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dive-into-digital-fandom-top-6-interactive-questionnaires-to-identify-your-youtube-spirituality-for-2024/"><u>[Updated] Dive Into Digital Fandom Top 6 Interactive Questionnaires to Identify Your YouTube Spirituality for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-video-marketing-mastery-for-youtube-success/"><u>2024 Approved Video Marketing Mastery for YouTube Success</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-xiaomi-redmi-note-13-pro-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Xiaomi Redmi Note 13 Pro 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-elevate-your-youtube-presence-with-studio-insights/"><u>In 2024, Elevate Your YouTube Presence with Studio Insights</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-premiere-pro-performance-optimization-tips-for-a-faster-workflow/"><u>In 2024, Premiere Pro Performance Optimization Tips for a Faster Workflow</u></a></li>
+<li><a href="https://win-dash.techidaily.com/navigating-through-the-process-of-lenovo-screen-driver-installations/"><u>Navigating Through the Process of Lenovo Screen Driver Installations</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/perfect-text-magic-for-striking-video-scenes/"><u>Perfect Text Magic for Striking Video Scenes</u></a></li>
+<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-poco-c51-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-problem-step-by-step-guide-to-repairing-unresponsive-dvd-bd-and-cd-drives/"><u>Solving the Problem: Step-by-Step Guide to Repairing Unresponsive DVD, BD, and CD Drives</u></a></li>
+</ul></div>
 

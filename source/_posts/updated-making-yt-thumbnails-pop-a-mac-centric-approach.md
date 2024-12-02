@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Making YT Thumbnails Pop  A Mac-Centric Approach\""
-date: 2024-11-16T19:53:26.435Z
-updated: 2024-11-23T17:07:46.865Z
+date: 2024-11-30T22:07:44.484Z
+updated: 2024-12-01T19:42:50.239Z
 tags:
   - ai video
   - ai youtube
@@ -33,7 +33,7 @@ However, if you are wondering how that can be achieved then fret no longer for t
 ![youtube thumbnail mac](https://images.wondershare.com/filmora/Mac-articles/youtube-thumbnail-mac.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is a Youtube Thumbnail?
@@ -47,12 +47,16 @@ thumbnails are a significant factor in determining the number of views a Youtube
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
@@ -66,10 +70,6 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -77,7 +77,7 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -85,10 +85,6 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -106,6 +102,10 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -121,22 +121,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-discover-8-youtube-thumbnail-generators-online-for-2024/"><u>[New] Discover 8 YouTube Thumbnail Generators Online for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-a-comprehensive-list-of-top-virtual-classrooms-not-inspired-by-udemy/"><u>[New] In 2024, A Comprehensive List of Top Virtual Classrooms Not Inspired by Udemy</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-zoomed-up-enhancing-action-film-clarity/"><u>[New] In 2024, Zoomed Up Enhancing Action Film Clarity</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-from-youtube-to-studio-quality-free-converters-for-wav-format/"><u>[Updated] From YouTube to Studio Quality Free Converters for WAV Format</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enlarge-your-videos-thumbnail-on-youtube-easily/"><u>[Updated] In 2024, Enlarge Your Video's Thumbnail on YouTube Easily</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-advice-for-aspiring-youtube-stars-the-art-of-reaction-videos-3-essential-steps/"><u>[Updated] In 2024, Expert Advice for Aspiring YouTube Stars - The Art of Reaction Videos (3 Essential Steps)</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-restoring-hidden-watch-icon-for-optimal-experience/"><u>[Updated] In 2024, Restoring Hidden Watch Icon for Optimal Experience</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>[Updated] Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-to-success-joining-youtubes-partner-program-for-2024/"><u>[Updated] Step-by-Step to Success Joining YouTube's Partner Program for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-year-ahead-social-media-infographic-insights/"><u>[Updated] The Year Ahead Social Media Infographic Insights</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-selecting-from-dji-action-gopro-max-360-insta360-x3/"><u>2024 Approved Selecting From DJI Action, GoPro Max 360, Insta360 X3</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unleashing-storytelling-potential-making-youtube-trailers-in-filmora/"><u>2024 Approved Unleashing Storytelling Potential Making YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-high-stakes-hardware-showdown/"><u>2024 Approved YouTube’s High-Stakes Hardware Showdown</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-infinix-note-30-vip-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Infinix Note 30 VIP</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/premier-8-mirrorless-models-perfect-for-filming-for-2024/"><u>Premier 8 Mirrorless Models Perfect for Filming for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/proven-strategies-for-optimizing-video-content-on-youtube-for-2024/"><u>Proven Strategies for Optimizing Video Content on YouTube for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-oppo-a38-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Oppo A38 FRP Bypass</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-transcribe-a-youtube-video-free/"><u>[New] How to Transcribe a YouTube Video [FREE]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-infographic-mind-numbing-youtube-factsfigures-and-statistics/"><u>[New] Infographic - Mind Numbing YouTube Facts,Figures and Statistics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-jake-pauls-youtube-odyssey-a-tale-of-growth/"><u>[New] Jake Paul's YouTube Odyssey A Tale of Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-youtube-live-streaming/"><u>[New] The Ultimate Guide to YouTube Live Streaming</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ideo-content-battle-who-wins-with-vimeo-youtube-or-dailymotion-for-2024/"><u>[New] Video Content Battle Who Wins with Vimeo, YouTube, or DailyMotion for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-background-blur-101-boosting-video-clarity-on-youtube/"><u>[Updated] 2024 Approved Background Blur 101 Boosting Video Clarity on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-securing-every-moment-tips-for-reliable-capture-of-google-meet-sessions/"><u>[Updated] In 2024, Securing Every Moment Tips for Reliable Capture of Google Meet Sessions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-identity-creation-for-a-booming-youtube-presence/"><u>[Updated] Mastering the Art of Identity Creation for a Booming YouTube Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-silly-screens-top-youtube-humorists-worth-your-time/"><u>[Updated] Silly Screens Top YouTube Humorists Worth Your Time</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tailoring-trailers-for-virtual-broadcasts/"><u>[Updated] Tailoring Trailers for Virtual Broadcasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-next-great-story-selecting-free-android-editing-tools/"><u>[Updated] Your Next Great Story Selecting Free Android Editing Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-enhancing-team-conferencing-with-zoom-techniques-in-microsoft-teams/"><u>2024 Approved Enhancing Team Conferencing with ZOOM Techniques in Microsoft Teams</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-key-disparities-in-360-degree-and-vr-videos/"><u>2024 Approved The Key Disparities in 360-Degree & VR Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-fixes-to-stop-freezing-glitches-in-call-of-duty-black-ops-cold-war-a-users-handbook/"><u>Expert Fixes to Stop Freezing Glitches in Call of Duty: Black Ops Cold War - A User's Handbook</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-openal32dll-missing-error/"><u>How to Fix OpenAL32.dll Missing Error</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://win-best.techidaily.com/la-selection-de-votre-futur-guide-complet-pour-trouver-le-meilleur-ssd-interne-en-2024/"><u>La Sélection De Votre Futur: Guide Complet Pour Trouver Le Meilleur SSD Interne en 2024</u></a></li>
 </ul></div>
 
