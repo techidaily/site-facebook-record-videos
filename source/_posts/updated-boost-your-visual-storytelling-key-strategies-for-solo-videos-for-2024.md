@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos for 2024\""
-date: 2024-11-29T00:53:29.817Z
-updated: 2024-12-02T02:19:44.142Z
+date: 2024-12-04T16:57:43.401Z
+updated: 2024-12-09T22:11:55.308Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,10 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -38,14 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -60,10 +64,6 @@ In the video above, Sean Cannell demonstrates this set-up. As you can see from t
 Objects and people that just make it into the sides of the frame will appear more stretched out as the wide-angle causes distortion and enhances perspectives.
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
 
@@ -103,20 +103,20 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,24 +134,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-video-sharing-from-youtube-to-insta/"><u>[New] 2024 Approved Elevating Video Sharing From YouTube to Insta</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-editing-essentials-your-go-to-guide-for-beginner-vloggers-for-2024/"><u>[New] Editing Essentials Your Go-To Guide for Beginner Vloggers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-affordable-tactics-for-combining-media-with-literature/"><u>[New] In 2024, Affordable Tactics for Combining Media with Literature</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-insights-for-channel-expansion/"><u>[New] Mastering YouTube Insights for Channel Expansion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-viewer-engagement-explore-12-successful-youtube-strategies/"><u>[New] Unleashing Viewer Engagement - Explore 12 Successful YouTube Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-avoid-buffering-switch-av1-codec-on-youtube/"><u>[Updated] 2024 Approved Avoid Buffering Switch AV1 Codec on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-evaluating-the-top-video-streaming-apps-for-phones/"><u>[Updated] 2024 Approved Evaluating the Top Video Streaming Apps for Phones</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-accelerated-conversion-of-yt-content-for-mac-screens-for-2024/"><u>[Updated] Accelerated Conversion of YT Content for MAC Screens for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-quick-dive-into-video-ratios-the-aspect-ratio-essentials-for-youtubers/"><u>[Updated] In 2024, A Quick Dive Into Video Ratios The Aspect Ratio Essentials for YouTubers</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-youtubthumbnail-guide-for-mac-users/"><u>2024 Approved The Ultimate YoutubThumbnail Guide for Mac Users</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/advanced-file-deletion-guide-for-stellar-erase-tool-v5-windows-standard-settings-scheduler-included/"><u>Advanced File Deletion Guide for Stellar Erase Tool v5: Windows Standard Settings, Scheduler Included</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/harnessing-the-potential-of-quantum-hdr-imaging-for-2024/"><u>Harnessing the Potential of Quantum HDR Imaging for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/how-to-shop-and-buy-virtual-reality-games-on-oculus-quest-2-platform/"><u>How to Shop and Buy Virtual Reality Games on Oculus Quest 2 Platform</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/next-wave-creators-8-yt-growth-powerhouses/"><u>Next Wave Creators 8 YT Growth Powerhouses</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-stuck-iphone-issues-7-methods-to-move-past-the-apple-boot-screen/"><u>Overcoming Stuck iPhone Issues: 7 Methods to Move Past the Apple Boot Screen</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/seamless-youtube-video-transfer-for-ios-devices-explained-for-2024/"><u>Seamless YouTube Video Transfer for iOS Devices Explained for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-for-repairing-audio-failures-in-counter-strike-global-offensive/"><u>Step By Step Guide For Repairing Audio Failures In Counter-Strike Global Offensive</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/uncovering-the-reason-behind-ps-ones-shaky-visual-experience/"><u>Uncovering the Reason Behind PS One's Shaky Visual Experience</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unlock-flawless-selfies-with-these-top-iphone-free-tools/"><u>Unlock Flawless Selfies with These Top iPhone Free Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-evaluating-youtubes-monthly-creator-payments/"><u>[New] 2024 Approved Evaluating YouTube's Monthly Creator Payments</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channel-success-story-turning-budget-into-brands-for-2024/"><u>[New] Channel Success Story Turning Budget Into Brands for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-choosing-between-bandicam-and-camtasia-for-video-capture-for-2024/"><u>[New] Choosing Between Bandicam and Camtasia for Video Capture for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies/"><u>[New] In 2024, Cultivating a Sustainable Advertising Ecosystem FameBit’s Strategies</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gain-an-edge-access-these-top-8-sites-for-free-eco-screen-backdrops-and-clips/"><u>[Updated] In 2024, Gain an Edge - Access These Top 8 Sites for FREE Eco-Screen Backdrops and Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mcb-video-graphics-pack-for-youtube-channels/"><u>[Updated] MCB Video Graphics Pack for YouTube Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-stream-wars-fb-live-youtube-live-and-twitters-periscope-face-off/"><u>[Updated] The Stream Wars FB Live, YouTube Live, and Twitter's Periscope Face-Off</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/brother-cdw-duo-fan-setup-instructions/"><u>Brother CDW Duo Fan Setup Instructions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ations-first-what-to-invest-in-for-youtubing/"><u>Foundations First What To Invest In for YouTubing</u></a></li>
+<li><a href="https://extra-support.techidaily.com/peering-into-the-digital-universe-what-is-vr-in-2024/"><u>Peering Into the Digital Universe What Is VR, In 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/photo-8-estrella-remediacion-en-windows-como-solicitar-y-descargar-el-programa-corrector-de-fotos/"><u>Photo 8 Estrella Remediación en Windows - Cómo Solicitar Y Descargar El Programa Corrector De Fotos</u></a></li>
+<li><a href="https://win-able.techidaily.com/stop-football-manager-2019-from-crashing-with-these-effective-troubleshooting-tips/"><u>Stop Football Manager 2019 From Crashing with These Effective Troubleshooting Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-10-asmr-apps-on-smart-devices-for-2024/"><u>Top 10 ASMR Apps on Smart Devices for 2024</u></a></li>
 </ul></div>
 

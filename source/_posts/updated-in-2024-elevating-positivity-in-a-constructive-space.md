@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-11-25T02:08:10.807Z
-updated: 2024-12-01T19:17:53.431Z
+date: 2024-12-08T00:18:42.122Z
+updated: 2024-12-09T16:01:28.524Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,24 +77,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-famous-gamers-software-choices/"><u>[New] 2024 Approved Famous Gamers' Software Choices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-augment-your-vfx-arsenal-explore-these-top-8-sites-for-free-eco-backgrounds-for-2024/"><u>[New] Augment Your VFX Arsenal - Explore These Top 8 Sites for Free Eco-Backgrounds for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-fix-for-sudden-audio-gaps-in-obs-captures-for-2024/"><u>[Updated] Fix for Sudden Audio Gaps in OBS Captures for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-your-content-quality-essential-tips-for-youtube-users/"><u>[Updated] In 2024, Boosting Your Content Quality Essential Tips for YouTube Users</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-deciphering-content-control-youtube-vs-creative-commons-license/"><u>[Updated] In 2024, Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expedite-channel-growth-surpass-the-10k-view-threshold-now/"><u>[Updated] In 2024, Expedite Channel Growth Surpass the 10K View Threshold Now</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mp3-upload-process-stream-convert-and-share-on-youtube-quickly/"><u>[Updated] MP3 Upload Process Stream, Convert & Share on YouTube Quickly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-tailored-techniques-to-cut-off-unwanted-youtube-content-on-devices/"><u>[Updated] Tailored Techniques to Cut Off Unwanted YouTube Content on Devices</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-how-to-for-clearer-youtube-footage/"><u>[Updated] The Ultimate How-To for Clearer YouTube Footage</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-visualizing-the-most-influential-23-social-trends/"><u>[Updated] Visualizing the Most Influential '23 Social Trends</u></a></li>
-<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-oppo-reno-8t-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Oppo Reno 8T 5G FRP</u></a></li>
-<li><a href="https://games-able.techidaily.com/diminishing-game-bar-usage-in-win-11-systems/"><u>Diminishing Game Bar Usage in Win 11 Systems</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/efficient-methods-to-shrink-down-mov-video-files-a-step-by-step-guide/"><u>Efficient Methods to Shrink Down MOV Video Files: A Step-by-Step Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-motorola-moto-g-5g-2023-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Motorola Moto G 5G (2023) Without Password?</u></a></li>
-<li><a href="https://driver-download.techidaily.com/how-to-update-your-msi-b350-toms-hardware-driver-downloads-for-win11win7-systems/"><u>How to Update Your MSI B350 TOM'S HARDWARE: Driver Downloads for Win11/Win7 Systems</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s4-your-ultimate-companion-in-portable-tech/"><u>In-Depth Analysis of the Samsung Galaxy Tab S4 - Your Ultimate Companion in Portable Tech</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-animate-like-a-pro-top-8-software-options-for-mac-and-windows/"><u>New Animate Like a Pro Top 8 Software Options for Mac and Windows</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unparalleled-screenplay-craftsmanship-across-varied-fields/"><u>Unparalleled Screenplay Craftsmanship Across Varied Fields</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-the-art-of-identity-creation-for-a-booming-youtube-presence/"><u>[New] Mastering the Art of Identity Creation for a Booming YouTube Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-masterminds-of-immersive-marvellous-marvel-spheres/"><u>[New] Masterminds of Immersive Marvellous Marvel Spheres</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-math-behind-making-money-youtubes-viewer-insights/"><u>[New] The Math Behind Making Money YouTube’s Viewer Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-camera-selection-for-youtube-success/"><u>[New] The Ultimate Camera Selection for YouTube Success</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-guide-to-hashtagging-for-game-focused-yt-channels/"><u>[Updated] 2024 Approved Essential Guide to Hashtagging for Game-Focused YT Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-mp3-conversion-from-youtube-for-mac-users-for-2024/"><u>[Updated] Effortless MP3 Conversion From YouTube for Mac Users for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-conveniently-share-your-videos-youtube-shorts-mobilecomputer-tips/"><u>[Updated] In 2024, Conveniently Share Your Videos YouTube Shorts Mobile/Computer Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-precision-guide-for-subtitles-insertion-in-mp4-files/"><u>[Updated] Precision Guide for Subtitles Insertion in MP4 Files</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-steps-for-deleting-discord-on-computermobile/"><u>[Updated] Steps for Deleting Discord on Computer/Mobile</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-share-the-ultimate-free-youtube-to-video-editor-with-your-circle-a-must-try-tool/"><u>1. Share the Ultimate Free YouTube-to-Video Editor with Your Circle: A Must-Try Tool!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-visioncutting-software/"><u>2024 Approved VisionCutting Software</u></a></li>
+<li><a href="https://blog-min.techidaily.com/contest-of-champions-claim-your-2018-fifa-world-cup-soccer-ball-and-exclusive-prizes/"><u>Contest of Champions! Claim Your 2018 FIFA World Cup Soccer Ball & Exclusive Prizes!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-activate-brother-l25cuprincess-drivers-installed-in-a-flash-on-windows/"><u>Download & Activate: Brother L25cuprincess Drivers Installed in a Flash on Windows</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-the-art-of-alteration-a-guide-to-video-color-correction-11-parts/"><u>In 2024, The Art of Alteration A Guide to Video Color Correction (11 Parts)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/slippery-surfaces-olympic-winners-of-22-for-2024/"><u>Slippery Surfaces Olympic Winners of '22 for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Solution Strategies: When Google Chrome Refuses to Open Up"
-date: 2024-11-29T04:56:45.325Z
-updated: 2024-12-02T08:24:23.371Z
+date: 2024-12-05T21:34:14.374Z
+updated: 2024-12-09T18:27:05.865Z
 tags:
   - win11
   - win10
@@ -32,6 +32,10 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **HDD Space**        | **16 GB**           |
 | **DirectX**          | **DirectX 11.0**    |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Recommended system requirements for Fortnite
 
 | **Operating System** | **Windows 10/8/7**                                           |
@@ -42,10 +46,6 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **Processor**        | **Core i5 2.8 Ghz**                                          |
 | **HDD Space**        | **20 GB**                                                    |
 | **DirectX**          | **DirectX 11.0**                                             |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -80,7 +80,7 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method: Update your graphics card
@@ -117,15 +117,7 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Reboot your computer and run Fortnite to check the black screen issue will appear or not.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 4: Use your integrated graphics card
 
@@ -134,10 +126,6 @@ OR
  If everything works fine using the integrated graphics, you might need to check your graphics processor or PSU (computer power supply unit) are faulting. The way to test your GPU is using another graphics card on your PC or try this card in another PC.
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 5: Change scale and layout limit
 
@@ -152,7 +140,7 @@ OR
 4. Reboot Fortnite and check whether this problem is resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 6: Unblock the game from Windows Firewall
@@ -163,12 +151,24 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall0.jpg)
 2. Click**Allow an app through firewall** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall.jpg)
 3. Find Fortnite and check whether it has been blocked or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. Click**Change Settings** if it does and check all the boxes to enable the app through the firewall.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall-1.jpg)
 5. Reboot Fortnite and check whether this problem is resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ---
 
@@ -193,19 +193,22 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cash-creation-in-content-a-deep-dive-into-vids-and-videos-for-2024/"><u>[New] Cash Creation in Content A Deep Dive Into Vids and Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-new-age-monetization-cost-effective-channel-options/"><u>[New] New Age Monetization Cost-Effective Channel Options</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-above-the-mainstage-significant-youtube-meetings/"><u>[Updated] 2024 Approved Above the Mainstage Significant YouTube Meetings</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-audio-harmony-seekers-perfecting-video-moods/"><u>[Updated] Audio Harmony Seekers Perfecting Video Moods</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-dive-into-9-premium-uncut-full-length-winter-wonderland-flicks-for-2024/"><u>[Updated] Dive Into 9 Premium, Uncut Full-Length Winter Wonderland Flicks for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-full-screen-feature-on-facebook-what-you-need-to-know-for-2024/"><u>[Updated] Full-Screen Feature on Facebook What You Need to Know for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essential-thumbnail-strategy-for-top-video-visibility/"><u>[Updated] The Essential Thumbnail Strategy for Top Video Visibility</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-no-cost-c-span-archives-your-comprehensive-download-guide/"><u>2024 Approved No Cost C-Span Archives Your Comprehensive Download Guide</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-unveilingnextgencameratech/"><u>2024 Approved UnveilingNextGenCameraTech</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/comprehensive-guide-to-standard-settings-for-trace-removal-in-stellar-file-eraser-5-windows/"><u>Comprehensive Guide to Standard Settings for Trace-Removal in Stellar File Eraser 5 (Windows)</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Vivo Y100 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-paid-content-guide-mastering-membership-for-monetization/"><u>In 2024, YouTube Paid Content Guide Mastering Membership for Monetization</u></a></li>
-<li><a href="https://driver-install.techidaily.com/revitalize-lenovo-thinks-with-updated-driver-set/"><u>Revitalize Lenovo Thinks with Updated Driver Set</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-experts-insights-on-iphone-based-podcast-acquisition-for-2024/"><u>The Expert's Insights on iPhone-Based Podcast Acquisition for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-12-cutting-edge-flip-screen-cams-for-video-content/"><u>[New] 2024 Approved Discover 12 Cutting-Edge Flip-Screen Cams for Video Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dream-weavers-the-marvel-interactive-sculptors/"><u>[New] 2024 Approved Dream Weavers The Marvel Interactive Sculptors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora/"><u>[New] 2024 Approved Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-list-of-free-rippers-for-video-conversion-for-2024/"><u>[New] Essential List of Free Rippers For Video Conversion for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-encyclopedia-of-hand-centered-interaction-systems/"><u>[New] In 2024, The Encyclopedia of Hand-Centered Interaction Systems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-video-captioning-on-youtube/"><u>[New] Mastering Video Captioning on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-prime-choices-of-affordable-cameras-with-full-hd-for-2024/"><u>[New] Prime Choices of Affordable Cameras with Full HD for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-new-wave-of-youtube-branding-best-titles-for-vloggers-and-filmmakers-keep-it-under-or-at-156-characters/"><u>[New] The New Wave of YouTube Branding Best Titles for Vloggers & Filmmakers (Keep It Under or at 156 Characters)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-honor-roll-play-button-and-follower-awards-for-2024/"><u>[Updated] Channel Honor Roll - Play Button & Follower Awards for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-discover-free-and-paid-luts-for-profound-canon-camera-effects/"><u>[Updated] In 2024, Discover Free & Paid LUTs for Profound Canon Camera Effects</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-ice-prowess-unleashed-2022-olympics-sprinting-spectacles/"><u>[Updated] In 2024, Ice Prowess Unleashed 2022 Olympics Sprinting Spectacles</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-tailor-your-devices-alerts-with-custom-android-sounds/"><u>2024 Approved Tailor Your Device's Alerts with Custom Android Sounds</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-typist-to-writer-empower-your-workflow-with-microsofts-gpt/"><u>From Typist to Writer: Empower Your Workflow with Microsoft's GPT</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-essential-review-best-dynamic-capture-devices/"><u>In 2024, Essential Review Best Dynamic Capture Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-digital-dimension-state-of-the-art-vr-for-2024/"><u>The Digital Dimension State-of-the-Art VR for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-essential-camera-toolkit-for-yt-enthusiasts-for-2024/"><u>The Essential Camera Toolkit for YT Enthusiasts for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1124130-9781618520296-travelers/"><u>Travelers | Free Book</u></a></li>
 </ul></div>
 
