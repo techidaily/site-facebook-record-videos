@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Edit the Length of a Video on YouTube\""
-date: 2024-12-02T22:26:26.811Z
-updated: 2024-12-09T21:04:39.086Z
+date: 2024-12-11T04:01:46.836Z
+updated: 2024-12-15T18:10:39.224Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,18 +103,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-break-through-the-crowd-key-youtube-seo-strategies-to-rank-high/"><u>[New] 2024 Approved Break Through the Crowd Key YouTube SEO Strategies to Rank High</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-conserve-space-not-time-youtube-video-length-adjustment-for-2024/"><u>[New] Conserve Space, Not Time YouTube Video Length Adjustment for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-essential-freefire-hashtags-to-skyrocket-video-views-on-youtube-for-2024/"><u>[New] Essential FreeFire Hashtags to Skyrocket Video Views on YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-12-ideal-video-cameras-for-aspiring-and-seasoned-vloggers/"><u>[New] In 2024, 12 Ideal Video Cameras for Aspiring and Seasoned Vloggers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dive-into-makers-earnings-exploring-youtube-shorts-revenue-structure/"><u>[New] In 2024, Dive Into Maker's Earnings Exploring YouTube Shorts Revenue Structure</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone/"><u>[New] In 2024, Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-ultimate-laptops-your-go-to-machine-for-expert-video-editing/"><u>[New] Ultimate Laptops Your Go-To Machine for Expert Video Editing</u></a></li>
-<li><a href="https://article-helps.techidaily.com/best-tools-for-animating-with-3d-models/"><u>Best Tools for Animating with 3D Models</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlink-your-iphone-12-from-your-apple-id-by-drfone-ios/"><u>How To Unlink Your iPhone 12 From Your Apple ID</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/immersive-virtue-verse-selection-for-ar-vr-worlds-for-2024/"><u>Immersive Virtue Verse Selection for AR-VR Worlds for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-enhance-visibility-with-any-channel-title-through-free-makers/"><u>In 2024, Enhance Visibility With Any Channel Title Through Free Makers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-ultimate-guide-to-aspect-ratios-on-fb-videos/"><u>In 2024, The Ultimate Guide to Aspect Ratios on FB Videos</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/streamlining-communication-for-better-results-mastering-slack-usage-in-a-professional-setting/"><u>Streamlining Communication for Better Results: Mastering Slack Usage in a Professional Setting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-charting-a-course-for-growth-precise-youtube-stats-from-social-blades-hub/"><u>[New] 2024 Approved Charting a Course for Growth Precise YouTube Stats From Social Blade's Hub</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decrypting-the-mystery-understanding-unlisted-content-on-youtube/"><u>[New] 2024 Approved Decrypting the Mystery Understanding 'Unlisted' Content on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comprehensive-guide-to-maximizing-channels-earnings-through-trailers/"><u>[New] In 2024, A Comprehensive Guide to Maximizing Channels' Earnings Through Trailers</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-fists-fighting-for-fame-versus-follower-frenzy/"><u>[New] In 2024, Fists Fighting For Fame Versus Follower Frenzy</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-vivacious-talker-examined-revision-no-8/"><u>[New] In 2024, Vivacious Talker Examined Revision No. 8</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-cinematic-magic-learn-green-screen-wonders-with-youtube/"><u>[Updated] 2024 Approved Craft Cinematic Magic Learn Green Screen Wonders with YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-embrace-the-season-ideal-winter-backgrounds-for-yt/"><u>[Updated] 2024 Approved Embrace the Season Ideal Winter Backgrounds for YT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-video-reach-tactics-against-bot-visitors/"><u>[Updated] 2024 Approved Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>[Updated] In 2024, AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-vocalvault-critique-of-live-sounds/"><u>[Updated] In 2024, VocalVault Critique of Live Sounds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-prime-10-sound-enhancers-pc-mac-mobile-devices-for-2024/"><u>[Updated] Prime 10 Sound Enhancers PC, Mac, Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-complete-wm-maker-playbook-for-youtube-clips-perfection/"><u>[Updated] The Complete WM Maker Playbook for YouTube Clips Perfection</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-the-premier-manual-for-subtitle-precision-via-web-resources-for-2024/"><u>[Updated] The Premier Manual for Subtitle Precision via Web Resources for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/1721267961752-a-quantum-leap-in-photography-meet-the-cutting-edge-photo-restoration-innovation-by-stellarian-enterprises/"><u>A Quantum Leap in Photography: Meet the Cutting-Edge Photo Restoration Innovation by Stellarian Enterprises</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-top-tablets-amazon-fire-and-apple-ipad-which-one-suits-you-best/"><u>Comparing Top Tablets: Amazon Fire and Apple iPad - Which One Suits You Best?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-from-your-iphone-12-mini-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID from Your iPhone 12 mini?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-from-blemishes-to-beauty-a-step-by-step-fcpx-skin-smoothing-guide-for-2024/"><u>New From Blemishes to Beauty A Step-by-Step FCPX Skin Smoothing Guide for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating YouTube  Skip the Top 8 Novice Missteps\""
-date: 2024-12-03T17:22:15.999Z
-updated: 2024-12-09T17:58:36.634Z
+date: 2024-12-08T17:24:06.319Z
+updated: 2024-12-15T23:14:49.396Z
 tags:
   - ai video
   - ai youtube
@@ -31,7 +31,7 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  
@@ -43,7 +43,7 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
@@ -51,10 +51,6 @@ If you can think of the kind of content you’ll love to consistently create and
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -70,6 +66,10 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -78,15 +78,15 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -95,7 +95,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -123,17 +123,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-epic-battle-royale-thumbnails-done-fast/"><u>[New] In 2024, Epic Battle Royale Thumbnails, Done Fast</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-8-youtube-images-that-captivate-and-convert-viewers/"><u>[New] Top 8 YouTube Images That Captivate and Convert Viewers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-discover-variety-50-complimentary-youtube-banners-available/"><u>[Updated] Discover Variety – 50 Complimentary YouTube Banners Available!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-audio-extraction-from-youtube-top-picks-for-your-favorite-free-crackers-for-2024/"><u>[Updated] Efficient Audio Extraction From YouTube Top Picks for Your Favorite Free Crackers for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-secrets-to-exceptional-tiktok-videos/"><u>[Updated] Expert Secrets to Exceptional TikTok Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-historical-youtube-viewers-treasure-trove/"><u>[Updated] Top 10 Historical YouTube Viewers' Treasure Trove</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-3-techniques-converting-pin-videos-to-mp3s/"><u>[Updated] Top 3 Techniques Converting Pin Videos To MP3s</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-your-ultimate-guide-to-erasing-backgrounds-in-picsart/"><u>[Updated] Your Ultimate Guide to Erasing Backgrounds in Picsart</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/capturing-the-future-an-overview-of-iphone-xs-camera-innovations/"><u>Capturing the Future An Overview of iPhone X's Camera Innovations</u></a></li>
-<li><a href="https://win-forum.techidaily.com/essential-techniques-to-reduce-and-manage-full-disk-load-in-windows-tenth/"><u>Essential Techniques to Reduce and Manage Full Disk Load in Windows Tenth</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-infinix-hot-30-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://win-webster.techidaily.com/wie-man-das-iphone-7-und-iphone-7-plus-sicher-auf-icloud-speichert-schritt-fur-schritt-guide/"><u>Wie Man Das iPhone 7 Und iPhone 7 Plus Sicher Auf iCloud Speichert - Schritt-Für-Schritt-Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-video-dimensions-the-key-to-youtube-presence/"><u>[New] Mastering Video Dimensions The Key to YouTube Presence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-curating-a-musical-portfolio-in-youtube-for-2024/"><u>[Updated] Curating a Musical Portfolio in Youtube for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-free-vimeo-tutorial-to-craft-engaging-videos-for-2024/"><u>[Updated] Free Vimeo Tutorial to Craft Engaging Videos for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-pc-audio-logging-made-simple-install-x-recorder/"><u>[Updated] In 2024, Pc Audio Logging Made Simple Install X-Recorder</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-inside-look-fundamentals-of-asmr-videos/"><u>[Updated] Inside Look Fundamentals of ASMR Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-visual-branding-in-small-business-marketing/"><u>[Updated] Visual Branding in Small Business Marketing</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/file-logistics-unlocked-five-streamlined-techniques-for-computer-upload-for-2024/"><u>File Logistics Unlocked Five Streamlined Techniques for Computer Upload for 2024</u></a></li>
+<li><a href="https://win-bits.techidaily.com/impact-of-googles-antitrust-legal-defeat-implications-for-users-and-the-evolving-landscape-of-online-search-techinsights/"><u>Impact of Google's Antitrust Legal Defeat: Implications for Users & The Evolving Landscape of Online Search | TechInsights</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/top-strategies-for-enhancing-computer-speed-and-efficiency-insights-from-yl-computing-and-yl-software/"><u>Top Strategies for Enhancing Computer Speed and Efficiency: Insights From YL Computing & YL Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/ultrawide-vs-uhd-4k-monitors-which-to-choose/"><u>UltraWide VS UHD 4K Monitors Which to Choose</u></a></li>
 </ul></div>
 

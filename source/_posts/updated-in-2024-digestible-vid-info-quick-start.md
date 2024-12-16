@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Digestible Vid Info Quick Start"
-date: 2024-12-02T20:33:54.734Z
-updated: 2024-12-09T17:45:25.137Z
+date: 2024-12-14T02:22:56.417Z
+updated: 2024-12-16T00:23:36.982Z
 tags:
   - ai video
   - ai youtube
@@ -55,7 +55,7 @@ You can add relevant hashtags to your video in the description as well to gain m
 ![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description-matter.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How do you Write a Description on YouTube Shorts?
@@ -81,7 +81,7 @@ There are some of the key points to keep in mind while writing a [YouTube shorts
 While writing a YouTube shorts description is very important that you are well aware of which keywords to use. Here your choice of keywords will play a key role in ranking your videos up.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Do keyword research
@@ -95,10 +95,6 @@ You should make sure to put your primary keywords on the first three sentences o
 ### 4\. Track the keywords
 
 Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Find other interests of your audience
 
@@ -123,10 +119,6 @@ YouTube shorts description means a simple text or a message written below to you
 Such a YouTube short description helps viewers in getting some hint about the video and to decide whether the video is what they are looking for or not. Also, we can also add additional information such as relevant links and hashtags to the video.
 
 ![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: adweek.com
 
@@ -161,6 +153,10 @@ So you can follow above mentioned easy step guidance and write the most iconic Y
 ## Part 4: Tips for Writing Effective YouTube Shorts Description
 
 There are some of the key points to keep in mind while writing a [YouTube shorts](https://tools.techidaily.com/wondershare/filmora/download/) description. All these tips would surely help your videos gain more views.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Be specific
 
@@ -205,7 +201,7 @@ Such a YouTube short description helps viewers in getting some hint about the vi
 Source: adweek.com
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Why is YouTube Shorts Description Important?
@@ -237,7 +233,7 @@ Let’s talk about ways to write a YouTube shorts description with easy to follo
 So you can follow above mentioned easy step guidance and write the most iconic YouTube shorts description on your channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Tips for Writing Effective YouTube Shorts Description
@@ -252,6 +248,10 @@ While writing a YouTube shorts description is very important that you are well a
 
 If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Know where to place your keywords
 
 You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
@@ -259,6 +259,10 @@ You should make sure to put your primary keywords on the first three sentences o
 ### 4\. Track the keywords
 
 Always keep an eye on knowing which keywords are working and which are not for you. It would help you decide your YouTube shorts description in that manner and generate more traffic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Find other interests of your audience
 
@@ -276,6 +280,10 @@ Now it is time for you to pick the right YouTube shorts description for your vid
 
 04 [Tips for Writing Effective YouTube Shorts Description](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What is YouTube Shorts Description?
 
 YouTube shorts description means a simple text or a message written below to your YouTube shorts giving an idea about the uploaded YouTube shorts video to the viewers.
@@ -283,10 +291,6 @@ YouTube shorts description means a simple text or a message written below to you
 Such a YouTube short description helps viewers in getting some hint about the video and to decide whether the video is what they are looking for or not. Also, we can also add additional information such as relevant links and hashtags to the video.
 
 ![youtube shorts description](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-description.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Source: adweek.com
 
@@ -319,7 +323,7 @@ Let’s talk about ways to write a YouTube shorts description with easy to follo
 So you can follow above mentioned easy step guidance and write the most iconic YouTube shorts description on your channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Tips for Writing Effective YouTube Shorts Description
@@ -334,13 +338,13 @@ While writing a YouTube shorts description is very important that you are well a
 
 If you are not aware of the right keywords about your YouTube shorts then you could take online help of an online keyword planner. You must be including the right keywords on your YouTube shorts description to make it more searchable.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Know where to place your keywords
 
 You should make sure to put your primary keywords on the first three sentences only and the reason is that users always would notice on the initial part of your description.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Track the keywords
 
@@ -349,10 +353,6 @@ Always keep an eye on knowing which keywords are working and which are not for y
 ### 5\. Find other interests of your audience
 
 Along with your video content have a look at what other things are attracting your audience. You can always check out that and based on that plan and deliver your upcoming YouTube shorts.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -380,14 +380,18 @@ The article introduces the YouTube Community and covers how to make community po
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-editing-engine-room/"><u>[New] 2024 Approved Editing Engine Room</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-educational-synergy-enhancing-learning-with-youtube-videos/"><u>[New] In 2024, Educational Synergy Enhancing Learning with YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-what-does-the-blue-marker-on-fb-chat-reveal/"><u>[New] In 2024, What Does the Blue Marker on FB Chat Reveal?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-erase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[Updated] 2024 Approved Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-demystifying-youtubes-seo-a-keyword-research-guide-for-2024/"><u>[Updated] Demystifying YouTube's SEO A Keyword Research Guide for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-investigating-the-realm-of-virtual-sticker-decoration-for-2024/"><u>[Updated] Investigating the Realm of Virtual Sticker Decoration for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-dimensions-online-aspect-tweaking/"><u>[Updated] Mastering Dimensions Online Aspect Tweaking</u></a></li>
-<li><a href="https://win-net.techidaily.com/background-operation-of-windows-defender-insights-by-yl-computing/"><u>Background Operation of Windows Defender: Insights by YL Computing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/steps-to-manage-video-watcher-restrictions-on-youtube-for-2024/"><u>Steps to Manage Video Watcher Restrictions on Youtube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-mac-slicer-software-enhance-video-production-prowess/"><u>[New] 2024 Approved Best Mac Slicer Software Enhance Video Production Prowess</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-fixing-inaccurate-avatar-showcasing-in-fb-messages/"><u>[New] Fixing Inaccurate Avatar Showcasing in FB Messages</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-accelerate-your-channel-growth-affordable-subscribers-available/"><u>[New] In 2024, Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-build-your-brands-success-on-top-business-youtube-channels/"><u>[Updated] 2024 Approved Build Your Brand's Success on Top Business YouTube Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-channel-excellence-with-best-ideas-for-2024/"><u>[Updated] Elevating Channel Excellence with Best Ideas for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-extracting-stills-for-windows-11-video-projects/"><u>[Updated] Extracting Stills for Windows 11 Video Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-4-simplified-techniques-to-embed-youtube-content-in-powerpoint/"><u>[Updated] In 2024, 4 Simplified Techniques to Embed YouTube Content in PowerPoint</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-a05s-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Itel A05s Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-rpg-origins-vs-hybrid-designs-evolution/"><u>In 2024, RPG Origins Vs. Hybrid Designs Evolution</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/locked-out-of-apple-iphone-xr-5-ways-to-get-into-a-locked-apple-iphone-xr-by-drfone-ios/"><u>Locked Out of Apple iPhone XR? 5 Ways to get into a Locked Apple iPhone XR</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/swiftly-solving-windows-errors-top-8-methods/"><u>Swiftly Solving Windows Errors: Top 8 Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-most-crucial-info-for-new-youtube-tv-users-for-2024/"><u>The Most Crucial Info for New YouTube TV Users for 2024</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/6-2024/"><u>ベストの無料映像編集ツール6本: 2024年に最適!</u></a></li>
 </ul></div>
 

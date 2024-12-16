@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Boosting Income  Smart Strategies for Profit From YouTube Mobile Content\""
-date: 2024-12-04T21:38:10.567Z
-updated: 2024-12-09T22:43:12.601Z
+date: 2024-12-08T23:44:20.503Z
+updated: 2024-12-15T18:45:46.828Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,6 @@ To access the YouTube Studio dashboard, click the icon of your channel or profil
 
 ![youtube studio](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-3.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step - 3 . Monetize your site with Google Adsense
 
 To view YouTube Studio's monetization options, click on the "Monetization" tab. The "Enable" option will appear if you meet the eligibility criteria. To receive your earnings, follow the instructions onscreen to set up Google AdSense.
@@ -195,10 +191,6 @@ With Text to Image, you can use images directly in your video project in three r
 
 Start with Filmora's built-in video templates, creating creative videos with ease. You can also save templates on the cloud. Streamline your video production process by sharing them with fellow creators.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 You have now learned how to enable monetization on YouTube in mobile in 2024\. From your mobile device, you can turn your passion into income. The possibilities are endless once you achieve monetization. No matter if you're starting a side gig, launching a business, or going full-time on YouTube.
@@ -208,10 +200,6 @@ We have covered key steps for meeting YouTube's requirements and monetizing vide
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. What you need to know about YouTube Monetization
 
@@ -231,6 +219,10 @@ Video advertisements can make you money if you meet the following requirements:
 Promote your channel and create quality content to increase these numbers.
 
 ![rules for youtube monetization](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Join the YouTube Partner Program
 
@@ -284,10 +276,6 @@ To view YouTube Studio's monetization options, click on the "Monetization" tab. 
 
 ![goggle adsense](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step - 4 . Accept YouTube's terms and conditions
 
 Read and accept YouTube's terms and conditions for the Partner Program.
@@ -316,15 +304,15 @@ Keep in mind YouTube's content policies if you want to maintain your monetizatio
 
 Your YouTube channel may need some time to be approved for monetization. Engagement with your audience is the key to increasing viewership and revenue for your videos.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Monetizing YouTube channels on mobile devices: Some Proven Ways
 
 It is beneficial for creators to use YouTube AdSense, although it is not a reliable source of income. The advertising rates fluctuate, so making the same amount of money every year is hard. At last, here are some methods for monetizing YouTube:
 
 ![ways for youtube monetization](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-6.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Ads on YouTube
 
@@ -345,10 +333,6 @@ A similar tactic has already been discussed. Your fans can buy branded goods fro
 ### Premium YouTube subscriptions
 
 Using YouTube Premium, users can watch videos ad-free and download videos. Fortunately, you can still earn money by uploading videos to this service. Video creators receive subscription revenue payments in the same manner as ad revenues. You earn money based on the number of times Premium members watch your videos.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Crowdfunding on YouTube
 
@@ -408,16 +392,16 @@ We have covered key steps for meeting YouTube's requirements and monetizing vide
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Engaging Subjects for Consistent Vlogging
 
 # Daily Vlogging Ideas: What to Talk about While Vlogging?
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -448,6 +432,97 @@ Here are 4 things to talk about in your daily vlog:
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+## Snapshots of Your Day
+
+ Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
+
+Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+## Whatever You Need to Get Out
+
+_Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
+
+ Ranting about people you know can get messy when people from your offline life see it, so maybe avoid that. However, if you’re angry about something in general – or really happy about something – then whatever it is you’re feeling strongly about is probably the thing you should be vlogging about.
+
+It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
+
+Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+## What did you learn today?
+
+ _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
+
+ You learn something new every day, right? Why not share that factoid with your viewers. Here a few facts to get you started:
+
+ Whales evolved from a land-based animal called a pakicetus.
+
+The hagfish hunt by swimming into the mouth of a larger fish and eating it from the inside.
+
+Crows live in family units, visit their aging parents, and have funerals for dead crows.
+
+The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, starve, and end up as fertilizer).
+
+Sea monkeys can survive in space.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## EVERYTHING
+
+You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+## Customize Your Vlog Stories with Powerful Video Editor
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**We’ve got a new eBook out!**
+
+It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Every genre on YouTube has its own unique challenges, but **daily vlogging** is probably the hardest thing you could take on. Firstly because it means you have to do all the work of shooting and editing every day and secondly because it means you need to have something to talk about every single day. Even vlogging once or twice a week is tough.
+
+How do you know [what you should talk about in your vlog](https://tools.techidaily.com/wondershare/filmora/download/)? Some people are so comfortable in front of the camera they can just turn it on and start talking about whatever’s on their mind, but they’re in the minority.
+
+Before starting your daily vlogging, you have to figure out one important thing ahead of time.
+
+## Do you have a niche?
+
+  You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
+
+The other reason it’s good to have a niche is that you’ll be able to use keywords related to that niche in your video titles and tags. It’s hard to make it with a vlogging channel because nobody is searching for your content unless you are covering a specific topic like the technology they want to hear about.
+
+* [What are you watching/reading?](#watching)
+* [Snapshots of Your Day](#snapshots)
+* [Whatever You Need to Get Out](#get-out)
+* [What did you learn today?](#learn)
+
+Here are 4 things to talk about in your daily vlog:
+
+## What are you watching/reading?
+
+ If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
+
+By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -532,88 +607,9 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-## Snapshots of Your Day
-
- Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
-
-Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
-
-## Whatever You Need to Get Out
-
-_Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
-
- Ranting about people you know can get messy when people from your offline life see it, so maybe avoid that. However, if you’re angry about something in general – or really happy about something – then whatever it is you’re feeling strongly about is probably the thing you should be vlogging about.
-
-It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
-
-Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
-
-## What did you learn today?
-
- _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
-
- You learn something new every day, right? Why not share that factoid with your viewers. Here a few facts to get you started:
-
- Whales evolved from a land-based animal called a pakicetus.
-
-The hagfish hunt by swimming into the mouth of a larger fish and eating it from the inside.
-
-Crows live in family units, visit their aging parents, and have funerals for dead crows.
-
-The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, starve, and end up as fertilizer).
-
-Sea monkeys can survive in space.
-
-## EVERYTHING
-
-You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
-
-## Customize Your Vlog Stories with Powerful Video Editor
-
-[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-**We’ve got a new eBook out!**
-
-It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Oct 26, 2023• Proven solutions
-
-[0](#commentsBoxSeoTemplate)
-
-Every genre on YouTube has its own unique challenges, but **daily vlogging** is probably the hardest thing you could take on. Firstly because it means you have to do all the work of shooting and editing every day and secondly because it means you need to have something to talk about every single day. Even vlogging once or twice a week is tough.
-
-How do you know [what you should talk about in your vlog](https://tools.techidaily.com/wondershare/filmora/download/)? Some people are so comfortable in front of the camera they can just turn it on and start talking about whatever’s on their mind, but they’re in the minority.
-
-Before starting your daily vlogging, you have to figure out one important thing ahead of time.
-
-## Do you have a niche?
-
-  You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
-
-The other reason it’s good to have a niche is that you’ll be able to use keywords related to that niche in your video titles and tags. It’s hard to make it with a vlogging channel because nobody is searching for your content unless you are covering a specific topic like the technology they want to hear about.
-
-* [What are you watching/reading?](#watching)
-* [Snapshots of Your Day](#snapshots)
-* [Whatever You Need to Get Out](#get-out)
-* [What did you learn today?](#learn)
-
-Here are 4 things to talk about in your daily vlog:
-
-## What are you watching/reading?
-
- If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
-
-By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -662,7 +658,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -683,10 +679,6 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -700,15 +692,15 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -742,9 +734,17 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
@@ -777,18 +777,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-asmr-mastery-in-action-strategies-for-dynamic-and-effective-videos/"><u>[New] 2024 Approved ASMR Mastery in Action Strategies for Dynamic and Effective Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-efficiently-isolate-key-moments-in-youtube-footage-for-2024/"><u>[New] Efficiently Isolate Key Moments in YouTube Footage for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earning-in-the-e-commerce-arena-via-engaging-reviews/"><u>[New] In 2024, Earning in the E-Commerce Arena via Engaging Reviews</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-youtube-views-leveraging-outro-content-partnerships/"><u>[Updated] In 2024, Enhance YouTube Views Leveraging Outro Content Partnerships</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-step-by-step-creating-timelapse-videos-with-ipad/"><u>[Updated] In 2024, Step-by-Step Creating Timelapse Videos with iPad</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-copyright-concerns-for-recording-screens/"><u>2024 Approved YouTube Copyright Concerns for Recording Screens</u></a></li>
-<li><a href="https://common-error.techidaily.com/event-id-1000-explained-resolving-issues-in-windows-7-8-and-10-platforms/"><u>Event ID 1000 Explained: Resolving Issues in Windows 7, 8 & 10 Platforms</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-apple-iphone-15-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From Apple iPhone 15 in the Best Ways</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/oneplus-9-pro-assessment-flawless-aesthetics-fast-processing-and-superior-camera-features/"><u>OnePlus 9 Pro Assessment: Flawless Aesthetics, Fast Processing & Superior Camera Features</u></a></li>
-<li><a href="https://article-helps.techidaily.com/prime-engagement-hook-generator/"><u>Prime Engagement Hook Generator</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-vivo-y55s-5g-2023-by-drfone-android/"><u>Three Ways to Sim Unlock Vivo Y55s 5G (2023)</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/0-no-cost-youtube-sbd-tools/"><u>Top 10 No-Cost YouTube SBD Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-emotional-depth-in-self-narrated-videos-yt-for-2024/"><u>Unlocking Emotional Depth in Self-Narrated Videos YT for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-android-and-ios-top-asmr-audio-picks/"><u>[New] 2024 Approved Android and iOS Top ASMR Audio Picks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-aural-archive-download-preserve-and-examine-tracks/"><u>[New] 2024 Approved Aural Archive Download, Preserve & Examine Tracks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-essential-tips-for-effective-instagram-video-conversations-for-2024/"><u>[New] Essential Tips for Effective Instagram Video Conversations for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-audiovisual-improvement-voice-changing-apps-reviewed/"><u>[New] In 2024, Audiovisual Improvement Voice Changing Apps Reviewed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-introduction-mastering-zoom-sessions-split/"><u>[New] In 2024, Introduction Mastering Zoom Sessions Split</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-thriving-in-the-world-of-youtube-content-creation/"><u>[New] Thriving in the World of YouTube Content Creation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-1-5-best-url-trimmer-tools-for-youtube-videos/"><u>[Updated] 2024 Approved 1-5 Best URL Trimmer Tools for YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expertise-unleashed-professional-insights-into-video-editing/"><u>[Updated] Expertise Unleashed Professional Insights Into Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-a-path-to-profit-calculating-video-view-requirements/"><u>[Updated] In 2024, Charting a Path to Profit Calculating Video View Requirements</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-premium-selection-top-free-youtube-transcript-apps/"><u>[Updated] Premium Selection Top Free YouTube Transcript Apps</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-lava-blaze-2-pro-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Lava Blaze 2 Pro Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor Magic 6? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-unlock-stunning-transitions-top-10-premiere-pro-plugins/"><u>In 2024, Unlock Stunning Transitions Top 10 Premiere Pro Plugins</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-camera-showdown-pixel-9proxl-outshines-iphone-15pro-in-latest-review-with-surprising-results-exclusive-zdnet-coverage/"><u>Ultimate Camera Showdown: Pixel #9ProXL Outshines iPhone #15Pro in Latest Review with Surprising Results | Exclusive ZDNet Coverage</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/unveiling-perks-of-digital-assets-a-dive-into-the-impactful-world-of-cryptocurrencies-by-yl-software/"><u>Unveiling Perks of Digital Assets: A Dive Into the Impactful World of Cryptocurrencies by YL Software</u></a></li>
 </ul></div>
 

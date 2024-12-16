@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Networking Haven  Beyond VidCon\""
-date: 2024-12-02T18:05:06.865Z
-updated: 2024-12-09T23:28:03.470Z
+date: 2024-12-09T03:51:36.178Z
+updated: 2024-12-16T00:23:43.826Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
@@ -45,6 +45,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -55,10 +59,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -87,6 +87,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -121,10 +125,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -161,10 +161,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -205,7 +201,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
@@ -232,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -247,20 +247,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-create-magic-download-premium-soundscapes-now-for-2024/"><u>[New] Create Magic Download Premium Soundscapes Now for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-top-5-ps1-games-emulators-resurrecting-console-legends-on-pc/"><u>[New] In 2024, Top 5 PS1 Games Emulators - Resurrecting Console Legends on PC</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-swift-video-voyage-navigating-through-the-youtubes-and-tiktok-landscapes/"><u>[New] The Swift Video Voyage Navigating Through the YouTubes and TikTok Landscapes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-youtuber-revolutionary-jake-pauls-content-conquest/"><u>[New] The YouTuber Revolutionary Jake Paul's Content Conquest</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-build-stellar-youtube-beginnings-on-a-shoestring-budget/"><u>[Updated] 2024 Approved Build Stellar YouTube Beginnings on a Shoestring Budget</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-your-videos-popularity-on-youtube/"><u>[Updated] In 2024, Boost Your Video's Popularity on YouTube</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-igniting-interest-how-to-elevate-your-instagram-contents-impact/"><u>[Updated] In 2024, Igniting Interest How to Elevate Your Instagram Content's Impact</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-revamp-your-workflow-with-top-watermarkers/"><u>[Updated] Revamp Your Workflow with Top Watermarkers</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-experts-guide-to-interactive-instagram-stories-polling/"><u>[Updated] The Expert's Guide to Interactive Instagram Stories Polling</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-rip-and-convert-a-step-by-step-guide-to-digitizing-your-dvds/"><u>2024 Approved Rip & Convert A Step-by-Step Guide to Digitizing Your DVDs</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/honor-90-support-turn-off-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Honor 90 support - Turn Off Screen Lock.</u></a></li>
-<li><a href="https://fox-where.techidaily.com/the-complete-walkthrough-of-managing-acer-recoveries-in-windows-11-environments/"><u>The Complete Walkthrough of Managing Acer Recoveries in Windows 11 Environments</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-ranking-top-10-timeless-disney-pixar-masterpieces/"><u>The Ultimate Ranking: Top 10 Timeless Disney Pixar Masterpieces</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/uncovering-your-individual-playlist-sanctuary-on-youtube-for-2024/"><u>Uncovering Your Individual Playlist Sanctuary on Youtube for 2024</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-do-you-want-to-use-luts-in-final-cut-pro-there-are-many-free-luts-for-fcpx-available-that-you-can-use-using-luts-you-can-create-profes/"><u>Updated 2024 Approved Do You Want to Use LUTs in Final Cut Pro? There Are Many Free LUTs for FCPX Available that You Can Use. Using LUTs, You Can Create Professional-Looking Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-bite-sized-video-knowledge-now/"><u>[New] Bite-Sized Video Knowledge Now!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-captivating-content-with-a-click-phones-and-youtube-for-2024/"><u>[New] Captivating Content with a Click Phones & YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-cutting-edge-tools-to-make-your-fb-cover-photo-stand-out-for-2024/"><u>[New] Cutting-Edge Tools to Make Your FB Cover Photo Stand Out for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehensive-directory-of-inexpensive-stock-images/"><u>[New] In 2024, Comprehensive Directory of Inexpensive Stock Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-experience-the-power-of-visuals-discover-all-50-banners-in-our-digital-collection/"><u>[New] In 2024, Experience the Power of Visuals Discover All 50 Banners in Our Digital Collection</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtube-studios-comprehensive-guide-to-video-post-production/"><u>[New] YouTube Studio's Comprehensive Guide to Video Post Production</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-audio-integration-into-visual-screens-via-apple-for-2024/"><u>[Updated] Audio Integration Into Visual Screens via Apple for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-11-free-youtube-video-rippers-to-download-youtube-videos/"><u>[Updated] In 2024, 11 FREE YouTube Video Rippers to Download YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-conquer-massive-content-views-on-youtube-efficiently/"><u>[Updated] In 2024, Conquer Massive Content Views on YouTube Efficiently</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-your-youtube-reach-with-famebit-ad-sponsorships/"><u>[Updated] In 2024, Enhancing Your YouTube Reach with FameBit Ad Sponsorships</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-knowledge-for-youtubes-minute-melodies-for-2024/"><u>Essential Knowledge for YouTube's Minute Melodies for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/gaming-retro-building-pc-a-dual-focus/"><u>Gaming Retro, Building PC – A Dual Focus</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-merge-duplicate-photographs-featuring-identical-subjects-a-guide-for-iphone-and-mac-users/"><u>How to Merge Duplicate Photographs Featuring Identical Subjects: A Guide for iPhone and Mac Users</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-fiscal-picture-for-content-makers-on-youtube-shorts-platform-for-2024/"><u>The Fiscal Picture for Content Makers on YouTube Shorts Platform for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-new-era-of-economical-tablets-how-the-apple-ipad-102-outshines-its-predecessors/"><u>The New Era of Economical Tablets: How the Apple iPad 10.2 Outshines Its Predecessors</u></a></li>
 </ul></div>
 

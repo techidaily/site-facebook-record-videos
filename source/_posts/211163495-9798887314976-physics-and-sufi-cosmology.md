@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2024-12-06T17:37:54.651Z
-updated: 2024-12-09T19:53:32.813Z
+date: 2024-12-12T02:50:42.448Z
+updated: 2024-12-16T00:59:32.873Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,22 +175,18 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-eyecatch-protector-cam-cover/"><u>[New] Eyecatch Protector Cam Cover</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-leading-7-android-apps-to-cut-out-intrusive-ads/"><u>[New] The Leading 7 Android Apps to Cut Out Intrusive Ads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-content-top-8-no-cost-video-editing-software-for-2024/"><u>[Updated] Elevate Your Content Top 8 No-Cost Video Editing Software for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>[Updated] In 2024, A Compreayer's Guide to Monetizing Videos Critical View Figures</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-video-flair-advanced-techniques-in-youtube-studio-editor/"><u>[Updated] In 2024, Elevate Video Flair Advanced Techniques in YouTube Studio Editor</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-snippets-overview-explained/"><u>[Updated] YouTube Snippets Overview Explained</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/determining-peak-listener-engagement-days/"><u>Determining Peak Listener Engagement Days</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-xiaomi-civi-3-disney-100th-anniversary-edition-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Xiaomi Civi 3 Disney 100th Anniversary Edition Through Google Earth?</u></a></li>
-<li><a href="https://win-superb.techidaily.com/identifying-factors-contributing-to-extended-system-startup-times-insights-by-yl-computing/"><u>Identifying Factors Contributing to Extended System Startup Times - Insights by YL Computing</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-the-financials-of-youtube-marketing/"><u>In 2024, Exploring the Financials of YouTube Marketing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-revenue-per-million-viewer-count/"><u>In 2024, Youtube Revenue Per Million Viewer Count</u></a></li>
-<li><a href="https://techtrends.techidaily.com/iphone-17-launch-details-unveiled-price-forecasts-release-timeline-and-feature-leaks/"><u>IPhone 17 Launch Details Unveiled: Price Forecasts, Release Timeline & Feature Leaks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-guides-to-the-top-10-student-focused-history-vlogs/"><u>[New] In 2024, Essential Guides to the Top 10 Student-Focused History Vlogs</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-authenticity-on-instagrams-platform/"><u>[Updated] 2024 Approved Mastering Authenticity on Instagram's Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-avoid-and-reverse-strikes-on-your-youtube-account-for-2024/"><u>[Updated] How to Avoid and Reverse Strikes on Your YouTube Account for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieving-success-in-your-youtube-endeavours-a-step-by-step-blueprint/"><u>[Updated] In 2024, Achieving Success in Your YouTube Endeavours A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/s-most-popular-video-resume-builders-templates-and-tools-inside-for-2024/"><u>S Most Popular Video Resume Builders Templates and Tools Inside for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solutions-to-microphone-issues-with-xbox-app-on-pc/"><u>Solutions to Microphone Issues with Xbox App on PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/spin-the-wheel-of-viewers-how-to-stream-round-the-clock-videos-on-youtube-for-2024/"><u>Spin the Wheel of Viewers How to Stream Round-the-Clock Videos on YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnb-in-your-feeds-facebook-twitter-join-forces/"><u>WNB in Your Feeds: Facebook, Twitter Join Forces</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

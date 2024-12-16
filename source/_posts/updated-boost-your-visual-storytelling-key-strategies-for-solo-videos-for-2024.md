@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos for 2024\""
-date: 2024-12-04T16:57:43.401Z
-updated: 2024-12-09T22:11:55.308Z
+date: 2024-12-13T16:27:31.205Z
+updated: 2024-12-15T16:12:39.368Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
@@ -42,14 +42,10 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -79,6 +75,10 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -86,6 +86,10 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -110,14 +114,10 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,18 +134,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-evaluating-youtubes-monthly-creator-payments/"><u>[New] 2024 Approved Evaluating YouTube's Monthly Creator Payments</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-channel-success-story-turning-budget-into-brands-for-2024/"><u>[New] Channel Success Story Turning Budget Into Brands for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-choosing-between-bandicam-and-camtasia-for-video-capture-for-2024/"><u>[New] Choosing Between Bandicam and Camtasia for Video Capture for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies/"><u>[New] In 2024, Cultivating a Sustainable Advertising Ecosystem FameBit’s Strategies</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-gain-an-edge-access-these-top-8-sites-for-free-eco-screen-backdrops-and-clips/"><u>[Updated] In 2024, Gain an Edge - Access These Top 8 Sites for FREE Eco-Screen Backdrops and Clips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mcb-video-graphics-pack-for-youtube-channels/"><u>[Updated] MCB Video Graphics Pack for YouTube Channels</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-stream-wars-fb-live-youtube-live-and-twitters-periscope-face-off/"><u>[Updated] The Stream Wars FB Live, YouTube Live, and Twitter's Periscope Face-Off</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/brother-cdw-duo-fan-setup-instructions/"><u>Brother CDW Duo Fan Setup Instructions</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ations-first-what-to-invest-in-for-youtubing/"><u>Foundations First What To Invest In for YouTubing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/peering-into-the-digital-universe-what-is-vr-in-2024/"><u>Peering Into the Digital Universe What Is VR, In 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/photo-8-estrella-remediacion-en-windows-como-solicitar-y-descargar-el-programa-corrector-de-fotos/"><u>Photo 8 Estrella Remediación en Windows - Cómo Solicitar Y Descargar El Programa Corrector De Fotos</u></a></li>
-<li><a href="https://win-able.techidaily.com/stop-football-manager-2019-from-crashing-with-these-effective-troubleshooting-tips/"><u>Stop Football Manager 2019 From Crashing with These Effective Troubleshooting Tips</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-10-asmr-apps-on-smart-devices-for-2024/"><u>Top 10 ASMR Apps on Smart Devices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] 2024 Approved 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-6-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate-for-2024/"><u>[New] 6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-social-integration-twitter-and-facebook-connections-for-2024/"><u>[New] Seamless Social Integration Twitter & Facebook Connections for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-crafting-an-apple-powered-athletic-broadcast-platform/"><u>[Updated] Crafting an Apple-Powered Athletic Broadcast Platform</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-compelling-short-videos-for-youtube-a-top-10-list-for-2024/"><u>[Updated] Crafting Compelling Short Videos for YouTube - A Top 10 List for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enjoy-9-complete-uncut-holiday-cine-classics-for-no-cost-in-2024/"><u>[Updated] Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-video-sharing-triad-vimeo-vs-youtube-and-dailymotion-showdown/"><u>[Updated] The Video Sharing Triad Vimeo vs YouTube & Dailymotion Showdown</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-5-gps-tools-every-iphone-user-should-download-today/"><u>Essential 5 GPS Tools Every iPhone User Should Download Today</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/gain-unlimited-youtube-streaming-on-kodi-using-freshly-generated-api-keys/"><u>Gain Unlimited YouTube Streaming on Kodi Using Freshly Generated API Keys</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-transform-your-snaps-into-art-with-snapseed-basics/"><u>In 2024, Transform Your Snaps Into Art with Snapseed Basics</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/leveraging-ai-assistance-how-chatgpt-transforms-personal-training-program-development/"><u>Leveraging AI Assistance: How ChatGPT Transforms Personal Training Program Development</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-the-leading-smart-glasses-innovations-for-2e-year-2024/"><u>Ultimate Guide: The Leading Smart Glasses Innovations for 2E Year 2024</u></a></li>
 </ul></div>
 

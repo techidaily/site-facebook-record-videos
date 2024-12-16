@@ -1,7 +1,7 @@
 ---
 title: "Solution Strategies: When Google Chrome Refuses to Open Up"
-date: 2024-12-05T21:34:14.374Z
-updated: 2024-12-09T18:27:05.865Z
+date: 2024-12-14T02:15:06.079Z
+updated: 2024-12-15T17:45:35.305Z
 tags:
   - win11
   - win10
@@ -21,6 +21,10 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 
  💗If you like this post, please enter **DRIVEREASY** in the SUPPORT A CREATOR section to support us! Much Love!💗
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Minimum system requirements for Fortnite
 
 | **Operating System** | **Windows 10/8/7**  |
@@ -33,7 +37,7 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **DirectX**          | **DirectX 11.0**    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Recommended system requirements for Fortnite
@@ -46,6 +50,10 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **Processor**        | **Core i5 2.8 Ghz**                                          |
 | **HDD Space**        | **20 GB**                                                    |
 | **DirectX**          | **DirectX 11.0**                                             |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -79,10 +87,6 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method: Update your graphics card
 
  The Fortnite black screen problem may occur when your graphics card driver is outdated or faulty. Upgrading your graphics card will help you prevent black screen problem from happening. In addition to solving the black screen issue, updating drivers can also improve your computer performance and give you less hassle when playing games.
@@ -114,8 +118,16 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update** button next to the driver to automatically download and install the correct version of this driver (you can do this with Free version). Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Reboot your computer and run Fortnite to check the black screen issue will appear or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ---
 
@@ -135,13 +147,13 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display.jpg)
 2. In the Display tab, find Scale and layout.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 3. Change the scaling limit.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display1.jpg)
 4. Reboot Fortnite and check whether this problem is resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 6: Unblock the game from Windows Firewall
 
@@ -151,24 +163,12 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall0.jpg)
 2. Click**Allow an app through firewall** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall.jpg)
 3. Find Fortnite and check whether it has been blocked or not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 4. Click**Change Settings** if it does and check all the boxes to enable the app through the firewall.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall-1.jpg)
 5. Reboot Fortnite and check whether this problem is resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -193,22 +193,14 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-12-cutting-edge-flip-screen-cams-for-video-content/"><u>[New] 2024 Approved Discover 12 Cutting-Edge Flip-Screen Cams for Video Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dream-weavers-the-marvel-interactive-sculptors/"><u>[New] 2024 Approved Dream Weavers The Marvel Interactive Sculptors</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-engage-viewers-with-an-effortless-youtube-animated-subscribe-button-using-filmora/"><u>[New] 2024 Approved Engage Viewers with an Effortless YouTube Animated Subscribe Button Using Filmora</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-essential-list-of-free-rippers-for-video-conversion-for-2024/"><u>[New] Essential List of Free Rippers For Video Conversion for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-encyclopedia-of-hand-centered-interaction-systems/"><u>[New] In 2024, The Encyclopedia of Hand-Centered Interaction Systems</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-video-captioning-on-youtube/"><u>[New] Mastering Video Captioning on YouTube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-prime-choices-of-affordable-cameras-with-full-hd-for-2024/"><u>[New] Prime Choices of Affordable Cameras with Full HD for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-new-wave-of-youtube-branding-best-titles-for-vloggers-and-filmmakers-keep-it-under-or-at-156-characters/"><u>[New] The New Wave of YouTube Branding Best Titles for Vloggers & Filmmakers (Keep It Under or at 156 Characters)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-honor-roll-play-button-and-follower-awards-for-2024/"><u>[Updated] Channel Honor Roll - Play Button & Follower Awards for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-discover-free-and-paid-luts-for-profound-canon-camera-effects/"><u>[Updated] In 2024, Discover Free & Paid LUTs for Profound Canon Camera Effects</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-ice-prowess-unleashed-2022-olympics-sprinting-spectacles/"><u>[Updated] In 2024, Ice Prowess Unleashed 2022 Olympics Sprinting Spectacles</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-tailor-your-devices-alerts-with-custom-android-sounds/"><u>2024 Approved Tailor Your Device's Alerts with Custom Android Sounds</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/from-typist-to-writer-empower-your-workflow-with-microsofts-gpt/"><u>From Typist to Writer: Empower Your Workflow with Microsoft's GPT</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-essential-review-best-dynamic-capture-devices/"><u>In 2024, Essential Review Best Dynamic Capture Devices</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-digital-dimension-state-of-the-art-vr-for-2024/"><u>The Digital Dimension State-of-the-Art VR for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-essential-camera-toolkit-for-yt-enthusiasts-for-2024/"><u>The Essential Camera Toolkit for YT Enthusiasts for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1124130-9781618520296-travelers/"><u>Travelers | Free Book</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-your-yt-summary-top-notch-template-guides-for-2024/"><u>[New] Enhance Your YT Summary Top-Notch Template Guides for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-instagram-story-expertise-your-ultimate-resource/"><u>[New] In 2024, Instagram Story Expertise Your Ultimate Resource</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-achieving-perfect-soundscape-essential-equipment-guide-for-podcasters/"><u>[Updated] 2024 Approved Achieving Perfect Soundscape Essential Equipment Guide for Podcasters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effortless-way-to-personalize-your-youtube-channel-url/"><u>[Updated] 2024 Approved Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-converting-youtube-broadcasts-into-listenable-formats-for-2024/"><u>[Updated] Converting YouTube Broadcasts Into Listenable Formats for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-inside-track-to-superior-srt-upgrades/"><u>In 2024, Inside Track to Superior SRT Upgrades</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-in-depth-technique-for-formulating-youtube-playlists-for-2024/"><u>The In-Depth Technique for Formulating YouTube Playlists for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-picks-heartwarming-childrens-christmas-films/"><u>Top Picks: Heartwarming Children's Christmas Films</u></a></li>
+<li><a href="https://win-superb.techidaily.com/unraveling-the-mystery-why-might-a-samsung-ssd-remain-undetected-by-your-systems-bios/"><u>Unraveling the Mystery: Why Might a Samsung SSD Remain Undetected by Your System's BIOS?</u></a></li>
 </ul></div>
 
