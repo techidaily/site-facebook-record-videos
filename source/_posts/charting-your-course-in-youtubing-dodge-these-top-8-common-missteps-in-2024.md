@@ -1,7 +1,7 @@
 ---
 title: "\"Charting Your Course in YouTubing  Dodge These Top 8 Common Missteps, In 2024\""
-date: 2024-07-31T03:01:19.893Z
-updated: 2024-08-01T03:01:19.893Z
+date: 2024-12-21T17:52:24.849Z
+updated: 2024-12-24T18:23:07.203Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/7bb5cd6c098dcc354a1616a8cf729a503ba552ba0
 
 # 8 Mistakes People Should Avoid as a New YouTuber
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,16 +28,14 @@ thumbnail: https://thmb.techidaily.com/7bb5cd6c098dcc354a1616a8cf729a503ba552ba0
 
 In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I learned from those mistakes and have helped many new YouTubers start their own channels. Here is a list of eight common mistakes that new YouTubers should avoid, along with tips to do things in a better way.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
 ###  
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -53,9 +48,6 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -64,11 +56,19 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -78,15 +78,16 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -101,10 +102,11 @@ But rather than leaving interesting comments that are related to the video, rath
 
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,12 +114,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-7-apps-for-high-quality-youtube-live-streaming-on-iphones-and-android/"><u>[New] 2024 Approved Essential 7 Apps for High-Quality YouTube Live Streaming on iPhones & Android</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-top-15-innovative-tiktok-challenges-unveiled/"><u>[New] 2024 Approved Top 15 Innovative TikTok Challenges Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-practices-for-adding-content-enhancements-cards-for-2024/"><u>[New] Best Practices for Adding Content Enhancements (Cards) for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-comparing-googles-flat-cube-and-samsungs-headset/"><u>[New] Comparing Google's Flat Cube and Samsung's Headset</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-3d-toolkit-creating-engaging-video-beginnings-for-2024/"><u>[New] Essential 3D Toolkit Creating Engaging Video Beginnings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-expert-tips-for-post-upload-video-improvement-for-2024/"><u>[New] Expert Tips for Post-Upload Video Improvement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-confidence-against-youtube-critiques/"><u>[New] In 2024, Building Confidence Against YouTube Critiques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-charting-the-peak-1-shorter-videos-downloader-hub/"><u>[New] In 2024, Charting the Peak #1 Shorter Videos Downloader Hub</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-can-instant-subscription-lead-to-higher-watch-time/"><u>[Updated] 2024 Approved Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-efficiency-at-play-reducing-youtube-video-length/"><u>[Updated] 2024 Approved Efficiency at Play Reducing YouTube Video Length</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-gain-ground-on-social-media-leaders-with-insta-growth-tips/"><u>[Updated] Gain Ground on Social Media Leaders with Insta-Growth Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-earnings-estimator-tools/"><u>[Updated] YouTube Earnings Estimator Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/from-novice-to-pro-creating-metaverse-laughter/"><u>From Novice to Pro Creating Metaverse Laughter</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-apple-could-outshine-microsoft-and-googles-ai-strategies-with-bold-moves-at-wwdc-2023-expert-insights/"><u>How Apple Could Outshine Microsoft & Google's AI Strategies with Bold Moves at WWDC 2023: Expert Insights</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-google-pixel-8-phone-by-drfone-android/"><u>How to Reset a Locked Google Pixel 8 Phone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-lava-yuva-3-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-infinix-note-30i-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Infinix Note 30i Phone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-choice-mini-gaming-computers-a-buyers-guide/"><u>Top Choice Mini Gaming Computers: A Buyer's Guide</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/troubleshooting-guide-solutions-for-photos-library-unavailable-errors/"><u>Troubleshooting Guide: Solutions for 'Photos Library Unavailable' Errors</u></a></li>
+</ul></div>
 

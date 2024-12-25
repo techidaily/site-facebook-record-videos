@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Strategies for Dominant Click-Through Rates in YouTube Advertising\""
-date: 2024-07-31T03:05:28.061Z
-updated: 2024-08-01T03:05:28.061Z
+date: 2024-12-17T21:42:29.325Z
+updated: 2024-12-24T22:16:11.981Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/830a114fa27984f8d212144f3dee11f785f5b8b66
 
 # The Ultimate Guide to Effective YouTube Banners
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -38,6 +35,10 @@ Channel art isn't hard. Making video viewers enjoy enough that they click on you
 3. [Free Channel Art Makers](#makers)
 4. [How to Make Good Channel Art](#tips)
 5. [Channel Art Inspiration](#inspiration)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **YouTube Banner Size and Other Basics**
 
@@ -57,12 +58,13 @@ Mobile phones show an area that's 1546 x 423px. This size is also the smallest p
 
 Here's a visual guide to channel art dimensions:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![channel-art-cheat-sheet](https://images.wondershare.com/filmora/channel-art-cheat-sheet.jpg)
 
 Another important detail to consider is the size of your file. YouTube will allow your channel art to have a file size of up to 6MB, but no larger.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Free YouTube Banner Templates and Other Resources**
 
@@ -114,9 +116,6 @@ One thing you should watch for when using a background pattern is that text can 
 
 The patterns on the following two sites are free to use.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![free-youtube-banner-the-pattern-library](https://images.wondershare.com/filmora/free-youtube-banner-the-pattern-library.png)
 
 [**The Pattern Library:**](http://thepatternlibrary.com/) this truly is a library, and all the patterns were submitted by real graphic designers. When you first arrive on the site, all you'll see is a randomly selected pattern filling your entire screen. Hovering over the designer's name in the top left will allow you to download it for free.
@@ -125,10 +124,11 @@ Often, the download will not be as large as the image you see on the site. It wi
 
 You can use the navigation tools in the top right of the screen to see more patterns. Clicking the icon that looks like a bunch of squares will allow you to see multiple patterns at once.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![free-youtube-banner-hero-pattern](https://images.wondershare.com/filmora/free-youtube-banner-hero-pattern.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [**Hero Patterns:**](https://www.heropatterns.com/) the patterns on this site are editable before you download. You choose a foreground color, a background color, and the opacity of the design in the foreground. This means that you can make the pattern as subtle or vibrant as you want, which is a great thing to have control over when you're creating channel art.
 
@@ -149,8 +149,9 @@ Whatever program you use to build your channel art will already have a selection
 Once you've got an image or images, and maybe even a font you want to use in your banner, you can create your channel art in either a software like Photoshop or a free banner maker (anchor) like the ones below.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Free Channel Art Makers**
 
 You don't need an expensive program like Adobe Photoshop to make great channel art. There is a lot of photo editing and graphic design programs available for free online, and most of them are a lot easier to use.
@@ -171,10 +172,11 @@ Wondershare PixStudio is an all-in-one and powerful online graphic design maker 
 
 A major **benefit** of PixStudio is that it provides a feature to remove the image background, you can use the image more flexibility. One **drawback** is that the features will be used after payment of $7.99 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Wondershare PixStudio Banner Maker](https://images.wondershare.com/filmora/article-images/ultimate-guide-to-effective-youtube-banners.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [**Design Wizard**](https://www.designwizard.com/)
 
@@ -196,9 +198,6 @@ You can upload your own images to use in Fotor as well.
 
 A major **benefit** of Fotor is that it has a lot of genuinely free channel art templates you can customize, and one **drawback** is that it doesn't have as many stock photos.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Make Good Channel Art**
 
 Finding an image, cutting it to the right size, and uploading it to YouTube is easy, but how many of your favorite YouTubers use just an image for their channel art? Usually, there's at least a little text stating the name of the channel.
@@ -217,6 +216,10 @@ Here are some things you might want to include in your YouTube banner. Not all o
 6. A tagline
 
 ![ YouTube channel art layout](https://images.wondershare.com/filmora/article-images/youtube-channel-art-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Top 5 Tips for Making Great YouTube Banners**
 
@@ -287,9 +290,6 @@ However, for lots of YouTube niches, the channel art you make will be built arou
 
 **Minimalism**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![text-and-logo-minimalism](https://images.wondershare.com/filmora/text-and-logo-minimalism.jpg)
 
 This is an example of a minimalist YouTube banner. This style typically uses only 2 or 3 colors and features clean lines, simple backgrounds, and not a lot of noise. If you want to project a calm, tidy, balanced vibe on your channel, then you should consider going in a minimalist direction with your banner.
@@ -306,9 +306,6 @@ The great thing about the galaxy style is that it's cool and different, but it d
 
 **Funky**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![text-and-logo-Funky](https://images.wondershare.com/filmora/text-and-logo-Funky.jpg)
 
 There isn't really one 'funky' style. A funky banner is anything that's just a little off-beat but still makes sense while you're looking at it. They tend to be bright and cheerful and are perfect for anyone who considers themselves a bit quirky.
@@ -319,15 +316,16 @@ If you're looking for inspiration for a custom funky banner, go to your closet a
 
 ![/text-and-logo-comic](https://images.wondershare.com/filmora/text-and-logo-comic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A banner featuring an actual comic book character probably belongs to a channel that discusses comics, but the style itself is great for just about anyone. It's bold and communicates confidence. If your attitude towards YouTube is that you want to be fearless, why not go for something worthy of a superhuman?
 
 Do you have any of your own tips to share about YouTube banners?
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -338,12 +336,25 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-detailed-guide-youtubes-end-screens-explained/"><u>[New] In 2024, Detailed Guide YouTube's End Screens Explained</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissecting-youtubes-selection-of-trending-video-responses/"><u>[New] In 2024, Dissecting YouTube's Selection of Trending Video Responses</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-optimal-method-integrating-links-into-tiktok-bios/"><u>[Updated] In 2024, Optimal Method Integrating Links Into TikTok Bios</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-hashtag-combo-for-6-figure-youtube-traffic-surge/"><u>[Updated] Prime Hashtag Combo for 6-Figure Youtube Traffic Surge</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-rendering-reality-realistic-3d-text-effects/"><u>[Updated] Rendering Reality Realistic 3D Text Effects</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-master-video-transformation-a-complete-guide-to-rotating-in-vlc/"><u>2024 Approved Master Video Transformation A Complete Guide to Rotating in VLC</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/experience-the-power-of-sound-with-our-selection-of-the-15-best-movies-featuring-dolby-atmos-technology-at-home/"><u>Experience the Power of Sound with Our Selection of the 15 Best Movies Featuring Dolby Atmos Technology at Home</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/no-cost-sound-transformation-ultimate-10-youtube-tools-for-2024/"><u>No-Cost Sound Transformation Ultimate 10 YouTube Tools for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/put-and-play-mkv-movies-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Put and play MKV movies on Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://win11.techidaily.com/seamless-cyber-travel-mastering-connections-on-windows-pc/"><u>Seamless Cyber Travel: Mastering Connections on Windows PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/swift-switcheroo-rearranging-yt-lists-in-a-minute-for-2024/"><u>Swift Switcheroo Rearranging YT Lists in a Minute for 2024</u></a></li>
+</ul></div>
 

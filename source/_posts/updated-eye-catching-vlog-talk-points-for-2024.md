@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Eye-Catching Vlog Talk Points for 2024\""
-date: 2024-07-31T02:59:59.170Z
-updated: 2024-08-01T02:59:59.170Z
+date: 2024-12-18T18:22:42.433Z
+updated: 2024-12-24T22:30:16.565Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -51,11 +55,19 @@ Here are 4 things to talk about in your daily vlog:
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -67,9 +79,6 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -87,27 +96,25 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -116,30 +123,36 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Kitchen Kings & Queens: Crown Your Channel With a Name
 
 # 80+ Creative Cooking Channel Names to Attract More Audience
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-best-16-youtube-intro-makers-to-bring-you-more-views/"><u>[New] 2024 Approved Best 16 YouTube Intro Makers to Bring You More Views</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-embrace-serenity-the-10-best-online-yoga-masters-today-for-2024/"><u>[New] Embrace Serenity The 10 Best Online Yoga Masters Today for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-best-free-video-communication-apps-for-iphone-and-android-users/"><u>[New] In 2024, Best Free Video Communication Apps for iPhone & Android Users</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-insiders-selection-prime-vr-device-picks/"><u>[New] Insider's Selection Prime VR Device Picks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-subscriber-boost4-simplest-tricks-to-grow-your-channel/"><u>[New] YouTube Subscriber Boost–4 Simplest Tricks to Grow Your Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-direct-youtube-file-access-tips/"><u>[Updated] 2024 Approved Direct YouTube File Access Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-your-edits-in-depth-guide-to-high-quality-youtube-videos-for-2024/"><u>[Updated] Ace Your Edits In-Depth Guide to High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-fast-format-transformation-youtube-for-mac-ratio/"><u>[Updated] Fast Format Transformation YouTube for Mac Ratio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-guide-to-rearranging-your-youtube-collection/"><u>[Updated] Quick Guide to Rearranging Your YouTube Collection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rhythmic-revelations-top-15-vlogs-celebrating-music-creators-stories/"><u>[Updated] Rhythmic Revelations Top 15 Vlogs Celebrating Music Creators' Stories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-drones-deciphered-understanding-their-functions-and-designs/"><u>2024 Approved Drones Deciphered Understanding Their Functions & Designs</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comparing-neo-qled-and-oled-what-sets-them-apart/"><u>Comparing Neo QLED and OLED: What Sets Them Apart?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/prime-selection-of-screen-capture-software-for-gaming-for-2024/"><u>Prime Selection of Screen Capture Software for Gaming for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-strategies-for-successfully-saving-and-transforming-your-favorite-youtube-footage/"><u>Step-by-Step Strategies for Successfully Saving & Transforming Your Favorite YouTube Footage!</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-synchro-sound-creation-merging-audio-tracks-into-one-cohesive-file-for-2024/"><u>Updated Synchro-Sound Creation Merging Audio Tracks Into One Cohesive File for 2024</u></a></li>
+<li><a href="https://win-data.techidaily.com/windows-7-11-mp4/"><u>Windows 7-11 MP4視頻回復法：重獲已經被移除的影片</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubers-toolkit-essential-setup-guidelines-for-2024/"><u>Youtubers' Toolkit Essential Setup Guidelines for 2024</u></a></li>
+</ul></div>
 

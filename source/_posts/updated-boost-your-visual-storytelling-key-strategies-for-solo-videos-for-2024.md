@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos for 2024\""
-date: 2024-12-13T16:27:31.205Z
-updated: 2024-12-15T16:12:39.368Z
+date: 2024-12-17T20:37:09.526Z
+updated: 2024-12-24T17:56:56.268Z
 tags:
   - ai video
   - ai youtube
@@ -31,10 +31,6 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
@@ -42,7 +38,11 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -76,7 +76,7 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -88,7 +88,7 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -114,7 +114,7 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -134,17 +134,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-15-online-audio-haven-sites-for-video-content-makers/"><u>[New] 2024 Approved 15 Online Audio Haven Sites for Video Content Makers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-6-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate-for-2024/"><u>[New] 6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-seamless-social-integration-twitter-and-facebook-connections-for-2024/"><u>[New] Seamless Social Integration Twitter & Facebook Connections for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-crafting-an-apple-powered-athletic-broadcast-platform/"><u>[Updated] Crafting an Apple-Powered Athletic Broadcast Platform</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-compelling-short-videos-for-youtube-a-top-10-list-for-2024/"><u>[Updated] Crafting Compelling Short Videos for YouTube - A Top 10 List for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-enjoy-9-complete-uncut-holiday-cine-classics-for-no-cost-in-2024/"><u>[Updated] Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost, In 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-video-sharing-triad-vimeo-vs-youtube-and-dailymotion-showdown/"><u>[Updated] The Video Sharing Triad Vimeo vs YouTube & Dailymotion Showdown</u></a></li>
-<li><a href="https://techtrends.techidaily.com/essential-5-gps-tools-every-iphone-user-should-download-today/"><u>Essential 5 GPS Tools Every iPhone User Should Download Today</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/gain-unlimited-youtube-streaming-on-kodi-using-freshly-generated-api-keys/"><u>Gain Unlimited YouTube Streaming on Kodi Using Freshly Generated API Keys</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-transform-your-snaps-into-art-with-snapseed-basics/"><u>In 2024, Transform Your Snaps Into Art with Snapseed Basics</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/leveraging-ai-assistance-how-chatgpt-transforms-personal-training-program-development/"><u>Leveraging AI Assistance: How ChatGPT Transforms Personal Training Program Development</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-the-leading-smart-glasses-innovations-for-2e-year-2024/"><u>Ultimate Guide: The Leading Smart Glasses Innovations for 2E Year 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-assembling-channel-summaries-that-attract-for-2024/"><u>[New] Assembling Channel Summaries That Attract for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-10-applications-for-real-time-sporting-events-and-football-games/"><u>[New] Prime 10 Applications for Real-Time Sporting Events & Football Games</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-youtube-cpm-for-content-creators-success-for-2024/"><u>[Updated] Decoding YouTube CPM for Content Creators' Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-investigating-why-specific-youtube-remarks-get-prominence/"><u>[Updated] Investigating Why Specific YouTube Remarks Get Prominence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-jumpstart-to-partner-elevation-secure-10k-views-in-minutes/"><u>[Updated] Jumpstart to Partner Elevation Secure 10K Views in Minutes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rise-above-the-crowd-10-proven-techniques-for-video-standout/"><u>[Updated] Rise Above the Crowd 10 Proven Techniques for Video Standout</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-perfected-collage-making-blueprint/"><u>2024 Approved The Perfected Collage-Making Blueprint</u></a></li>
+<li><a href="https://win-able.techidaily.com/enhancing-performance-and-fps-in-tainted-grail-conquest-gameplay-guide/"><u>Enhancing Performance & FPS in Tainted Grail: Conquest Gameplay Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/essential-insights-on-choosing-superior-drone-batteries/"><u>Essential Insights on Choosing Superior Drone Batteries</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ning-youtubes-copyright-stance-versus-cc-approach/"><u>Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-vivo-s18-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on Vivo S18</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-12-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>How To Unlock Apple iPhone 12 Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-apples-ebook-reader-a-comprehensive-review/"><u>In-Depth Analysis: Apple's eBook Reader - A Comprehensive Review</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/no-cost-youtube-audio-tools-for-seamless-mp3-downloads-for-2024/"><u>No-Cost YouTube Audio Tools for Seamless MP3 Downloads for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/est-in-class-our-comprehensible-guide-to-top-12-vlogging-cameras/"><u>The Best in Class Our Comprehensible Guide to Top 12 Vlogging Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-20-asmr-youtubers-to-watch-for-2024/"><u>Top 20 ASMR Youtubers to Watch for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-your-creative-vision-with-youtubes-filmmaking-courses-for-2024/"><u>Unleash Your Creative Vision with YouTube's Filmmaking Courses for 2024</u></a></li>
 </ul></div>
 

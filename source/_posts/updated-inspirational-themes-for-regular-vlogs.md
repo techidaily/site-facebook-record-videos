@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Inspirational Themes for Regular Vlogs"
-date: 2024-12-13T21:09:55.613Z
-updated: 2024-12-15T23:13:24.991Z
+date: 2024-12-22T22:39:54.168Z
+updated: 2024-12-24T18:06:51.002Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,25 +49,21 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
 
@@ -92,7 +92,7 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -100,22 +100,22 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,16 +132,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-a-stronger-presence-with-effective-youtube-pairings/"><u>[New] In 2024, Building a Stronger Presence with Effective YouTube Pairings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-through-the-clutter-youtubes-copyright-evolution/"><u>[New] In 2024, Cutting Through the Clutter YouTube's Copyright Evolution</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-the-role-of-b2b-relationships-in-informed-market-decisions/"><u>[New] In 2024, The Role of B2B Relationships in Informed Market Decisions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>[Updated] In 2024, Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-viral-videos-for-higher-youtube-popularity/"><u>[Updated] Mastering The Art of Viral Videos for Higher YouTube Popularity</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-vanishing-acts-how-to-blur-faces-and-objects-online/"><u>[Updated] Vanishing Acts How to Blur Faces and Objects Online</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails-for-2024/"><u>From Dull to Delightful How To Craft Standout YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/ignored-yet-impactful-a-look-at-the-top-4-overlooked-tech-updates/"><u>Ignored Yet Impactful: A Look at the Top 4 Overlooked Tech Updates</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-fostering-resilience-in-the-face-of-cyber-haters/"><u>In 2024, Fostering Resilience in the Face of Cyber Haters</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-start-off-right-top-gear-for-aspiring-gopro-users/"><u>In 2024, Start Off Right Top Gear for Aspiring GoPro Users</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-benefits-why-choose-microsoft-copilot-over-chatgpt/"><u>Top Benefits: Why Choose Microsoft Copilot Over ChatGPT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[New] 2024 Approved Best 10 YouTube Volume Boosters for Windows, macOS, Android, and iPhone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[New] 2024 Approved Elevate Your Content A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-branding-excellence-integrating-watermarks-and-logos-into-video-media-for-2024/"><u>[New] Branding Excellence Integrating Watermarks and Logos Into Video Media for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elite-yoga-routines-youtubes-leading-fitness-sites/"><u>[New] In 2024, Elite Yoga Routines YouTube's Leading Fitness Sites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-conquering-the-fan-base-youtubes-pathway-to-more-followers/"><u>[Updated] 2024 Approved Conquering the Fan Base YouTube's Pathway to More Followers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-expert-guide-to-snagging-twitter-gifs-pc/"><u>[Updated] 2024 Approved Expert Guide to Snagging Twitter GIFs (PC)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-explore-the-finest-15-video-cameras-for-vlogging-success-for-2024/"><u>[Updated] Explore the Finest 15 Video Cameras for Vlogging Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-finding-prominent-comment-spotlights/"><u>[Updated] Finding Prominent Comment Spotlights</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-cutting-corners-not-with-quality-square-video-creation-techniques/"><u>[Updated] In 2024, Cutting Corners? Not with Quality Square Video Creation Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-perfect-phone-videos-your-diy-youtube-journey/"><u>[Updated] Perfect Phone Videos Your DIY YouTube Journey</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pinterest-video-downloader-guide-the-leading-no-cost-alternatives/"><u>[Updated] Pinterest Video Downloader Guide The Leading No-Cost Alternatives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-subscription-rate-monitoring-software/"><u>[Updated] Subscription Rate Monitoring Software</u></a></li>
+<li><a href="https://win-able.techidaily.com/fix-high-latency-in-valheim-optimizing-game-performance-on-windows-computers/"><u>Fix High Latency in Valheim: Optimizing Game Performance on Windows Computers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-characters-that-convert-ideal-story-strategies/"><u>In 2024, Characters That Convert Ideal Story Strategies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-revolutionize-your-content-harnessing-the-power-of-fb-lives/"><u>In 2024, Revolutionize Your Content Harnessing the Power of FB Lives</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208735921-keyboard-not-working-heres-how-you-can-fix-it-on-windows-11-7-or-8/"><u>Keyboard Not Working? Here's How You Can Fix It on Windows 11, 7, or 8!</u></a></li>
 </ul></div>
 

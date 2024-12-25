@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, 20 Essentials Every New Creator Should Own"
-date: 2024-07-31T03:01:29.552Z
-updated: 2024-08-01T03:01:29.552Z
+date: 2024-12-23T20:51:40.479Z
+updated: 2024-12-24T18:59:02.927Z
 tags:
   - ai video
   - ai youtube
@@ -39,8 +39,9 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Smartphone Camera Gear](#phone)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -54,8 +55,9 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -79,8 +81,9 @@ If you have the budget available to get some lighting equipment, you can find so
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -92,13 +95,11 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -113,10 +114,11 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -124,12 +126,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-optimal-hash-tags-for-youtube-success-story/"><u>[New] 2024 Approved Optimal Hash Tags for YouTube Success Story</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-content-game-with-these-5-proven-youtube-marketing-hacks-for-2024/"><u>[New] Elevate Your Content Game with These 5 Proven YouTube Marketing Hacks for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-average-income-for-popular-youtube-creators/"><u>[Updated] 2024 Approved Average Income for Popular YouTube Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-laughter-lab-top-7-sketches-and-vignettes-for-youtubers/"><u>[Updated] Laughter Lab Top 7 Sketches & Vignettes for YouTubers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-link-it-up-sharing-youtube-on-ig-snapshots/"><u>[Updated] Link It Up! Sharing YouTube on IG Snapshots</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-watch-deleted-youtube-secrets-to-accessing-lost-content/"><u>2024 Approved Watch Deleted YouTube Secrets to Accessing Lost Content</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-effortlessly-mirror-an-ipad-onto-roku-the-three-ultimate-techniques/"><u>How to Effortlessly Mirror an iPad Onto Roku: The Three Ultimate Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-nokia-g42-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Nokia G42 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-art-of-concluding-your-videos-powerfully/"><u>In 2024, The Art of Concluding Your Videos Powerfully</u></a></li>
+<li><a href="https://video-capture.techidaily.com/protected-dvd-burning-a-step-by-step-guide-for-free-and-effective-methods/"><u>Protected DVD Burning: A Step-by-Step Guide for Free & Effective Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-key-to-wealth-in-web-videos-view-count-imperative-for-2024/"><u>The Key to Wealth in Web Videos View Count Imperative for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-ideal-youtube-subset-of-viewers-for-2024/"><u>Unveiling the Ideal YouTube Subset of Viewers for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/vanguard-dialogues-how-gemini-meets-plus-gpt/"><u>Vanguard Dialogues: How Gemini Meets Plus-GPT</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Ugly Side of Digital Video Profits for 2024"
-date: 2024-07-31T03:03:54.486Z
-updated: 2024-08-01T03:03:54.486Z
+date: 2024-12-22T22:40:58.642Z
+updated: 2024-12-24T21:58:50.011Z
 tags:
   - ai video
   - ai youtube
@@ -37,8 +37,9 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 7. [Don't Give Up!](#dontquit)
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -50,12 +51,13 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 
  _Trying to get monetization on YouTube can feel like this._
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why YouTube Changed the Monetization Rules
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How Do the Changes Affect Small YouTube Channels
 
@@ -64,6 +66,10 @@ However, even if the immediate financial impact won’t be that financially sign
   That will be a question facing a lot of smaller YouTubers, especially those who have already reached 1,000 subscribers and are now in a situation where they have to maintain those 4,000 hours of watch time. You won't be cut off from monetization automatically if you fall from 4,000 hours to 3,500 hours one month (after already having monetized your channel), but YouTube may review your channel and remove monetization if time passes and you still haven't gotten back up to 4,000 hours.
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Join The Conversation
 
@@ -75,9 +81,6 @@ Cough. Logan Paul. Cough.
 
 ####  
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
@@ -85,8 +88,9 @@ Cough. Logan Paul. Cough.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -95,20 +99,17 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
 
 How do you get subscribers, or increase your watch time? If you have any tips, share them with everyone! Also, make sure to let us know if there are any blog topics that might help you out with YouTube's new monetization rules.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -116,12 +117,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-accessing-your-own-custom-designed-youtube-melodies-for-2024/"><u>[New] Accessing Your Own Custom-Designed Youtube Melodies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-10-amazing-world-wanderlust-channels-for-2024/"><u>[New] Discover 10 Amazing World Wanderlust Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-8-key-money-making-moves-for-youtube-rookies/"><u>[New] In 2024, 8 Key Money-Making Moves for YouTube Rookies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-dynamics-mastering-youtube-video-distribution-on-facebook/"><u>[Updated] 2024 Approved Digital Dynamics Mastering YouTube Video Distribution on Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-an-introductory-overview-using-ez-grabber-software/"><u>[Updated] An Introductory Overview Using EZ Grabber Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-traffic-with-effective-youtube-titles/"><u>[Updated] Maximizing Traffic with Effective YouTube Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-revolutionize-channel-wrapping-with-expert-templates-and-how-tos/"><u>[Updated] Revolutionize Channel Wrapping with Expert Templates & How-Tos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-thumbnail-scaling-techniques-for-youtube/"><u>[Updated] Thumbnail Scaling Techniques for YouTube</u></a></li>
+<li><a href="https://win-forum.techidaily.com/demystifying-the-social-media-giants-a-guide-to-facebook-twitter-instagram-and-youtube/"><u>Demystifying the Social Media Giants: A Guide to Facebook, Twitter, Instagram & Youtube</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discreet-data-transfer-embedding-zip-in-windows-image-files/"><u>Discreet Data Transfer: Embedding ZIP in Windows Image Files</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-free-asus-pce-ac68-wireless-network-adapter-drivers-here/"><u>Get Your Free ASUS PCE-AC68 Wireless Network Adapter Drivers Here</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-xiaomi-redmi-12-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Xiaomi Redmi 12 to iPad | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-update-your-acers-wi-fi-card-free-fast-driver-downloads-inside/"><u>How to Update Your Acer's Wi-Fi Card: Free, Fast Driver Downloads Inside!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-leading-video-call-options-safe-small-enterprises-guide/"><u>In 2024, Leading Video Call Options Safe Small Enterprises Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/step-by-step-guide-making-iphone-a-personal-gaming-center/"><u>Step-by-Step Guide: Making iPhone a Personal Gaming Center</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-expert-reviews-and-hardware-guides/"><u>Tom's Tech Insights: Expert Reviews & Hardware Guides</u></a></li>
+</ul></div>
 

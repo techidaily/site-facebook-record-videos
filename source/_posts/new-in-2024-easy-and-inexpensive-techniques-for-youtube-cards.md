@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Easy and Inexpensive Techniques for YouTube Cards"
-date: 2024-07-31T03:02:42.447Z
-updated: 2024-08-01T03:02:42.447Z
+date: 2024-12-22T17:55:45.098Z
+updated: 2024-12-24T22:34:56.426Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/919573cc608b6cdec882b8be060a2b2c2cf20857c
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/919573cc608b6cdec882b8be060a2b2c2cf20857c
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,12 +134,27 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-choosing-the-right-fps-30-or-60-which-is-better/"><u>[New] 2024 Approved Choosing the Right FPS 30 or 60, Which Is Better?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-tech-driven-transformation-the-upcoming-shifts-in-fb-advertising/"><u>[New] 2024 Approved Tech-Driven Transformation The Upcoming Shifts in FB Advertising</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-most-economical-tools-for-youtube-audio-conversion/"><u>[New] The Most Economical Tools for YouTube Audio Conversion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-captivate-audiences-with-effective-and-appealing-video-previews/"><u>[Updated] 2024 Approved Captivate Audiences with Effective and Appealing Video Previews</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-snicker-station-event-oriented-joke-repository/"><u>[Updated] 2024 Approved Snicker Station Event-Oriented Joke Repository</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-guide-to-incorited-visuals-in-text-without-cost/"><u>[Updated] In 2024, Guide to Incorited Visuals in Text Without Cost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-vr-dreamscapes-explore-the-best-on-youtube/"><u>2024 Approved VR Dreamscapes Explore the Best on Youtube</u></a></li>
+<li><a href="https://win-updates.techidaily.com/best-strategies-to-enjoy-animal-crossing-pocket-camp-the-pc-edition/"><u>Best Strategies to Enjoy Animal Crossing: Pocket Camp - The PC Edition</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comedic-craftsmanship-unlocking-gags-at-zero-cost/"><u>Comedic Craftsmanship Unlocking Gags at Zero Cost</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-vivo-g2-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Vivo G2 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-immersive-sound-listening-on-the-go-with-iphone/"><u>In 2024, Immersive Sound Listening on the Go With iPhone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/simplifying-your-stream-a-stepwise-approach-to-youtubes-watch-later-feature-for-2024/"><u>Simplifying Your Stream A Stepwise Approach to YouTube's Watch Later Feature for 2024</u></a></li>
+</ul></div>
 

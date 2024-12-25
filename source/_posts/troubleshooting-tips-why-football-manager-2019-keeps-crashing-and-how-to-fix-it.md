@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It"
-date: 2024-12-13T22:11:58.253Z
-updated: 2024-12-15T16:47:10.344Z
+date: 2024-12-17T16:45:28.770Z
+updated: 2024-12-24T23:04:24.518Z
 tags:
   - win11
   - win10
@@ -42,8 +42,16 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-1-8.jpg)
 3. Click the**Update** button next to the flagged graphics card driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-2-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -62,7 +70,7 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 3. Select**Local Files** and then click**Verify Integrity of Game Files** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-3-4.jpg)
@@ -96,10 +104,6 @@ If this method doesn’t help, go ahead with the next fix below.
 
 So does the crash go away now? If not, there is the last fix to try.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 5 – Set launch options
 
  If you receive a specific DXGI\_ERROR\_DEVICE error message or an application error, the Football Manager 2021 crashing issue is related to your graphics card. That’s especially true if you’re using Intel GPUs. And you can launch the game with lower graphics settings and see how it works.
@@ -109,27 +113,23 @@ So does the crash go away now? If not, there is the last fix to try.
 2. Right-click**Football Manager 2021** and click**Properties** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
 3. Click**Set Launch Options** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-1-3.jpg)
 4. Type**–config very\_low** in the text field and click**OK** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/5-2-4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Such setting may render FM 2021 in lower performance, but it will mitigate the crashing effectively.
@@ -159,20 +159,24 @@ So does the crash go away now? If not, there is the last fix to try.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-complete-how-to-embedding-srt-tracks-into-mp4-media-2024/"><u>[New] Complete How-To Embedding SRT Tracks Into MP4 Media 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-transformation-via-musical-additions/"><u>[New] In 2024, Channel Transformation via Musical Additions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-through-content-clutter-youtube-shorts-essentials/"><u>[New] In 2024, Cutting Through Content Clutter YouTube Shorts Essentials</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-visual-narratives-instagram-carousel/"><u>[New] Visual Narratives Instagram Carousel</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-creating-impactful-youtube-conclusion/"><u>[Updated] 2024 Approved Creating Impactful YouTube Conclusion</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-max-360-vs-hero-11-gopro-cameras-face-off/"><u>[Updated] 2024 Approved Max 360 Vs. Hero 11 - GoPro Cameras Face Off</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-beyond-flying-fun-in-depth-dji-phantom-4-examination/"><u>[Updated] In 2024, Beyond Flying Fun In-Depth DJI Phantom 4 Examination</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-insights-into-income-average-earnings-per-advertisement-playback/"><u>[Updated] Insights Into Income Average Earnings per Advertisement Playback?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ios-mastery-effortlessly-extracting-youtube-videos/"><u>[Updated] IOS Mastery Effortlessly Extracting Youtube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-understanding-youtubes-revenue-streams-for-creators/"><u>2024 Approved Understanding YouTube's Revenue Streams for Creators</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-photos-from-honor-100-by-fonelab-android-recover-photos/"><u>Best Android Data Recovery - Retrieve Lost Photos from Honor 100.</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-gaining-ground-on-the-groundswell-of-online-viewers/"><u>In 2024, Gaining Ground on the Groundswell of Online Viewers</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-top-5-samsung-galaxy-z-fold-5-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Samsung Galaxy Z Fold 5 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/resolve-your-apple-iphone-7-plus-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>Resolve Your Apple iPhone 7 Plus Keeps Asking for Outlook Password | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unraveling-mukbang-the-art-of-feast-filled-vlogs-for-2024/"><u>Unraveling Mukbang The Art of Feast-Filled Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-strategies-for-choosing-ideal-youtube-banner-dimensions/"><u>[New] 2024 Approved Expert Strategies for Choosing Ideal YouTube Banner Dimensions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-earning-potential-revenue-from-youtube-advertisements/"><u>[New] 2024 Approved Exploring Earning Potential Revenue From YouTube Advertisements?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[New] Closing Your Vlog Right Top 6 Free YouTube Outro Tools!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-youtube-video-editing-techniques-premiere-pro-for-2024/"><u>[New] Cutting Edge YouTube Video Editing Techniques - Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-free-high-quality-youtube-banner-samples-inside/"><u>[New] Free High-Quality YouTube Banner Samples Inside!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-7-insider-tips-to-make-money-quickly-on-youtube-shorts/"><u>[New] In 2024, 7 Insider Tips to Make Money Quickly on YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-affiliate-acquaintanceships-elevating-budget-channels-with-ease/"><u>[New] In 2024, Affiliate Acquaintanceships Elevating Budget Channels with Ease</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-filmmakers-ally-unlocking-youtube-studio-editor-secrets/"><u>[New] The Filmmaker's Ally Unlocking YouTube Studio Editor Secrets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-top-10-capture-cards-for-youtube/"><u>[New] The Top 10 Capture Cards for YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-advanced-8-visual-boosts-for-online-broadcasts/"><u>[Updated] Advanced 8 Visual Boosts for Online Broadcasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-how-to-reverse-video-playback-on-android-phones/"><u>[Updated] In 2024, How to Reverse Video Playback on Android Phones</u></a></li>
+<li><a href="https://some-tips.techidaily.com/abbyy-erweitert-das-ipa-okosystem-durch-das-neue-globale-one-partner-programm-einbindung-und-zusammenarbeit-fur-verbesserte-prozessautomatisierung/"><u>ABBYY Erweitert Das IPA-Ökosystem Durch Das Neue, Globale One Partner Programm: Einbindung Und Zusammenarbeit Für Verbesserte Prozessautomatisierung</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/comment-effacer-tous-les-donnees-et-reinitialiser-windows/"><u>Comment Effacer Tous Les Données Et Réinitialiser Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-rayman-legends-how-it-stands-up-as-a-premier-two-dimensional-platformer/"><u>Evaluating Rayman Legends: How It Stands Up as a Premier Two-Dimensional Platformer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-se-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone SE without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-13t-pro-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi 13T Pro Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/satirists-web-workshop-for-2024/"><u>Satirist's Web Workshop for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tackling-svchostexes-excessive-bandwidth-usage-a-comprehensive-guide/"><u>Tackling Svchost.exe's Excessive Bandwidth Usage: A Comprehensive Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/upcoming-samsung-galaxy-s25-ultra-unveiling-the-costs-launch-timeline-and-features/"><u>Upcoming Samsung Galaxy S25 Ultra - Unveiling the Costs, Launch Timeline & Features</u></a></li>
 </ul></div>
 

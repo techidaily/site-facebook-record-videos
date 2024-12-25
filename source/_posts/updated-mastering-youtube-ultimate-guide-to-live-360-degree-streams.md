@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering YouTube  Ultimate Guide to Live 360-Degree Streams\""
-date: 2024-07-31T03:05:17.654Z
-updated: 2024-08-01T03:05:17.654Z
+date: 2024-12-18T21:34:02.773Z
+updated: 2024-12-24T19:49:39.238Z
 tags:
   - ai video
   - ai youtube
@@ -28,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 * [Part2.Live Stream from Allie 360 Camera to YouTube on Mobile](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
 
 **Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
@@ -38,13 +39,14 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 ![ official website](https://images.wondershare.com/filmora/article-images/official-website.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Get your application and install it on your Mac or PC as per need.
 
 **Step 4:** It is time to plug in to your Ricoh Theta S 360 camera using your PC.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ Richoh Theta](https://images.wondershare.com/filmora/article-images/richoh-theta.jpg)
 
 **Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
@@ -53,9 +55,6 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 **Step 6:**  You will find option to register to application with your respective device. Select and hit register.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Click register ](https://images.wondershare.com/filmora/article-images/click-register.jpg)
 
 **Step 7:** As soon as your registration process is complete then un-plug your USB cable.
@@ -63,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 **Step 8:** It is time to turn the Ricoh Theta device to Live Mode; you simple need to press the top power and lower video button simultaneously to directly switch to the live mode.
 
 ![ bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
 
@@ -74,9 +77,6 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 **Step 12:** Go to create scene option and then switch to create sources.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![Create scene ](https://images.wondershare.com/filmora/article-images/create-scene.jpg)
 
 **Step 13:** Select video capture device as your source from drop down menu.
@@ -89,9 +89,6 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 **Step 15:** You need to adjust screen as per your requirements.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screen ](https://images.wondershare.com/filmora/article-images/screen.jpg)
 
 **Step 16:** Now move to YouTube and then hit New Live Events option.
@@ -100,23 +97,29 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 **Step 17:** Complete the basic information.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![basic info ](https://images.wondershare.com/filmora/article-images/basic-info.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 18:** You need to move to advanced settings now; select 360 live stream option and then create event.
 
 **Step 19:** Now complete the ingesting settings and finally select create new stream option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![new stream option ](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 20:** As soon as your event is created then you will be able to find your stream name on screen, copy it and simply paste it on OBS window.
 
 ![ingesting settings ](https://images.wondershare.com/filmora/article-images/ingesting-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 21:** It is time to return to OBS settings and then you need to paste that copied name on stream key option.
 
@@ -126,11 +129,16 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 ![stream key ](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![360 live ](https://images.wondershare.com/filmora/article-images/360-live.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
 
 **Step 1:** Get ready with your Allie 360 camera unit.
@@ -146,38 +154,26 @@ thumbnail: https://thmb.techidaily.com/bdaef56e02cc4aa00f3e70ad3df4b912e80b691b8
 
 ![air plane mode ](https://images.wondershare.com/filmora/article-images/air-plane-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Simply open your Allie application and then connect your camera.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![allie app ](https://images.wondershare.com/filmora/article-images/allie-app.jpg)
 
 **Step 6:** Now users need to hit stream icon on screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![  icon on ](https://images.wondershare.com/filmora/article-images/icon-on.jpg)
 
 **Step 7:** You will be asked to fill the necessary information about your video. It is also possible to make adjustments regarding video quality. Once you are done with all required settings then hit Submit option.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![click submit ](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
 
 **Step 8:** Soon your video will become live; note that you can also share your live video via SNS platform with other viewers.
 
 ![SNS platform ](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -186,12 +182,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-apex-chart-seeker-monitor-most-viewed-videos/"><u>[New] 2024 Approved Apex Chart Seeker Monitor Most Viewed Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-efficient-thumbnail-generation-with-your-phone-for-video-content/"><u>[New] 2024 Approved Efficient Thumbnail Generation with Your Phone for Video Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-the-best-free-youtube-video-editor-apps-for-android-for-2024/"><u>[New] Explore the Best Free YouTube Video Editor Apps for Android for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-building-blocks-for-successful-channel-branding-and-growth-for-2024/"><u>[Updated] Building Blocks for Successful Channel Branding and Growth for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-effortless-recording-of-netflix-a-step-by-step-guide/"><u>[Updated] Effortless Recording of Netflix A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-streams-using-youtubes-av1-settings-for-2024/"><u>[Updated] Elevate Streams Using YouTube's AV1 Settings for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-securely-archiving-your-google-voice-talks/"><u>[Updated] Securely Archiving Your Google Voice Talks</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-comprehensive-blueprint-to-youtube-banner-effectiveness/"><u>[Updated] The Comprehensive Blueprint to YouTube Banner Effectiveness</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-analyzing-audio-editing-tools-in-magix-producer-suite/"><u>2024 Approved Analyzing Audio Editing Tools in Magix Producer Suite</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/5lia55uu556t54s277yb5asx44kp44km44gf44ov44kh44kk44or44gu5lul5ymn44oq44o844k444on44oz44ks5ywd44gr5oi744gz5oml44gz44gn/"><u>一目瞭然！失われたファイルの以前バージョンを元に戻す手びき</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-issues-of-iphone-6s-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System Issues of iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-how-to-write-a-script-for-a-youtube-video/"><u>In 2024, How to Write a Script for a YouTube Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-virtual-vanguards-the-leading-ladies-of-gaming/"><u>In 2024, Virtual Vanguards The Leading Ladies of Gaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-filmmakers-roadmap-creating-youtube-trailers-using-filmora-for-2024/"><u>The Filmmaker's Roadmap Creating YouTube Trailers Using Filmora for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-troubleshooting-tips-rebooting-your-samsung-bar-for-optimal-audio-performance/"><u>Ultimate Troubleshooting Tips: Rebooting Your Samsung Bar for Optimal Audio Performance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-collabs-how-to-find-youtube-collaboration-partners-in-2024/"><u>YouTube Collabs How to Find YouTube Collaboration Partners, In 2024</u></a></li>
+</ul></div>
 

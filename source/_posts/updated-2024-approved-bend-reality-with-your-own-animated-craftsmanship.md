@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Bend Reality with Your Own Animated Craftsmanship\""
-date: 2024-07-31T03:03:58.482Z
-updated: 2024-08-01T03:03:58.482Z
+date: 2024-12-21T00:14:08.424Z
+updated: 2024-12-24T20:21:33.663Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 # How to Animate and Make Your Own Effects
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,23 +42,22 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 
 [Video Copilot](#videocopilot)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Video Animation](https://images.wondershare.com/filmora/article-images/animated-video-effects.png)
 
  All of these resources will teach Adobe After Effects, or a similar paid software. If you do not have access to Adobe After Effects, you might want to check out our post on [affordable animation software for video creators](https://www.filmora.io/community-blog/free-or-cheap-animation-software-for-video-creators-122.html).
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
 Lynda isn’t free, but the 10-day free trial period is definitely long enough for you to watch this two-hour course.
@@ -69,20 +65,26 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -90,12 +92,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-treasure-trove-sifting-through-the-top-10-economical-online-art-hubs/"><u>[New] In 2024, A Treasure Trove Sifting Through the Top 10 Economical Online Art Hubs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-excellence-exchange-global-creators/"><u>[New] In 2024, Excellence Exchange Global Creators</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-best-online-choice-for-quick-hassle-free-gif-conversion-to-video/"><u>[New] The Best Online Choice for Quick, Hassle-Free GIF Conversion to Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-the-course-to-prodigy-status-for-ajey-carryminati/"><u>[Updated] 2024 Approved Charting the Course to Prodigy Status for Ajey (CarryMinati)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-comprehensive-list-of-top-9-free-video-channel-branding-aids/"><u>[Updated] 2024 Approved Comprehensive List of Top 9 Free Video Channel Branding Aids</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-how-to-use-green-screen-for-streaming-for-2024/"><u>[Updated] How to Use Green Screen for Streaming for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chart-topping-video-content-on-youtube/"><u>[Updated] In 2024, Chart-Topping Video Content on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-tackling-youtubes-dark-view-troubleshooting-steps/"><u>[Updated] Tackling YouTube's Dark View Troubleshooting Steps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/enhance-your-xiaomi-experience-with-easy-record-screens-for-2024/"><u>Enhance Your Xiaomi Experience with Easy Record Screens for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-honor-play-7t-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Honor Play 7T Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-strategies-for-removing-unwanted-background-noise-from-soundtracks-and-clips/"><u>Top Strategies for Removing Unwanted Background Noise From Soundtracks and Clips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-financial-dynamics-of-youtube-shorts-for-2024/"><u>Unveiling the Financial Dynamics of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-taking-your-video-editing-to-the-next-level-with-final-cut-pro/"><u>Updated 2024 Approved Taking Your Video Editing to the Next Level with Final Cut Pro</u></a></li>
+</ul></div>
 

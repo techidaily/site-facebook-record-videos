@@ -1,7 +1,7 @@
 ---
 title: "[Updated] SEO Essentials for Climbing the YouTube Popularity Ladder"
-date: 2024-07-31T03:01:11.663Z
-updated: 2024-08-01T03:01:11.663Z
+date: 2024-12-21T22:44:58.001Z
+updated: 2024-12-24T19:41:25.070Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/1ddec9a0b5a6c3e1804c33a43db9c91ffd9d92f92
 
 # The 12-step YouTube SEO Guide for Beginners Who Want More Views
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -41,9 +38,6 @@ Ready?
 
 Let’s Go!
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -62,9 +56,6 @@ Uh oh… your video will be competing against celebrities like Gordon Ramsay and
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
 
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
@@ -97,10 +88,11 @@ This app gives you a whole list of long-tail keywords, which are 3-4-word phrase
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -169,8 +161,9 @@ Have the specific keywords at the top, followed by more general keywords, and th
 **Branded**: Gordon Ramsay scrambled eggs
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -205,6 +198,10 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -213,10 +210,11 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
@@ -225,6 +223,10 @@ Don’t want to pay money for a photo editing software such as Photoshop?
 You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
 
@@ -266,9 +268,6 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 Do you have any questions about SEO? Please leave us a comment below.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -277,12 +276,33 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cash-rides-high-with-well-crafted-youtube-shorts-for-2024/"><u>[New] Cash Rides High with Well-Crafted YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-dynamic-youtube-content-as-animated-gifs-without-downloads-for-2024/"><u>[New] Crafting Dynamic YouTube Content as Animated GIFs Without Downloads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-effortless-offline-viewing-how-to-save-youtube-videos-for-iphoneipad-for-2024/"><u>[New] Effortless Offline Viewing How to Save YouTube Videos for iPhone/iPad for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-inside-out-the-realities-of-youtubing-earning/"><u>[New] Inside Out The Realities of YouTubing Earning</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-jumpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators/"><u>[New] Jumpstart Your Professional Filmmaking Exclusive, Cost-Free Green Screen Training From Top YouTube Educators</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-the-art-of-advertising-making-money-on-the-worlds-social-network/"><u>[New] The Art of Advertising Making Money on the World's Social Network</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tune-tastic-transfers-find-your-favorite-youtube-songs-with-top-6-free-android-apps/"><u>[New] Tune-Tastic Transfers Find Your Favorite Youtube Songs with Top 6 Free Android Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-5-youtube-video-editor-alternatives/"><u>[Updated] 2024 Approved Best 5 YouTube Video Editor Alternatives</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-easy-youtube-animation-subscribe-bars-in-filmora/"><u>[Updated] 2024 Approved Crafting Easy YouTube Animation Subscribe Bars in Filmora</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-transforming-social-media-traffic-into-revenue/"><u>[Updated] 2024 Approved Transforming Social Media Traffic Into Revenue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-the-best-video-editors-not-on-youtoo/"><u>[Updated] The Ultimate Guide to the Best Video Editors Not on YouToo</u></a></li>
+<li><a href="https://fox-making.techidaily.com/guide-facile-pour-relocaliser-votre-partition-de-sauvegarde-sur-un-disque-dur-different/"><u>Guide Facile Pour Relocaliser Votre Partition De Sauvegarde Sur Un Disque Dur Différent</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-shield-your-data-from-vulnerabilities-with-adapted-generative-pre-trained-transformers/"><u>How to Shield Your Data From Vulnerabilities with Adapted Generative Pre-Trained Transformers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-oppo-k11x-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Oppo K11x Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/interactive-realities-compared-metaverse-and-multiverse/"><u>Interactive Realities Compared Metaverse and Multiverse</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/revamp-your-drive-with-the-lihan-bluetooth-transmitter-an-in-depth-lhfm1039-assessment/"><u>Revamp Your Drive with the LIHAN Bluetooth Transmitter - An In-Depth LHFM1039 Assessment</u></a></li>
+<li><a href="https://win-forum.techidaily.com/social-sphere-leaders-how-to-use-facebook-twitter-instagram-and-youtube-for-marketing/"><u>Social Sphere Leaders: How to Use Facebook, Twitter, Instagram and YouTube for Marketing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/spectre-3-clash-mirage-4-enters-the-fray-for-2024/"><u>Spectre 3 Clash Mirage 4 Enters the Fray for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-win-10s-red-screen-dilemma-your-definitive-guide-to-solutions/"><u>Troubleshooting Win 10'S Red Screen Dilemma - Your Definitive Guide to Solutions</u></a></li>
+</ul></div>
 

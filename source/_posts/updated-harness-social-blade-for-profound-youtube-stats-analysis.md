@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Harness Social Blade for Profound YouTube Stats Analysis"
-date: 2024-07-31T03:05:12.894Z
-updated: 2024-08-01T03:05:12.894Z
+date: 2024-12-19T21:46:54.989Z
+updated: 2024-12-24T20:33:30.390Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d8b681dac20745dffc0590df4e8c90e2635d89e08
 
 # Use Social Blade for YouTube Analytics - Stats & How to Use Them
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -37,8 +34,9 @@ While many of the stats you can find on Social Blade are also available right on
 2. [**Spying on Other Channels**](#spy)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
@@ -62,8 +60,9 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -77,21 +76,22 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
  That's how you can use Social Blade for YouTube - have you ever used it?
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make Your Videos Stand Out with Powerful Video Editor
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -99,12 +99,27 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-content-6-steps-to-higher-youtube-visibility/"><u>[New] 2024 Approved Elevating Your Content 6 Steps to Higher YouTube Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-becoming-a-trendsetter-youtube-video-tactics/"><u>[New] In 2024, Becoming a Trendsetter YouTube Video Tactics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-obs-studio-and-skype-a-perfect-duo-explained-for-2024/"><u>[New] OBS Studio & Skype A Perfect Duo Explained for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nraveling-video-platform-distinctions-a-youtube-vs-dailymention-analysis/"><u>[New] Unraveling Video Platform Distinctions A YouTube Vs. DailyMention Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-aspiring-youtubers-guide-to-affiliate-allies-for-2024/"><u>[Updated] Aspiring YouTubers' Guide to Affiliate Allies for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-laughter-labyr-writes-making-memorable-parodies/"><u>[Updated] Laughter Labyr Writes Making Memorable Parodies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-compilation-budget-friendly-editing-tools/"><u>[Updated] The Ultimate Compilation Budget-Friendly Editing Tools</u></a></li>
+<li><a href="https://win-answers.techidaily.com/beat-ubisoft-connect-glitches-a-step-by-step-guide-to-get-you-back-online/"><u>Beat Ubisoft Connect Glitches - A Step-by-Step Guide to Get You Back Online !</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-do-you-repair-the-sudden-crash-in-ring-of-elysium-solutions-explained/"><u>How Do You Repair the Sudden Crash in Ring of Elysium? Solutions Explained!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-nokia-105-classic-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Nokia 105 Classic</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-apowersoft-picks-top-pc-screen-recorder-reviewed/"><u>In 2024, Apowersoft Picks Top PC Screen Recorder Reviewed</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revitalizing-corporate-efficiency-top-5-companies-embracing-the-transformative-power-of-the-apple-vision-pro/"><u>Revitalizing Corporate Efficiency: Top 5 Companies Embracing the Transformative Power of the Apple Vision Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-top-tools-to-reduce-long-link-lengths-for-2024/"><u>Youtube's Top Tools to Reduce Long Link Lengths for 2024</u></a></li>
+</ul></div>
 

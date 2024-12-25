@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Top 9 Camera Extras for Professional-Level Vlogging on Smartphones\""
-date: 2024-07-31T03:03:23.029Z
-updated: 2024-08-01T03:03:23.029Z
+date: 2024-12-19T16:00:10.796Z
+updated: 2024-12-24T21:54:11.505Z
 tags:
   - ai video
   - ai youtube
@@ -35,38 +35,35 @@ As smartphone camera technology is rapidly advancing, more and more people are u
 
 ![RAVPower Portable Charger](https://images.wondershare.com/filmora/article-images/best-smartphone-camera-accessories-portable-charger.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Vlogging uses a lot more power. If you’re planning to vlog all throughout your day with your phone, you need a portable way to charge it back up. RAVPower has a great line up of portable chargers with multiple USB inputs that hold a total charge of more than 20,000 mAh. With that amount, you can fully charge your smartphone more than 6 times! I own one myself and it’s been great for me during my travels. A 22,000 mAh charger goes for about $42 USD.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Arkon Tripod Mount
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Arkon Tripod Mount](https://images.wondershare.com/filmora/article-images/best-smartphone-camera-accessories-tripod-mount.jpg)
 
 The Arkon tripod mount is a great portable tripod option that you can get at the fair price of around $20 USD. Not only does it have bendable legs, like the more expensive Joby GorillaPod tripod, that you can wrap around all kinds of structures, but it also comes with the smartphone mount, which Joby sells separately. Another great thing about the Arkon tripod is that its smartphone mount can be rotated so that you can position your phone to film in either widescreen or portrait mode.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. Mega Tiny Anti-Gravity Case
 
 ![Mega Tiny Anti-Gravity Case](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-anti-gravity-case.jpg)
 
 For all the flat surfaces that the bendable legs of the Arkon tripod mount can’t wrap around, Mega Tiny’s anti-gravity cases will do the job of holding your iPhone or Android phone in one fixed position. These cases can stick to glass, mirrors, metal, and more. They range from $20 to $30 USD.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### 4\. FLII Selfie Ring Light
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![FLII Selfie Ring Light](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-selfie-ring-light.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 As much as smartphone camera technology has advanced, phone cameras still underperform when it comes to filming video in low-light. In low-light, your footage is very grainy because your phone is equipped with a small camera sensor, an engineering choice by the manufacturers to keep the size of the phone small. A handy accessory that you can use to get more light is the FLII selfie ring light. This ring light clamps onto your phone and emits a neutral white light. You can clamp this light to either side of your phone, depending on whether you want to use your rear-facing camera or your front-facing camera. This selfie ring light sells for around $16 USD.
 
@@ -77,8 +74,9 @@ As much as smartphone camera technology has advanced, phone cameras still underp
 The mic that is already built into your phone is equally sensitive to the sounds that come from behind the phone as it is to the sounds that are in front of the phone. This can be problematic when you’re trying to vlog in selfie mode while there’s a loud concert on the other side. One smartphone accessory that can improve the sound that you record from your phone in these situations is the RODE VideoMic Me. This mini directional shotgun mic plugs right into your phone’s headphone jack and sells for around $60 USD. In windy conditions, the dead cat windshield that it comes with does a great job of minimizing noise from the wind. In quiet, indoor conditions where you are the only person speaking, this device performs no better than your phone’s internal microphone. Your phone will also have to be in airplane mode to prevent the Rode VideoMic Me from recording unwanted clicking noise caused by background processes performed by your phone. So you wouldn’t want to use this for livestreaming.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Aukey Optic 3-in-1 Smartphone Lens Set
 
 ![Aukey Optic 3-in-1 Smartphone Lens Set](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-smartphone-lens-set.jpg)
@@ -89,22 +87,28 @@ Aukey makes a 3-in-1 lens set that you can clamp onto your smartphone so that yo
 
 ![iOgrapher Go](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-iographer-go.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There’s many more accessories that you can take advantage of if you don’t limit yourself to just smartphone camera accessories. Sound and lighting equipment made for stand-alone cameras perform much better too. Many of these accessories are meant to connect to the camera “shoe” (a bracket on top of the camera that accessories can be attached to). Smartphones don’t come with these kinds of shoes. So, to take advantage of these higher quality accessories, you’ll need some kind of camera rig for your smartphone that also comes with shoes. The iOgrapher Go offers this at around $60 USD. This accessory comes with three shoes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 8\. Manfrotto TwistGrip System
 
 ![Manfrotto TwistGrip System](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-twist-grip-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Manfrotto’s TwistGrip System does a similar job to the above iOgrapher Go. This system also comes with three shoes. An advantage the TwistGrip System has over the iOgrapher Go is that it is much more portable. Its three connected parts can be detached to take up less space in your bag. This system sells for around $50 USD.
 
 ### 9\. Zhiyun Smooth-Q 3-Axis Handheld Gimbal Stabilizer for Smartphones
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Zhiyun Smooth-Q](https://images.wondershare.com/filmora/article-images/smartphone-camera-accessories-gimbal-stabilizer.jpg)
 
 My favorite smartphone camera accessory that I own is the Zhiyun Smooth-Q gimbal stabilizer. This gimbal is very effective in helping you record smooth video. Using the app that it comes with, you can even preset this gimbal to smoothly pan and rotate from a starting position to an ending position, giving you the opportunity to film beautiful time lapses. You can get this device at around $100 USD.
@@ -113,14 +117,8 @@ My favorite smartphone camera accessory that I own is the Zhiyun Smooth-Q gimbal
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -129,12 +127,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-10-recording-tips-to-record-audio-in-high-quality-for-2024/"><u>[New] 10 Recording Tips to Record Audio in High Quality for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions-for-2024/"><u>[New] Enhancing Your YouTube Profiles A Guide to Crafting Descriptions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-balancing-consistency-and-quality-a-key-to-increasing-youtube-viewership/"><u>[New] In 2024, Balancing Consistency & Quality A Key to Increasing YouTube Viewership</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comparative-study-youtube-app-on-smartphone-platforms/"><u>[New] In 2024, Comparative Study YouTube App on Smartphone Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-insights-for-asmr-aficionados/"><u>[New] In 2024, Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-tips-for-shooting-high-quality-youtube-videos/"><u>[New] Top Tips for Shooting High-Quality YouTube Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-crafting-silent-scenes-audio-fade-techniques-in-adobe-premiere-pro-for-2024/"><u>[Updated] Crafting Silent Scenes Audio Fade Techniques in Adobe Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-a-viral-video-journey-6-key-strategies-on-youtube/"><u>[Updated] In 2024, Crafting a Viral Video Journey 6 Key Strategies on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-micro-moments-of-fame-do-youtubes-shorts-or-tiktoks-get-the-edge/"><u>[Updated] Micro-Moments of Fame Do YouTubes Shorts or TikToks Get the Edge?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-savory-showlines-top-30-engaging-recipe-broadcast-names/"><u>[Updated] Savory Showlines Top 30 Engaging Recipe Broadcast Names</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-seamlessly-navigate-to-youtube-video-comments/"><u>[Updated] Seamlessly Navigate to YouTube Video Comments</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlined-creativity-the-most-popular-8-mobile-apps-for-edits/"><u>[Updated] Streamlined Creativity The Most Popular 8 Mobile Apps for Edits</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/2-troubleshooting-windows-media-player-issues-with-dvd-playback-explained/"><u>2. Troubleshooting Windows Media Player: Issues with DVD Playback Explained</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-high-definition-complete-games-of-the-2018-mlb-yankees-season-top-10-downloads-for-fans/"><u>Best High-Definition Complete Games of the 2018 MLB Yankees Season: Top 10 Downloads for Fans</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-xr-to-the-previous-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone XR to the Previous iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-camon-20-premier-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Tecno Camon 20 Premier 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-breakthrough-of-intova-x-in-action-camera-tech/"><u>The Breakthrough of Intova X in Action Camera Tech</u></a></li>
+<li><a href="https://fox-place.techidaily.com/video-presentation-design-a-step-by-step-guide-to-crafting-engaging-visuals/"><u>Video Presentation Design: A Step-by-Step Guide to Crafting Engaging Visuals</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/voice-memo-essentials-a-complete-reference-guide/"><u>Voice Memo Essentials A Complete Reference Guide</u></a></li>
+</ul></div>
 

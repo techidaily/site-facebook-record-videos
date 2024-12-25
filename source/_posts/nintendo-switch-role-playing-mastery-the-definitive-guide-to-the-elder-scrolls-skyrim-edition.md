@@ -1,7 +1,7 @@
 ---
 title: "Nintendo Switch Role-Playing Mastery: The Definitive Guide to The Elder Scrolls Skyrim Edition"
-date: 2024-12-10T21:36:23.947Z
-updated: 2024-12-16T02:19:16.627Z
+date: 2024-12-20T20:50:34.949Z
+updated: 2024-12-25T00:55:53.511Z
 categories:
   - BestProducts
 description: "This Article Describes Nintendo Switch Role-Playing Mastery: The Definitive Guide to The Elder Scrolls Skyrim Edition"
@@ -16,10 +16,6 @@ thumbnail: https://thmb.techidaily.com/94794ad0266b38c29cc913b5310b6833aba7a42cc
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/JA3JlwOuidCKxo4M92FWCfYUoI4=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_1LW415460710-2185a26d460b40978c1e0887900fbc7b.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -41,7 +37,7 @@ Lifewire / Kelsey Simon
 3.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bethesda The Elder Scrolls V: Skyrim (Nintendo Switch)
@@ -76,7 +72,15 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/uXDVHaBrdIlv5tI-qRgiPK0Iig4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460721-e6a53664e7eb4e65a75bf5cceb928e28.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Plot: A huge world with loads to explore**
 
@@ -116,15 +120,19 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/2Fk-UTwglmoCdE7IXrXqlnXs9do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460712-6cec58625d13430db671be3144451cbc.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: A bit outdated**
 
  The graphics in Skyrim aren’t awful, but they haven't progressed much since 2011\. If you’ve played any other version of Skyrim, you can overlook it, simply because you know what you’re getting into. Bethesda attempted to make Skyrim look realistic, likely in their desire to give you a fully immersive experience. But these days, Skyrim’s graphics just aren’t as realistic as what other, more recent games have accomplished. In places, the mountains look blocky and the grass a little patchy. Character’s faces sometimes seem deeply sunken around the eyes, with the skin looking more like leather than flesh. It’s not that the graphics are overly bad, they’re just not as good as what you can get with better hardware on the PC.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Platform: Take Skyrim on the go**
 
@@ -138,10 +146,6 @@ Lifewire / Kelsey Simon
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/Iik6f_7RIRMWo5R6zGYxgGeL4n0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW41546076-8fb741faa7144fa6bafe386d2b7d8296.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
 
 ## **Price: A tad expensive**
@@ -149,10 +153,6 @@ Lifewire / Kelsey Simon
  The Elder Scrolls V: Skyrim costs roughly $60 dollars for the Switch (MSRP). You might be able to find it on sale on Amazon for less, but it’s still on the more expensive side like other popular Switch games. This is disappointing since you can find Skyrim on other platforms for a fraction of the cost, even snatching it up for sale on Steam for $25 or less on PC. Considering the cost difference, the PC version of the game is the better deal, especially since the gameplay is better looking. But if you’re looking to take Skyrim on the go, or a Switch is your preferred gaming system, the price isn’t unreasonable.
 
 ![The Elder Scrolls V: Skyrim](https://www.lifewire.com/thmb/HBIvthh4-o2kkXUP5CB6pSTnyOE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW415460725-46d1960a611c4ea488515c19052068bf.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -166,15 +166,15 @@ Lifewire / Kelsey Simon
 
  Even though The Elder Scrolls V: Skyrim is a great game and the Switch is an amazing platform, our advice is only to buy Skyrim for the Switch if you’re looking to play on the go. Otherwise, we’d suggest purchasing Skyrim for the PC, where you’ll really be able to enjoy superior graphics and customization options.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [The Legend of Zelda: Breath of the Wild](https://www.lifewire.com/the-legend-of-zelda-breath-of-the-wild-review-4685759)
 * [Mario Kart 8 Deluxe](https://www.lifewire.com/mario-kart-8-deluxe-review-4688951)
 * [Splatoon 2](https://www.lifewire.com/splatoon-2-review-4688940)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,22 +198,21 @@ Lifewire / Kelsey Simon
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-compreeve-youtube-extraction-11-tools-reviewed/"><u>[New] 2024 Approved Compreeve YouTube Extraction 11 Tools Reviewed</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-ace-the-art-of-youtube-reactions-3-innovative-approaches-unveiled-for-2024/"><u>[New] Ace the Art of YouTube Reactions - 3 Innovative Approaches Unveiled for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-maximize-your-access-to-fb-videos-with-our-top-5-picks/"><u>[Updated] 2024 Approved Maximize Your Access to FB Videos with Our Top 5 Picks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-exploring-video-realms-significant-post-vidcon-conclaves/"><u>[Updated] In 2024, Exploring Video Realms Significant Post-VidCon Conclaves</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-newcomer-to-pro-a-step-by-step-creator-hub-guidebook/"><u>[Updated] In 2024, From Newcomer to Pro A Step-by-Step Creator Hub Guidebook</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-stream-wars-evaluation-who-comes-out-on-top-obs-or-twitch-studio-for-2024/"><u>[Updated] Stream Wars Evaluation Who Comes Out on Top, OBS or Twitch Studio for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-video-content-battlefront-short-form-supremacy-youtubes-vs-tiktoks/"><u>[Updated] Video Content Battlefront Short Form Supremacy – YouTubes Vs. TikToks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>[Updated] Your Guide to Making Millions on YouTube From Novice to Big Earnings</u></a></li>
-<li><a href="https://extra-information.techidaily.com/embrace-freedom-no-cost-movie-player-software/"><u>Embrace Freedom No-Cost MOVIE PLAYER Software</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/expert-guide-to-enhancing-mouse-interaction-via-clicklock/"><u>Expert Guide to Enhancing Mouse Interaction via ClickLock</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Motorola Defy 2 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-using-b-roll-to-enhance-cinematic-quality/"><u>In 2024, Using B-Roll to Enhance Cinematic Quality</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-fast-track-to-clearing-youtube-post-comments-for-2024/"><u>The Fast Track to Clearing YouTube Post-Comments for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-guide-hashtags-that-work-in-gaming-vlogs-for-2024/"><u>The Ultimate Guide Hashtags That Work in Gaming Vlogs for 2024</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/understanding-potential-dangers-a-deep-dive-into-cryptocurrency-investment-risks-yl-computing/"><u>Understanding Potential Dangers: A Deep Dive Into Cryptocurrency Investment Risks - YL Computing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-earnings-potential-essential-view-numbers-for-2024/"><u>Unlocking Earnings Potential Essential View Numbers for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/windows-10avi/"><u>Windows 10上でAVIファイルの効果的な編集手順</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-10-best-travel-youtube-channels-to-follow-for-2024/"><u>[New] 10 Best Travel Youtube Channels to Follow for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-secure-free-footage-streaming-through-key-youtube-channels/"><u>[New] 2024 Approved Secure Free Footage Streaming Through Key YouTube Channels</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-complete-lowdown-on-making-captivating-short-videos/"><u>[New] 2024 Approved The Complete Lowdown on Making Captivating Short Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-conquer-small-screen-navigate-through-these-best-free-and-online-downloader-tools-for-2024/"><u>[New] Conquer Small Screen Navigate Through These Best Free & Online Downloader Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-mac-slicer-software-enhance-video-production-prowess/"><u>[New] In 2024, Best Mac Slicer Software Enhance Video Production Prowess</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-easy-and-inexpensive-techniques-for-youtube-cards/"><u>[Updated] 2024 Approved Easy and Inexpensive Techniques for YouTube Cards</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-engagement-top-video-release-slots/"><u>[Updated] 2024 Approved Elevate Engagement Top Video Release Slots</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-complexity-behind-youtube-view-counter-for-2024/"><u>[Updated] Exploring the Complexity Behind YouTube View Counter for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-pro-powerpoint-hacks-flawless-incorporation-of-vimeo-media-in-decks/"><u>[Updated] In 2024, Pro PowerPoint Hacks Flawless Incorporation of Vimeo Media in Decks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-streams-optimal-webm-converters-ranked/"><u>[Updated] YouTube Streams Optimal WebM Converters Ranked</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-the-charm-of-contemporary-lighting-the-taotronics-tt-dl16-revealed/"><u>Discovering the Charm of Contemporary Lighting: The TaoTronics TT-DL16 Revealed</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-advice-how-to-transform-sketches-into-beautiful-lithophanes-using-a-3d-printer/"><u>Expert Advice: How to Transform Sketches Into Beautiful Lithophanes Using a 3D Printer</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-capabilities-of-chatgpt-understanding-its-custom-commands/"><u>Exploring the Capabilities of ChatGPT: Understanding Its Custom Commands</u></a></li>
+<li><a href="https://win-able.techidaily.com/solution-found-resolving-the-problems-preventing-sea-of-thieves-from-launching/"><u>Solution Found! Resolving the Problems Preventing Sea of Thieves From Launching</u></a></li>
+<li><a href="https://games-able.techidaily.com/solutions-for-joy-con-not-responding-to-nintendo-switch/"><u>Solutions for Joy-Con Not Responding to Nintendo Switch</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/sonic-and-the-hedgehog-switch-edition-top-10/"><u>Sonic and the Hedgehog Switch Edition (Top 10)</u></a></li>
 </ul></div>
 

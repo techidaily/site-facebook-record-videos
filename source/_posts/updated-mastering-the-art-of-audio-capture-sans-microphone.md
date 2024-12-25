@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering the Art of Audio Capture Sans Microphone"
-date: 2024-07-31T03:05:16.631Z
-updated: 2024-08-01T03:05:16.631Z
+date: 2024-12-21T16:53:39.843Z
+updated: 2024-12-25T00:12:50.697Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/fff656b551e024a92bec77f08e34169fdbb7972da
 
 # How to Record Good Audio Without a Microphone?
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,9 +39,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -68,8 +62,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -82,19 +77,20 @@ _The pompom used in this video cost $2, but you might already have something tha
 
 If your built-in mic is on top of your camera you can get something called a ‘micromuff’. A micromuff is essentially a circular or rectangular piece of velcro with long strands of fluff on top. It’s open in the middle so it doesn’t actually cover your mic, but the surrounding fuzz blocks out the wind.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -118,9 +114,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -128,12 +129,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-audience-appeal-the-ultimate-guide-to-youtube-video-formats/"><u>[New] 2024 Approved Audience Appeal The Ultimate Guide to YouTube Video Formats</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-elevate-your-instagram-aesthetic-with-new-and-old-filters/"><u>[New] 2024 Approved Elevate Your Instagram Aesthetic with New and Old Filters</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-fix-obs-black-screen-game-capture-for-2024/"><u>[New] Fix OBS Black Screen Game Capture for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-average-revenue-what-every-view-contributes-to-creators/"><u>[New] In 2024, Average Revenue What Every View Contributes to Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-beginners-guide-to-personal-brand-craftsmanship/"><u>[Updated] 2024 Approved A Beginner's Guide to Personal Brand Craftsmanship</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>[Updated] 2024 Approved Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-direct-access-to-streams-how-to-download-youtube-videos-to-your-ios-device/"><u>[Updated] 2024 Approved Direct Access to Streams How to Download YouTube Videos to Your iOS Device</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-guide-to-enhancing-youtube-content-post-upload-for-2024/"><u>[Updated] Essential Guide to Enhancing YouTube Content Post-Upload for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-clarity-fix-black-screens-on-youtube/"><u>[Updated] Unlocking Clarity Fix Black Screens on YouTube</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/fixing-common-issues-how-to-repair-your-pc-on-windows-10/"><u>Fixing Common Issues: How to Repair Your PC on Windows 10</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-dfu-mode-on-apple-iphone-15-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/how-to-get-world-of-warcraft-running-smoothly-again-on-your-computer/"><u>How to Get 'World of Warcraft' Running Smoothly Again on Your Computer</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-infinix-hot-40-pro-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Hot 40 Pro Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unraveling-the-lifecycle-of-windows-movie-maker-releases/"><u>In 2024, Unraveling the Lifecycle of Windows Movie Maker Releases</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/professional-footage-with-top-tier-stabilizers-for-2024/"><u>Professional Footage with Top-Tier Stabilizers for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-for-stabilizing-inconsistent-windows-printers/"><u>Steps for Stabilizing Inconsistent Windows Printers</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211470867-9798330454174-superando-o-samsara/"><u>Superando o Samsara | Free Book</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/warmth-amidst-cold-selecting-perfect-winter-backdrops-for-2024/"><u>Warmth Amidst Cold Selecting Perfect Winter Backdrops for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme Note 50? | Dr.fone</u></a></li>
+</ul></div>
 

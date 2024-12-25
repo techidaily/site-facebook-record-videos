@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Create YouTube Intros & End Cards - Free and Easy\""
-date: 2024-07-31T03:04:14.586Z
-updated: 2024-08-01T03:04:14.586Z
+date: 2024-12-18T16:49:41.821Z
+updated: 2024-12-24T21:05:46.189Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/983f31d4ff46a88bf34dd06f49261024f8d7c362e
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,12 +134,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-star-stirred-stories-for-your-whatsapp-bio/"><u>[New] Crafting Star-Stirred Stories for Your WhatsApp Bio</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enthralling-epics-essential-channel-building-tactics-for-2024/"><u>[New] Enthralling Epics Essential Channel-Building Tactics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craftsmanship-in-marvellous-marvel-creation/"><u>[New] In 2024, Craftsmanship in Marvellous Marvel Creation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-elevate-your-sedan-with-these-essential-accessories-for-sj4000/"><u>[New] In 2024, Elevate Your Sedan with These Essential Accessories for SJ4000</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-multiple-youtube-videos-into-one/"><u>[New] Streamlining Multiple YouTube Videos Into One</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-clarity-fix-black-screens-on-youtube/"><u>[New] Unlocking Clarity Fix Black Screens on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enrich-your-viewing-experience-with-these-leading-top-6-tools-to-download-youtubes-short-videos/"><u>[Updated] 2024 Approved Enrich Your Viewing Experience with These Leading Top 6 Tools to Download YouTubes' Short Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-buying-made-simple-a-beginners-toolkit-for-2024/"><u>[Updated] Channel Buying Made Simple A Beginner’s Toolkit for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/how-to-zoom-photos-and-videos-on-snapchat/"><u>How to Zoom Photos and Videos on Snapchat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-techniques-for-fisheye-sphere-capture/"><u>In 2024, Innovative Techniques for Fisheye Sphere Capture</u></a></li>
+<li><a href="https://win-dash.techidaily.com/instant-access-to-hp-officejet-5740-driver-downloads/"><u>Instant Access to HP OfficeJet 5740 Driver Downloads!</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-airpods-performance-a-handbook-for-eliminating-sound-disruptions/"><u>Revive Your AirPods' Performance – A Handbook for Eliminating Sound Disruptions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tailored-chatgpt-strategies-for-sports-buffs/"><u>Tailored ChatGPT Strategies for Sports Buffs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-fix-for-audio-glitches-top-five-solutions-for-windows-10-users/"><u>Ultimate Fix for Audio Glitches: Top Five Solutions for Windows 10 Users</u></a></li>
+</ul></div>
 

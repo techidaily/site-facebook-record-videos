@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring the Depths of Video Talks on YouTube\""
-date: 2024-07-31T02:55:24.952Z
-updated: 2024-08-01T02:55:24.952Z
+date: 2024-12-19T19:28:12.257Z
+updated: 2024-12-24T21:27:31.848Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/5d0cffeef3a457f6d646442a32f08e24ee51602aa
 
 # How to Search Comments on YouTube Quickly?
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,9 +31,6 @@ Are you trying to search for something on a document or a web page? You know how
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
 How does the built-in YouTube Studio Feature make searching comments on YouTube easier?
@@ -63,16 +57,18 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 **Response status:** Filter the comments to which you have responded or haven’t responded to.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -86,8 +82,13 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -133,13 +134,9 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -169,12 +166,26 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-views-mastering-hashtags-in-freefire-vids/"><u>[New] 2024 Approved Boosting Views Mastering Hashtags in FreeFire Vids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-explore-9-simple-and-economical-editing-solutions-for-your-projects-for-2024/"><u>[New] Explore 9 Simple & Economical Editing Solutions for Your Projects for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-freedomfrexpressor-the-ultimate-2024-audio-extractor-guide/"><u>[New] FreedomFreXpressor The Ultimate 2024 Audio Extractor Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-best-travel-youtube-channels-to-follow/"><u>[New] In 2024, 10 Best Travel Youtube Channels to Follow</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-video-quality-revolution-leveraging-version-22-for-2024/"><u>[New] Video Quality Revolution Leveraging Version 2.2 for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-sdr-vs-hdri-elevating-your-content-with-advanced-color-techniques-for-2024/"><u>[Updated] SDR Vs. HDRI Elevating Your Content with Advanced Color Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-quelling-camera-chaos-in-cinema/"><u>2024 Approved Quelling Camera Chaos in Cinema</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/perts-blueprint-for-calculating-your-videos-impact-and-income-for-2024/"><u>An Expert's Blueprint for Calculating Your Video's Impact & Income for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/learn-the-ultimate-snap-sharing-trick-today-for-2024/"><u>Learn the Ultimate Snap Sharing Trick Today for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/on-demand-video-text-transformers-prime-selections-for-2024/"><u>On-Demand Video-Text Transformers Prime Selections for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/strategic-update-for-your-pcs-intel-software/"><u>Strategic Update for Your PC's Intel Software</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-speedy-gaming-apps-for-mobile-and-desktop/"><u>Top 10 Speedy Gaming Apps for Mobile and Desktop</u></a></li>
+</ul></div>
 

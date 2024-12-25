@@ -1,7 +1,7 @@
 ---
 title: "Visionary Voices Triumph Online for 2024"
-date: 2024-07-31T03:03:24.212Z
-updated: 2024-08-01T03:03:24.212Z
+date: 2024-12-22T19:29:42.740Z
+updated: 2024-12-24T23:25:07.142Z
 tags:
   - ai video
   - ai youtube
@@ -50,17 +50,22 @@ In this article, we will take you through the 5 most popular creator channels on
 * [Smosh](#smosh)
 * [Fernanfloo](#fern)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
@@ -69,27 +74,21 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ###  3\.  ElrubiusOMG
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -98,14 +97,11 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\.  Fernanfloo
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -117,8 +113,9 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -131,12 +128,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-efficiently-handling-youtube-short-issues/"><u>[New] 2024 Approved Efficiently Handling YouTube Short Issues</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-culinary-crescendo-high-impact-food-network-monikers-for-2024/"><u>[New] Culinary Crescendo High-Impact Food Network Monikers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-becoming-an-expert-at-yt-studio-navigation/"><u>[New] In 2024, Becoming an Expert at YT Studio Navigation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-screensnapper-pro-the-ultimate-guide-to-capturing-your-world/"><u>[New] In 2024, ScreenSnapper Pro The Ultimate Guide to Capturing Your World</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-simplifying-the-process-of-watching-fb-live-on-roku/"><u>[New] In 2024, Simplifying the Process of Watching FB Live on Roku</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-demystifying-youtube-shorts-for-total-beginners/"><u>[Updated] 2024 Approved Demystifying YouTube Shorts for Total Beginners</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-embracing-resilience-against-online-detractors/"><u>[Updated] In 2024, Embracing Resilience Against Online Detractors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rapid-techniques-mix-up-and-shuffle-youtube-listings/"><u>[Updated] Rapid Techniques Mix Up and Shuffle YouTube Listings</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-10-hd-webcams-essential-purchasing-tips/"><u>[Updated] Top 10 HD Webcams Essential Purchasing Tips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unveiling-the-best-budget-friendly-live-streamer-tools/"><u>2024 Approved Unveiling the Best Budget-Friendly Live Streamer Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-vlog-anxieties-unmasked-how-to-combat-them/"><u>2024 Approved Vlog Anxieties Unmasked How to Combat Them</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elevating-listeners-a-comprehensive-guide-to-podcast-seo/"><u>Elevating Listeners A Comprehensive Guide to Podcast SEO</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-issue-non-functional-microphone-in-zoom-on-windows-11-and-10/"><u>Fixing the Issue: Non-Functional Microphone in Zoom on Windows 11 and 10</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-poco-m6-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Poco M6 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/navigating-through-top-film-makers-landscape-for-2024/"><u>Navigating Through Top Film Makers' Landscape for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/protect-your-communications-easy-steps-for-archiving-text-messages-on-ios-and-android-phones/"><u>Protect Your Communications: Easy Steps for Archiving Text Messages on iOS & Android Phones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pursuing-your-vision-learn-professional-filmmaking-on-youtube-for-2024/"><u>Pursuing Your Vision Learn Professional Filmmaking on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/starting-strong-with-the-best-studio-tech-for-novices-for-2024/"><u>Starting Strong with the Best Studio Tech for Novices for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/top-ranked-philips-somneo-clock-review-a-master-of-timekeeping/"><u>Top-Ranked Philips Somneo Clock Review: A Master of Timekeeping</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Guide to Turning YouTube Screen Time Into a FREE Screencast\""
-date: 2024-12-13T18:39:39.092Z
-updated: 2024-12-16T01:04:06.092Z
+date: 2024-12-22T00:41:13.131Z
+updated: 2024-12-24T17:44:49.928Z
 tags:
   - ai video
   - ai youtube
@@ -32,10 +32,6 @@ There is a wide range of software tools that can assists you with screencasting 
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### The All-in-One Screen Recorder & Video Editor
 
 * Record desktop screen, voiceover, and webcam simultaneously
@@ -53,14 +49,6 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -70,7 +58,7 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
@@ -79,10 +67,14 @@ Step 4: Hit the screen share button from the left toolbox and choose the desktop
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A better way to record Screencast and Upload to YouTube
@@ -90,6 +82,10 @@ Step 5: When your video is ready to go to YouTube video dashboard and choose you
 For those who are interested in capturing screencast with high-quality videos and need an easy to use the built-in editor to customize these videos; it is good to look for some dedicated screencast tools. Experts recommend using Wondershare [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) due to its advanced features and interactive software platform.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Top Features
 
@@ -112,6 +108,10 @@ With all impressive features, there is no doubt to say that Filmora can serve yo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -127,17 +127,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-elevating-engagement-with-expert-level-niche-creators/"><u>[New] 2024 Approved Elevating Engagement with Expert-Level Niche Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-crafting-the-perfect-panel-of-playback-with-youtube/"><u>[New] In 2024, Crafting the Perfect Panel of Playback with YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-on-inserting-captions-into-youtube-videos/"><u>[New] In 2024, Expert Tips on Inserting Captions Into YouTube Videos</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-the-key-to-attracting-views-youtube-image-marketing/"><u>[Updated] 2024 Approved The Key to Attracting Views YouTube Image Marketing</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-audiovisual-elements-in-eye-catching-fb-advertising-for-2024/"><u>[Updated] Audiovisual Elements in Eye-Catching FB Advertising for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-edu-stream-100-cutting-edge-learning-yt-for-2024/"><u>[Updated] Edu-Stream 100 Cutting-Edge Learning YT for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-channel-success-metrics-subscriber-and-play-buttons/"><u>[Updated] In 2024, Channel Success Metrics Subscriber & Play Buttons</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-youtubes-monetization-schedule/"><u>[Updated] Understanding YouTube's Monetization Schedule</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-samsung-galaxy-s21-fe-5g-2023-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Samsung Galaxy S21 FE 5G (2023) Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/how-to-get-instagram-sponsorship-for-making-money-for-2024/"><u>How to Get Instagram Sponsorship for Making Money for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/instantaneously-enhance-hd-4800-graphics-cards/"><u>Instantaneously Enhance HD 4800 Graphics Cards</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unleashing-the-potential-of-dells-convertible-xps-n-13-laptop-an-exceptional-performance-journey/"><u>Unleashing the Potential of Dell's Convertible XPS N 13 Laptop: An Exceptional Performance Journey</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essential-tips-for-youtube-edits-with-sony-vegas/"><u>[New] 2024 Approved Essential Tips for YouTube Edits with Sony Vegas</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-transform-video-vendoring-into-virtual-ventures-and-valuables/"><u>[New] 2024 Approved Transform Video Vendoring Into Virtual Ventures and Valuables</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-craft-engaging-videos-with-7-free-premium-soundscapes-for-2024/"><u>[New] Craft Engaging Videos with 7 Free, Premium Soundscapes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-how-to-edit-videos-for-youtube-on-pc-for-2024/"><u>[New] How to Edit Videos for YouTube on PC for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>[New] In 2024, Craft Proficient Content for Short-Form Video Best Edits Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[New] In 2024, DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-8-linux-software-for-editors/"><u>[New] In 2024, Essential 8 Linux Software for Editors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rofessional-filmmaking-made-easy-with-right-lenses/"><u>[New] Professional Filmmaking Made Easy with Right Lenses</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-leading-10-apps-for-sketching-and-drawing-on-chrome-for-2024/"><u>[New] The Leading 10 Apps for Sketching and Drawing on Chrome for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-add-captions-to-youtube-videos/"><u>[Updated] 2024 Approved How To Add Captions to YouTube Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-master-controls-navigating-the-world-of-switch-pro-and-steam-gaming/"><u>[Updated] In 2024, Master Controls Navigating the World of Switch Pro and Steam Gaming</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-revolutionize-your-humor-learn-through-kinemaster-for-2024/"><u>[Updated] Revolutionize Your Humor Learn Through KineMaster for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-oppo-k11x-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Oppo K11x | Dr.fone</u></a></li>
 </ul></div>
 

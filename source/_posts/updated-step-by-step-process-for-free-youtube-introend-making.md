@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-12-10T19:16:50.779Z
-updated: 2024-12-15T23:37:01.146Z
+date: 2024-12-17T20:27:29.592Z
+updated: 2024-12-24T21:12:15.422Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,22 +143,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-streamlining-time-lapse-photography-with-gopro-software/"><u>[New] 2024 Approved Streamlining Time-Lapse Photography with GoPro Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-carryminatis-income-blueprint-journey-through-2023/"><u>[New] In 2024, CarryMinati's Income Blueprint Journey Through 2023</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-dimensions-demystified-a-complete-aspect-ratio-handbook/"><u>[New] YouTube Dimensions Demystified A Complete Aspect Ratio Handbook</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-charting-a-course-for-youtube-success-viewer-numbers-and-income/"><u>[Updated] 2024 Approved Charting a Course for YouTube Success Viewer Numbers and Income</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-eliminate-youtube-shorts-permanent-guide/"><u>[Updated] 2024 Approved Eliminate YouTube Shorts Permanent Guide</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-viewership-volume-the-financial-impact-of-one-million-views/"><u>[Updated] 2024 Approved Viewership Volume The Financial Impact of One Million Views</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-effortless-playlist-pivot-the-top-5-spotify-to-youtube-tools-for-2024/"><u>[Updated] Effortless Playlist Pivot The Top 5 Spotify-to-YouTube Tools for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-instantly-design-custom-coverage-for-your-short-videos/"><u>[Updated] How To Instantly Design Custom Coverage For Your Short Videos</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-flair-up-your-stories-and-feeds-instagrams-simplified-method-of-sharing-gifs/"><u>[Updated] In 2024, Flair Up Your Stories & Feeds Instagram's Simplified Method of Sharing GIFs</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-in-2024-youtubes-top-tales-who-to-follow-in-the-narrative-realm/"><u>[Updated] In 2024, YouTube's Top Tales Who to Follow in the Narrative Realm</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-make-music-accessible-with-a-well-designed-youtube-playlist/"><u>[Updated] Make Music Accessible with a Well-Designed YouTube Playlist</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-virtual-validation-subscribers-buttons-reward-system/"><u>2024 Approved Virtual Validation Subscribers, Buttons Reward System</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/auditory-storytelling-in-cinematic-openings-for-2024/"><u>Auditory Storytelling in Cinematic Openings for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/contrasting-both-worlds-my-journey-through-apple-watch-s9-versus-fitbit-charge-6/"><u>Contrasting Both Worlds: My Journey Through Apple Watch S9 Versus Fitbit Charge 6</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/fixing-invisible-displays-on-personal-computers/"><u>Fixing Invisible Displays on Personal Computers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/how-to-enjoy-dvd-films-and-tv-shows-using-your-xbox-one-system/"><u>How to Enjoy DVD Films & TV Shows Using Your Xbox One System</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/live-photography-to-continuous-visual-storytelling-for-2024/"><u>Live Photography to Continuous Visual Storytelling for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-advanced-techniques-for-high-quality-youtube-content-for-2024/"><u>[New] Advanced Techniques for High-Quality YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-creatives-making-marvel-virtual-worlds-vivid-for-2024/"><u>[New] Creatives Making Marvel Virtual Worlds Vivid for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-designing-news-outro-sequences/"><u>[New] In 2024, Designing News Outro Sequences</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-video-wizardry-your-guide-to-the-top-10-editing-hacks/"><u>[New] Video Wizardry Your Guide to the Top 10 Editing Hacks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-guide-to-securely-copying-youtube-music-tracks-safely-for-2024/"><u>[Updated] Guide to Securely Copying YouTube Music Tracks Safely for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-maximizing-your-reach-with-snapchat-highlights/"><u>[Updated] Maximizing Your Reach with Snapchat Highlights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-easy-fix-for-a-desired-list-directionality/"><u>[Updated] The Easy Fix for a Desired List Directionality</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/bouncing-back-strongly-resolving-issues-with-hp-laptops-complete-system-restore/"><u>Bouncing Back Strongly: Resolving Issues with HP Laptop's Complete System Restore</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/discover-the-magic-of-visitor-tracking-the-cookiebot-advantage-in-retargeting-campaigns/"><u>Discover the Magic of Visitor Tracking: The Cookiebot Advantage in Retargeting Campaigns</u></a></li>
+<li><a href="https://win-great.techidaily.com/download-your-favorite-free-iphone-ringtones-for-models-13-14-and-15/"><u>Download Your Favorite Free iPhone Ringtones for Models 13, 14 & 15</u></a></li>
+<li><a href="https://extra-information.techidaily.com/fusionflicker-compiling-media-on-sierra-screens/"><u>FusionFlicker Compiling Media on Sierra Screens</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oppo-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Oppo Devices</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-geforce-troubleshooting-fixes-and-tips-to-keep-your-graphics-software-running-smoothly/"><u>Mastering GeForce Troubleshooting: Fixes and Tips to Keep Your Graphics Software Running Smoothly</u></a></li>
+<li><a href="https://win-dash.techidaily.com/secure-your-print-jobs-download-updated-drivers-for-brother-hl-l235tdw-printer-now/"><u>Secure Your Print Jobs - Download Updated Drivers for Brother HL-L235tDW Printer Now</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/skyrocketing-viewership-youtubes-quintessential-5-marketing-strategies-for-2024/"><u>Skyrocketing Viewership - YouTube's Quintessential 5 Marketing Strategies for 2024</u></a></li>
 </ul></div>
 

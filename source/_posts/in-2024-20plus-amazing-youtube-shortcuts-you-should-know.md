@@ -1,7 +1,7 @@
 ---
 title: "In 2024, 20+ Amazing YouTube Shortcuts You Should Know"
-date: 2024-07-31T03:03:26.904Z
-updated: 2024-08-01T03:03:26.904Z
+date: 2024-12-23T17:00:59.484Z
+updated: 2024-12-24T23:57:39.085Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/68fb059a648e909d234d3bab20298ad1bdfcbd57c
 
 # YouTube Shortcuts You Should Know in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/68fb059a648e909d234d3bab20298ad1bdfcbd57c
 YouTube, as one of the most popular free streaming video portals, the majority of people use it, probably several times a day. However, how many of you know that there are more than 20 shortcuts that help you use the website comparatively more conveniently?
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
@@ -43,6 +44,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -63,9 +68,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -98,8 +100,9 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -114,6 +117,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -126,9 +133,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -139,9 +143,6 @@ In this section, you will learn how to pull up the list of important YouTube sho
 
 So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 **Conclusion**
@@ -152,10 +153,11 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,12 +165,30 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>[New] __Local Labor Costs__ The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-essential-online-locations-alarm-ringtones-collection/"><u>[New] 2024 Approved Essential Online Locations Alarm Ringtones Collection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-mock-musicals-that-bring-smiles/"><u>[New] In 2024, 10 Mock Musicals That Bring Smiles</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-leading-8-multimedia-apps-for-creative-phones-android-ios/"><u>[Updated] 2024 Approved The Leading 8 Multimedia Apps for Creative Phones (Android, iOS)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-tips-for-crafting-youtube-image-marketing-for-2024/"><u>[Updated] Essential Tips for Crafting YouTube Image Marketing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-casual-follower-to-dedicated-subscriber-inspirational-journey/"><u>[Updated] From Casual Follower to Dedicated Subscriber Inspirational Journey</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-guide-to-essential-asmr-video-facts/"><u>[Updated] In 2024, A Guide to Essential ASMR Video Facts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-exploring-ajeys-youtube-revenue/"><u>[Updated] In 2024, Exploring Ajey's YouTube Revenue</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-stock-strategies-unveiled-essential-youtube-video-resources/"><u>[Updated] Stock Strategies Unveiled Essential YouTube Video Resources</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimizing-visual-detail-with-kinemasters-zooming-features/"><u>2024 Approved Optimizing Visual Detail with Kinemaster’s Zooming Features</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boosting-digital-traffic-using-cookiebot-analytics/"><u>Boosting Digital Traffic Using Cookiebot Analytics</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-samsung-galaxy-a54-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Samsung Galaxy A54 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-video-enhanced-slideshow-mastery-with-youtube/"><u>In 2024, Video-Enhanced Slideshow Mastery with YouTube</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316760-9781401927738-the-spirit-whisperer/"><u>The Spirit Whisperer | Free Book</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unleashing-the-power-of-chatgpt-with-siri-on-ios-devices-tips-and-tricks/"><u>Unleashing the Power of ChatGPT with Siri on iOS Devices - Tips & Tricks</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Evolution of YouTube Shorts Popularity Metrics"
-date: 2024-12-08T16:00:22.023Z
-updated: 2024-12-15T21:32:07.504Z
+date: 2024-12-22T23:56:11.534Z
+updated: 2024-12-24T21:08:28.713Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ Here we are going to introduce you how to make money on YouTube Shorts and some 
 * [**Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?**](#part3)
 * [**Part 4: FAQs about YouTube Shorts Fund**](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What's YouTube Shorts Fund?
 
 The **YouTube Shorts Fund** is a part of the YouTube Shorts monetization scheme. It's a $100M fund distributed throughout 2021 - 2022.
@@ -55,6 +59,10 @@ However, this YouTube Shorts Fund is generally not limited to just the YouTube P
 
 Moreover, YouTube kept sharing additional details as they got closer to the same concept.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The Future of Monetization on Shorts
 
 As discussed earlier, the YouTube Shorts Fund is the first step in their journey to build YouTube Shorts, a monetization model.
@@ -64,7 +72,7 @@ Even YouTube is excited to begin rewarding creators for their contributions via 
 All in all, YouTube has helped an entire generation of artists and creators turn their creativity into businesses with the YouTube Shorts Fund. YouTube has paid $30 billion-plus money to artists, creators, artists, and media companies over the last three years. They remain deeply committed to supporting the next generation of mobile creators while introducing the YouTube Shorts Fund.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Join/Apply for YouTube Shorts Fund?
@@ -92,7 +100,7 @@ The best way you can create is to keep uploading excellent content. You can use 
 The YouTube Shorts Fund is an ideal opportunity for creators of all sizes to activate YouTube Shorts monetization.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Claim Bonus Payment from YouTube Shorts Fund?
@@ -107,10 +115,6 @@ Creators who do not have an AdSense account will be able to set one up directly 
 It is worth defining that channels creating and publishing non-original content, videos re-uploaded from other channels, and videos with the logos or watermarks from third-party social platforms will not be eligible to claim a bonus payment from the YouTube Shorts Fund.
 
 In addition to the YouTube Shorts Fund, YouTube provides numerous other methods in which creators can earn more revenues from their YouTube content and build their businesses on the platform. These consist of merchandise, ads, YouTube BrandConnect, and channel memberships, among others.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: FAQs about YouTube Shorts Fund
 
@@ -139,7 +143,7 @@ A common reason behind this is that you do not hold the viewer's attention. The 
 Videos up to 60 seconds will show a trim editor. For videos longer than 60 seconds, you need to hit the **Edit** button into a Short video size to trim your video up to 60 seconds or less.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -151,10 +155,6 @@ If you've never used YouTube before, that's an even great reason to give YouTube
 Most people probably wouldn't get attracted if any other company launched a new short-form vertical video platform. But because Shorts comes from a platform like YouTube — which has a long history of a massive audience, creator-friendly scenarios, and the power of Google backing it up — the new platform is a must-try for any video creator and creative individual. And, the addition of $100 million YouTube Shorts fund in financial support is a lot of delicious icing on the cake.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -171,22 +171,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-meta-descriptions-top-template-strategies/"><u>[New] 2024 Approved Elevate Meta Descriptions Top Template Strategies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>[New] 2024 Approved Engaging Audience From Anywhere Phone-Based Filming Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-express-yourself-incorporating-emojis-into-yt-feedback/"><u>[New] 2024 Approved Express Yourself Incorporating Emojis Into YT Feedback</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-average-profit-per-million-youtube-viewers-for-2024/"><u>[New] Average Profit per Million YouTube Viewers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-detailed-instructions-for-embedding-and-displaying-youtube-playlists-online/"><u>[New] In 2024, Detailed Instructions for Embedding and Displaying YouTube Playlists Online</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-amplify-engagement-a-compilation-of-powerful-30-freegame-tags-for-2024/"><u>[Updated] Amplify Engagement A Compilation of Powerful 30 FreeGame Tags for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-how-to-for-effortless-apple-podcast-acquisition-swift-and-smooth/"><u>[Updated] How-To for Effortless Apple Podcast Acquisition – Swift & Smooth</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-frugal-filmmakers-guide-to-affordable-camera-gear/"><u>[Updated] The Frugal Filmmaker's Guide to Affordable Camera Gear</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thriving-as-an-online-gaming-content-creator/"><u>[Updated] Thriving as an Online Gaming Content Creator</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-taping-permissibility-concerns/"><u>[Updated] YouTube Taping Permissibility Concerns</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/get-the-newest-information-breaking-news-and-fresh-insights/"><u>Get the Newest Information: Breaking News and Fresh Insights</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-smart-7-lock-screen-password-by-drfone-android/"><u>How To Change Infinix Smart 7 Lock Screen Password?</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-futures-edge-the-top-10-sci-fi-movies-shaping-new-realities/"><u>In 2024, Future's Edge The Top 10 Sci-Fi Movies Shaping New Realities</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-s18-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo S18 Pro Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-mastering-avi-file-editing-easy-ways-to-trim-cut-and-split-videos-2023-update-for-2024/"><u>New Mastering AVI File Editing Easy Ways to Trim, Cut, and Split Videos (2023 Update) for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/speed-up-sound-on-smartphones-with-these/"><u>Speed Up Sound on Smartphones with These</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/uncovering-the-truth-about-vn-video-editor-pro-a-worthy-alternative/"><u>Uncovering the Truth About VN Video Editor Pro A Worthy Alternative?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-revenue-the-content-creators-playbook-for-2024/"><u>[New] Boosting Revenue The Content Creator's Playbook for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-dynamic-viewership-statistics-platforms-for-2024/"><u>[New] Dynamic Viewership Statistics Platforms for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-building-an-online-empire-ramp-up-video-views/"><u>[New] In 2024, Building an Online Empire Ramp Up Video Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-refining-published-videos-on-youtube/"><u>[New] The Art of Refining Published Videos on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comprehensive-guide-to-youtube-content-moderation-rules-for-2024/"><u>[Updated] Comprehensive Guide to YouTube Content Moderation Rules for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-video-trailers-on-youtube-via-filmora-tools/"><u>[Updated] Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-essential-new-features-in-facebooks-repertoire/"><u>2024 Approved The Essential New Features in Facebook's Repertoire</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-to-solving-blue-screens-caused-by-not-handled-error/"><u>Guide to Solving Blue Screens Caused by Not Handled Error</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-13-pro-max-without-itunes-drfone-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 13 Pro Max Without iTunes | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/kratos-unleashed-performance-perfected/"><u>Kratos Unleashed: Performance Perfected</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-pip-chromes-full-screen-multi-tasking-guide/"><u>Mastering PIP Chrome's Full-Screen Multi-Tasking Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/g-parts-of-youtube-a-comprehensive-tutorial-for-2024/"><u>Saving Parts of YouTube A Comprehensive Tutorial for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-ultimate-screen-recorder-list-for-mac-devices-for-2024/"><u>The Ultimate Screen Recorder List for Mac Devices for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-online-vertical-video-editors/"><u>Updated The Ultimate Guide to Online Vertical Video Editors</u></a></li>
 </ul></div>
 

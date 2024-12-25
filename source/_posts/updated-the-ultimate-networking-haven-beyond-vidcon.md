@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Ultimate Networking Haven  Beyond VidCon\""
-date: 2024-12-09T03:51:36.178Z
-updated: 2024-12-16T00:23:43.826Z
+date: 2024-12-21T23:34:11.275Z
+updated: 2024-12-24T18:28:56.942Z
 tags:
   - ai video
   - ai youtube
@@ -36,10 +36,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -47,7 +43,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
@@ -59,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -89,7 +89,7 @@ You have a two-week window (usually the first half of May) to submit your choice
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -126,6 +126,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -149,6 +153,10 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
@@ -200,10 +208,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -228,10 +232,6 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -247,22 +247,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-bite-sized-video-knowledge-now/"><u>[New] Bite-Sized Video Knowledge Now!</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-captivating-content-with-a-click-phones-and-youtube-for-2024/"><u>[New] Captivating Content with a Click Phones & YouTube for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-cutting-edge-tools-to-make-your-fb-cover-photo-stand-out-for-2024/"><u>[New] Cutting-Edge Tools to Make Your FB Cover Photo Stand Out for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehensive-directory-of-inexpensive-stock-images/"><u>[New] In 2024, Comprehensive Directory of Inexpensive Stock Images</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-experience-the-power-of-visuals-discover-all-50-banners-in-our-digital-collection/"><u>[New] In 2024, Experience the Power of Visuals Discover All 50 Banners in Our Digital Collection</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-youtube-studios-comprehensive-guide-to-video-post-production/"><u>[New] YouTube Studio's Comprehensive Guide to Video Post Production</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-audio-integration-into-visual-screens-via-apple-for-2024/"><u>[Updated] Audio Integration Into Visual Screens via Apple for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-11-free-youtube-video-rippers-to-download-youtube-videos/"><u>[Updated] In 2024, 11 FREE YouTube Video Rippers to Download YouTube Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-conquer-massive-content-views-on-youtube-efficiently/"><u>[Updated] In 2024, Conquer Massive Content Views on YouTube Efficiently</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhancing-your-youtube-reach-with-famebit-ad-sponsorships/"><u>[Updated] In 2024, Enhancing Your YouTube Reach with FameBit Ad Sponsorships</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/essential-knowledge-for-youtubes-minute-melodies-for-2024/"><u>Essential Knowledge for YouTube's Minute Melodies for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/gaming-retro-building-pc-a-dual-focus/"><u>Gaming Retro, Building PC – A Dual Focus</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-merge-duplicate-photographs-featuring-identical-subjects-a-guide-for-iphone-and-mac-users/"><u>How to Merge Duplicate Photographs Featuring Identical Subjects: A Guide for iPhone and Mac Users</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-14-pro-max-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/is-pgsharp-legal-when-you-are-playing-pokemon-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>Is pgsharp legal when you are playing pokemon On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-fiscal-picture-for-content-makers-on-youtube-shorts-platform-for-2024/"><u>The Fiscal Picture for Content Makers on YouTube Shorts Platform for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-new-era-of-economical-tablets-how-the-apple-ipad-102-outshines-its-predecessors/"><u>The New Era of Economical Tablets: How the Apple iPad 10.2 Outshines Its Predecessors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>[New] 2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieve-seamless-transitions-premiere-videos-on-youtube-for-2024/"><u>[New] Achieve Seamless Transitions Premiere Videos on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discovering-6-interactive-workout-ideas-for-social-media-success-for-2024/"><u>[New] Discovering 6 Interactive Workout Ideas for Social Media Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-excellent-video-and-picture-capture-for-iphones-and-androids-here/"><u>[New] In 2024, Excellent Video & Picture Capture for iPhones & Androids Here</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-revolutionizing-the-joy-of-packet-opening/"><u>[New] Revolutionizing the Joy of Packet Opening</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-on-iphone-xs-max-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock On iPhone XS Max Online</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/code-commanders-elite-females-on-yt/"><u>Code Commanders Elite Females on YT</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-for-half-life-alyx-stutters-and-lags-optimized-gaming-experience/"><u>Fixes for 'Half-Life: Alyx' Stutters & Lags - Optimized Gaming Experience</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/latest-release-discover-apples-new-macbook-model/"><u>Latest Release: Discover Apple's New MacBook Model</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfect-panning-leading-stabilizers-unveiled-for-2024/"><u>Perfect Panning Leading Stabilizers Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premium-apps-for-gaming-playback-for-2024/"><u>Premium Apps for Gaming Playback for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/section-4c-five-qandas/"><u>Section 4C: Five Q&As</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/srt-transition-subbed-content-conversion-strategies/"><u>SRT Transition Subbed Content Conversion Strategies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-5-essential-mac-live-streaming-apps/"><u>Top 5 Essential Mac Live Streaming Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-alchemy-on-a-pc-transforming-footage-into-youtube-gold-for-2024/"><u>Video Alchemy on a PC Transforming Footage Into YouTube Gold for 2024</u></a></li>
 </ul></div>
 

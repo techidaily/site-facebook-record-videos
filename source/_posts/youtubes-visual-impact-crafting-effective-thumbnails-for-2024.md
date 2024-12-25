@@ -1,7 +1,7 @@
 ---
 title: "\"YouTube's Visual Impact  Crafting Effective Thumbnails for 2024\""
-date: 2024-12-14T02:50:57.720Z
-updated: 2024-12-15T23:06:44.848Z
+date: 2024-12-22T17:49:42.704Z
+updated: 2024-12-25T00:23:27.700Z
 tags:
   - ai video
   - ai youtube
@@ -91,11 +91,19 @@ When we navigate to a Youtube thumbnail and place the cursor on it, it shows us 
 
 ![put-stuff-on-left](https://images.wondershare.com/filmora/article-images/put-stuff-on-left.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. #### Have a unique and Consistent style
 
 Try to make all your thumbnails follow the same style. Following the same style for all your Youtube thumbnails will make your channel look unique and all your videos identical. It will be easy for viewers to identify your videos when they see them. It gives your channel a touch of its unique brand.
 
 ![unique-and-consistent-style](https://images.wondershare.com/filmora/article-images/unique-and-consistent-style.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. #### Use elements to grab the attention
 
@@ -120,7 +128,7 @@ Do you know that Youtube can show a 3-second preview of your video when someone 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make a Fortnite Thumbnail Super Fast and Free?
@@ -131,25 +139,29 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. It contains all your recent gameplays. We can use it to take a screenshot. If you are using a console, you will find 10 recent gameplays here. But if you are a PC user, you can find the last 100 gameplays. Select the gameplay you want to take a screenshot from.
 
 ![ make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. For our preferred angle, choose "Drone Free Camera" mode from the bottom right corner of the screen. It will allow us to use our preferred angle without any restriction. Choose an angle and take a screenshot.
 
 ![ make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot that you have taken from Fortnite.
 
 ![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Place it into the timeline to start working on it.
 
@@ -160,12 +172,16 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 ![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
 ![ make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. This effect will remove the background of your screenshot.
 
@@ -175,10 +191,6 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. To add text to the screenshot, go to Titles. Here you can find a wide range of different and unique titles to choose from for your Fortnite Thumbnail. Choose any of the titles and place them accordingly.
 
 ![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
@@ -187,27 +199,19 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
 ![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
 ![ make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Add a Custom YouTube Thumbnail to Your Video in YouTube
 
@@ -226,11 +230,7 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 ![how-to-add-custom-youtube-thumbnail-to-video-step3](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -256,18 +256,20 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-a-journalistic-closing-statement-for-2024/"><u>[New] Crafting a Journalistic Closing Statement for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-ski-and-snow-cam-unveiled-ultimate-gear-guide/"><u>[New] In 2024, Ski & Snow Cam Unveiled Ultimate Gear Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-conveniently-enjoy-nba-games-top-15-streaming-methods-for-2024/"><u>[Updated] Conveniently Enjoy NBA Games - Top 15 Streaming Methods for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-explore-new-realms-best-iphoneandroid-vr-games-for-2024/"><u>[Updated] Explore New Realms Best iPhone/Android VR Games for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-women-at-war-yts-top-10-gamers/"><u>[Updated] Women at War YT's #Top 10 Gamers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-your-first-step-to-successful-streaming/"><u>[Updated] Your First Step to Successful Streaming</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-alternatives-at-a-glance-choosing-the-best-platforms/"><u>[Updated] YouTube Alternatives at a Glance Choosing the Best Platforms</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-vivo-t2x-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Vivo T2x 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/easy-to-follow-audio-driver-upgrade-realtek-asio-for-windows-1e-step-by-step-guide/"><u>Easy-to-Follow Audio Driver Upgrade: RealTek Asio for Windows 1E | Step by Step Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Infinix Smart 7 HD | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Infinix GT 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-melodic-medley-choosing-the-best-ringtone-websites/"><u>In 2024, Melodic Medley Choosing the Best Ringtone Websites</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-skin-care-secrets-unveiled/"><u>In 2024, Skin Care Secrets Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-top-5-ultra-hd-screens-mastering-hue-and-shade/"><u>[New] 2024 Approved Top 5 Ultra-HD Screens Mastering Hue and Shade</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comprehensive-list-securing-monetized-youtube-content/"><u>[New] In 2024, Comprehensive List Securing Monetized YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-the-joy-of-animated-journeys-youtubes-best-for-everyday/"><u>[New] In 2024, Discover the Joy of Animated Journeys YouTube's Best for Everyday</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-downloading-youtube-playlists-made-simple-and-easy/"><u>[New] In 2024, Downloading YouTube Playlists Made Simple & Easy</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-ranked-top-ios-solutions-for-playing-classic-psp-games-today/"><u>[New] Ranked Top iOS Solutions for Playing Classic PSP Games Today</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/he-rewind-revolution-novel-strategies-for-youtube-viewers-for-2024/"><u>[New] The Rewind Revolution Novel Strategies for YouTube Viewers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-chasing-likes-and-loads-jake-pauls-youtube-ambition-for-2024/"><u>[Updated] Chasing Likes and Loads Jake Paul's YouTube Ambition for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-effortless-guide-to-secure-and-free-youtube-music-downloads-for-2024/"><u>[Updated] Effortless Guide to Secure and Free YouTube Music Downloads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-uploading-beats-youtube-music-setup/"><u>[Updated] Uploading Beats YouTube Music Setup</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-vimeo-vs-youtube-which-is-better/"><u>[Updated] Vimeo vs YouTube Which Is Better?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-comparing-high-end-drone-and-camera-tech/"><u>2024 Approved Comparing High-End Drone & Camera Tech</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-google-pixel-rhythms-the-ideal-online-source/"><u>2024 Approved Google Pixel Rhythms The Ideal Online Source</u></a></li>
+<li><a href="https://win-popular.techidaily.com/fonetool-anleitung-fur-das-klonen-ihres-iphones-auf-einem-ipad-drei-effektive-ansatze-erklart/"><u>FoneTool-Anleitung Für Das Klonen Ihres iPhones Auf Einem iPad – Drei Effektive Ansätze Erklärt</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/overcoming-hp-printing-blockade-oxc4eb827f/"><u>Overcoming HP Printing Blockade: OXC4EB827F</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-snapshot-solution-effortless-iphoneipad-video-production-for-2024/"><u>The Snapshot Solution Effortless iPhone/iPad Video Production for 2024</u></a></li>
 </ul></div>
 

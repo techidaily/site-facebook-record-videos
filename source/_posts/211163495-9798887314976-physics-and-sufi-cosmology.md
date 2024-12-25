@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2024-12-12T02:50:42.448Z
-updated: 2024-12-16T00:59:32.873Z
+date: 2024-12-18T18:22:12.388Z
+updated: 2024-12-24T19:31:57.515Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,18 +175,22 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-guides-to-the-top-10-student-focused-history-vlogs/"><u>[New] In 2024, Essential Guides to the Top 10 Student-Focused History Vlogs</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-mastering-authenticity-on-instagrams-platform/"><u>[Updated] 2024 Approved Mastering Authenticity on Instagram's Platform</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-avoid-and-reverse-strikes-on-your-youtube-account-for-2024/"><u>[Updated] How to Avoid and Reverse Strikes on Your YouTube Account for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieving-success-in-your-youtube-endeavours-a-step-by-step-blueprint/"><u>[Updated] In 2024, Achieving Success in Your YouTube Endeavours A Step-by-Step Blueprint</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/s-most-popular-video-resume-builders-templates-and-tools-inside-for-2024/"><u>S Most Popular Video Resume Builders Templates and Tools Inside for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/solutions-to-microphone-issues-with-xbox-app-on-pc/"><u>Solutions to Microphone Issues with Xbox App on PC</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/spin-the-wheel-of-viewers-how-to-stream-round-the-clock-videos-on-youtube-for-2024/"><u>Spin the Wheel of Viewers How to Stream Round-the-Clock Videos on YouTube for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/wnb-in-your-feeds-facebook-twitter-join-forces/"><u>WNB in Your Feeds: Facebook, Twitter Join Forces</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-tips-for-memorable-youtube-names/"><u>[New] 2024 Approved Expert Tips for Memorable YouTube Names</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-aspect-ratios-for-effective-youtube-videos-for-2024/"><u>[New] Decoding Aspect Ratios for Effective YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-7-ultimate-live-streaming-apps-for-iphone-and-android-users-on-youtube/"><u>[New] In 2024, 7 Ultimate Live Streaming Apps for iPhone and Android Users on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-utilizing-in-device-recording-on-huawei-mate-series-phones-mate-10-mate-20-and-p-series-p20-p10-for-2024/"><u>[New] Utilizing In-Device Recording on Huawei Mate Series Phones (Mate 10, Mate 20) & P Series (P20, P10) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-find-hotspots-for-online-video-dialogue/"><u>[Updated] Find Hotspots for Online Video Dialogue</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/1-top-2-free-tools-for-downloading-anime-from-animedao-a-comprehensive-guide/"><u>1. Top 2 Free Tools for Downloading Anime From Animedao - A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-dynamic-distortion-for-images-and-videos/"><u>2024 Approved Dynamic Distortion for Images & Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-mastering-screen-time-top-6-video-engagement-methods/"><u>In 2024, Mastering Screen Time Top 6 Video Engagement Methods</u></a></li>
+<li><a href="https://games-able.techidaily.com/interactive-escapades-love-for-netflix-gaming-revealed/"><u>Interactive Escapades – Love for Netflix Gaming Revealed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-analytics-audience-insight-crusade-for-2024/"><u>Mastering Instagram Analytics Audience Insight Crusade for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategies-for-dealing-with-dark-video-frames-on-youtube-for-2024/"><u>Strategies for Dealing with Dark Video Frames on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unlocking-the-full-potential-of-ankers-roav-dashcam-c1-thorough-reviews-and-insights/"><u>Unlocking the Full Potential of Anker's Roav DashCam C1: Thorough Reviews & Insights</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
