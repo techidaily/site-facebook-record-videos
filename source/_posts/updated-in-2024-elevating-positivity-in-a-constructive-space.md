@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-12-21T00:29:59.871Z
-updated: 2024-12-24T22:37:56.867Z
+date: 2024-12-28T13:23:48.315Z
+updated: 2025-01-01T20:22:20.376Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-affordable-gear-for-aspiring-content-creators/"><u>[New] In 2024, Affordable Gear for Aspiring Content Creators</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-the-disparities-between-youtube-and-dailymention/"><u>[New] In 2024, Exploring the Disparities Between YouTube and DailyMention</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-no-8-virtual-pixel-mashup-software/"><u>[New] No. 8 Virtual Pixel Mashup Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-tailoring-melodies-for-youtube-personalized-list-creation/"><u>[New] Tailoring Melodies for YouTube Personalized List Creation</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-10-audio-elevators-on-computersmobile/"><u>[New] Ultimate 10 Audio Elevators on Computers/Mobile</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-optimize-youtube-tagstitledescription-for-more-views/"><u>[Updated] How to Optimize YouTube Tags/Title/Description for More Views</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>[Updated] In 2024, DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-live-production-pros-dilemma-pmix-vs-castpro-for-2024/"><u>[Updated] Live Production Pros' Dilemma PMix Vs. CastPro for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-social-media-shifts-yearly-data-visualization-guide/"><u>[Updated] Social Media Shifts Yearly Data Visualization Guide</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/comparative-analysis-of-american-spelling-versus-british/"><u>Comparative Analysis of American Spelling Versus British</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-installation-of-nvidia-1080-drivers-for-windows-11-users-step-by-step/"><u>Easy Installation of NVIDIA 1080 Drivers for Windows 11 Users: Step-by-Step</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/t-recorder-choice-for-high-quality-youtube-content/"><u>Expert Recorder Choice for High-Quality YouTube Content</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-80-pro-straight-screen-edition-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor 80 Pro Straight Screen Edition to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-unlock-apple-iphone-13-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Unlock Apple iPhone 13 without Passcode or Face ID | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premier-visual-quality-leaks/"><u>Premier Visual Quality Leaks</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/seamless-xbox-one-streaming-for-mkv-video-formats-how-to/"><u>Seamless Xbox One Streaming for MKV Video Formats - How To?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlocking-creative-potential-using-google-trends-insights-for-2024/"><u>Unlocking Creative Potential Using Google Trends Insights for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-youtube-visibility-with-tubebuddy-for-2024/"><u>[New] Enhancing YouTube Visibility with TubeBuddy for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-5-frosty-yet-inviting-backdrops-for-your-vids/"><u>[New] In 2024, 5 Frosty Yet Inviting Backdrops for Your Vids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-ad-dollars-boost-your-view-count-for-free/"><u>[New] In 2024, Avoid Ad Dollars – Boost Your View Count for Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-syncing-tunes-with-video-cut-and-paste-youtube-editor-basics/"><u>[New] Syncing Tunes with Video Cut & Paste YouTube Editor Basics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-initial-stages-of-joining-youtube-as-a-chanel-owner/"><u>[New] The Initial Stages of Joining YouTube as a Chanel Owner</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-collect-premium-audio-for-video-editors/"><u>[Updated] Collect Premium Audio for Video Editors!</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-your-video-content-with-desktopmobile-timestamps/"><u>[Updated] In 2024, Elevate Your Video Content with Desktop/Mobile Timestamps</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-quick-tips-to-produce-quality-thumbnails-fast-for-2024/"><u>[Updated] Quick Tips to Produce Quality Thumbnails Fast for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-list-templates-for-youtube-previews/"><u>[Updated] Ultimate List Templates for YouTube Previews</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-essential-podcast-scriptwriting-skills-demystified-examples-included/"><u>2024 Approved Essential Podcast Scriptwriting Skills Demystified (Examples Included)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-your-pathway-to-audio-mastery-download-and-install-vrecorder/"><u>2024 Approved Your Pathway to Audio Mastery - Download & Install VRecorder</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/choe-from-pre-designed-templates-or-create-your-own-custom-design-n-indicates-a-new-line-for-readability/"><u>Choe From Pre-Designed Templates or Create Your Own Custom Design. ( N Indicates a New Line for Readability)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-conversion-of-tod-files-in-the-cloud-easy-with-movavi-tools/"><u>Free Conversion of TOD Files in the Cloud - Easy with Movavi Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/love-in-a-digital-age-chatgpt-to-the-rescue/"><u>Love in a Digital Age: ChatGPT to the Rescue</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-14-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking iPhone 14 Passcode without a Computer</u></a></li>
 </ul></div>
 

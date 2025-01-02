@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Classic Cinematography  Step-by-Step Guide for 2024\""
-date: 2024-12-18T21:21:40.548Z
-updated: 2024-12-24T16:23:10.682Z
+date: 2024-12-29T21:30:32.933Z
+updated: 2025-01-02T09:21:40.045Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Here are some [vintage-style video ideas](https://tools.techidaily.com/wondersha
 * [Part 1: What to Consider When Shooting a Vintage Video?](#part1)
 * [Part 2: How to Create a Stunning Vintage Video?](#part2)
 * [Part 3: Tips to Make Your Vintage Videos Stand Out](#part3)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## What to Consider When Shooting a Vintage Video?
 
@@ -76,10 +72,6 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -90,11 +82,19 @@ The Old Video filter will immediately appear in the list of filters. Tap the **"
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The second step is to apply the Black & White filters. Go to the **Effects** tab and explore five Black & White filters available. Each of these filters is quite different and must be applied accordingly. Check the aesthetic of your video clip before any filter application to retro videos.
 
 **Step 3:** Add the Sun Kissed or Sepia Tone Rise Filters to the video clip
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There are various other categories of filters you can apply, such as Retro, Sun Kissed, and Sepia Tone, etc. The features of Filmora also present several subcategories such as Faux Film or Shake.
 
@@ -106,13 +106,13 @@ On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filt
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, you need to desaturate the video clip with Ash & Willow filters. We have typed Ash in the Search bar, and you can see the filter below. These filters are essential to desaturate the video with preset contrast, brightness, or exposure values.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
@@ -123,7 +123,7 @@ You can also access the Advanced color correction Tab of Filmora from the Color 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
@@ -146,7 +146,7 @@ Surely give a read and thank us later!
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -164,18 +164,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-charting-the-course-from-scale-to-submillions-in-youtube/"><u>[New] 2024 Approved Charting the Course From Scale to Submillions in Youtube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-a-complete-guide-to-aspect-ratios-about-youtube-videosshortsads/"><u>[New] A Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-timeless-videos-with-retro-filmmaking-skills-for-2024/"><u>[New] Crafting Timeless Videos with Retro Filmmaking Skills for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-ace-your-youtube-finances-secrets-for-profits-at-the-500-subscriber-milestone/"><u>[New] In 2024, Ace Your Youtube Finances Secrets for Profits at the 500-Subscriber Milestone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mastery-of-gamers-channel-graphics-with-template-use/"><u>[New] Mastery of Gamers' Channel Graphics with Template Use</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-boosting-video-playback-speed-on-instagram/"><u>2024 Approved Boosting Video Playback Speed on Instagram</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-finest-8-mobile-gaming-experiences-for-gamers-on-the-go/"><u>Discover the Finest 8 Mobile Gaming Experiences for Gamers on the Go</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-s23-ultra-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy S23 Ultra</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-on-your-iphone-14-pro-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password On your iPhone 14 Pro</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-youtube-moguls-and-millionaires/"><u>In 2024, YouTube Moguls and Millionaires</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/optimized-approach-to-delete-unwanted-youtube-posts-for-2024/"><u>Optimized Approach to Delete Unwanted YouTube Posts for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-nokia-g42-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Nokia G42 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-capture-your-best-moments-top-8-mirrorless-cameras-for-you/"><u>[New] 2024 Approved Capture Your Best Moments Top 8 Mirrorless Cameras For You</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-sweep-viewers-off-their-feet-templates-that-work-wonders/"><u>[New] Sweep Viewers Off Their Feet Templates That Work Wonders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-editing-choosing-the-best-for-youtube/"><u>[Updated] Prime Editing Choosing the Best For YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-quick-steps-to-screen-recording-via-ezvid-video-creator-for-2024/"><u>[Updated] Quick Steps to Screen Recording via Ezvid Video Creator for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-spark-your-creativity-with-these-free-tools/"><u>2024 Approved Spark Your Creativity with These Free Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/dive-into-the-world-of-creative-filters-for-zoom-calls-for-2024/"><u>Dive Into the World of Creative Filters for Zoom Calls for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/effortless-driver-updates-for-windows-11-explained-by-yl-software/"><u>Effortless Driver Updates for Windows 11 Explained by YL Software</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-sony-xperia-1-v-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Sony Xperia 1 V If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-oneplus-nord-n30-se-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from OnePlus Nord N30 SE to Another | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-ultimate-snapchat-plus-twitter-duo-video-posting-guide/"><u>In 2024, The Ultimate Snapchat + Twitter Duo (Video Posting Guide)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-iphone-audio-messaging-features-step-by-step/"><u>Mastering iPhone Audio Messaging Features Step-by-Step</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimal-video-techniques-to-dominate-freefire-vlogs-for-2024/"><u>Optimal Video Techniques to Dominate FreeFire Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/recovering-youtube-gems-2-easy-watch-methods-revealed-for-2024/"><u>Recovering Youtube Gems 2 Easy Watch Methods Revealed for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/soundscape-storytelling-at-its-best/"><u>Soundscape Storytelling at Its Best</u></a></li>
 </ul></div>
 

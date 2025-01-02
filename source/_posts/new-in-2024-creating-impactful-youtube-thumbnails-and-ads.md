@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Creating Impactful YouTube Thumbnails & Ads"
-date: 2024-07-31T02:51:24.126Z
-updated: 2024-08-01T02:51:24.126Z
+date: 2024-12-31T11:21:14.179Z
+updated: 2025-01-02T10:25:22.800Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,25 +67,27 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -95,12 +95,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-crafting-compelling-thumbnails-to-captivate-youtube-viewers-and-encourage-clicks/"><u>[New] 2024 Approved Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-1000-club-achievement-monthly-tips-for-insta-success-and-growth/"><u>[New] 2024 Approved The 1,000 Club Achievement Monthly Tips for Insta Success and Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-content-creation-premier-android-editors/"><u>[Updated] 2024 Approved Cutting-Edge Content Creation Premier Android Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-streams-to-next-level-with-av1-on-youtube/"><u>[Updated] 2024 Approved Elevate Streams to Next Level with AV1 on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-leading-video-tech-best-cameras-s-musical-scenes/"><u>[Updated] 2024 Approved Leading Video Tech Best Cameras 'S Musical Scenes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dismantling-the-profit-strategy-of-tseries-on-digital-platforms-youtube/"><u>[Updated] In 2024, Dismantling the Profit Strategy of TSeries on Digital Platforms (YouTube)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-5-youtube-link-shortener-you-must-try/"><u>[Updated] Top 5 YouTube Link Shortener You Must Try</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-avoiding-unwanted-accounts-on-insta/"><u>2024 Approved Avoiding Unwanted Accounts on Insta</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-monetization-changes-500-subscribers-now-eligible/"><u>2024 Approved YouTube Monetization Changes 500 Subscribers Now Eligible</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-samsung-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Samsung FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-xr21-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia XR21 To Phone | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-top-video-professionals-for-2024/"><u>Navigating Top Video Professionals for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/reel-in-the-future-top-5-ps-vr-games-on-the-brink-of-launch-for-2024/"><u>Reel in the Future Top 5 PS VR Games on The Brink of Launch for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/solutions-for-disabling-random-windows-shortcuts/"><u>Solutions for Disabling Random Windows Shortcuts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-9-smartphone-lenses-and-gimbals-for-dynamic-videography-for-2024/"><u>Top 9 Smartphone Lenses & Gimbals for Dynamic Videography for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-your-footage-best-free-android-editors-reviewed-for-2024/"><u>Transform Your Footage Best Free Android Editors Reviewed for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/understanding-the-differences-between-sonys-flagship-consoles-ps5-and-ps5-slim-models/"><u>Understanding the Differences Between Sony's Flagship Consoles: PS5 and PS5 Slim Models</u></a></li>
+</ul></div>
 

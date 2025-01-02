@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Beauty Vlogs From Basics to Brilliance  Launching a YouTube Channel\""
-date: 2024-07-31T02:53:55.364Z
-updated: 2024-08-01T02:53:55.364Z
+date: 2024-12-31T09:26:48.563Z
+updated: 2025-01-02T04:44:54.747Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 
 # How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,27 +27,20 @@ thumbnail: https://thmb.techidaily.com/acb788606a304c096daa8263d45d00ea2b9351615
 Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## YouTube Beauty Vlogger Set Up
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
 
 #### 1\. Light It Up
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -80,11 +70,11 @@ You have a lot to say, so make sure people can hear you. Most cameras do not hav
 
 If you do not have access to an external mic then you may be able to get by without one for a while using software. Make sure there is no background noise competing with your voice, and download a free audio editing program called Audacity from Audacityteam.org. Using Audacity you will be able to improve a mediocre audio recording from your camera and make it usable. This is a popular option among YouTube gamers who record both video and audio from their webcams, but there is no reason it should not be useful for beauty gurus too.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -92,12 +82,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-pros-picks-5-best-low-frame-rate-recorders/"><u>[New] Pros' Picks 5 Best Low Frame Rate Recorders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-entry-level-expenditure-cost-effective-platforms-for-youtube-purchases/"><u>[Updated] 2024 Approved Entry-Level Expenditure Cost-Effective Platforms for YouTube Purchases</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-creating-dynamic-content-with-youtube-playlist-embedding-for-2024/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-elevate-your-online-impact-with-effective-backlink-strategies-for-2024/"><u>[Updated] Elevate Your Online Impact with Effective Backlink Strategies for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-enhance-your-cinematic-experience-camera-upgrade-tips/"><u>[Updated] Enhance Your Cinematic Experience - Camera Upgrade Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-epic-battle-royale-thumbnails-done-fast/"><u>[Updated] Epic Battle Royale Thumbnails, Done Fast!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expanding-your-reach-a-complete-guide-to-popularizing-youtube-shorts-for-2024/"><u>[Updated] Expanding Your Reach A Complete Guide to Popularizing YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-finest-wedding-cinematography-youtube-and-vimeos-selection-for-2024/"><u>[Updated] Exploring the Finest Wedding Cinematography - Youtube & Vimeo's Selection for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-leveraging-famebits-expertise-for-maximum-youtube-affiliate-gains/"><u>[Updated] Leveraging FameBit's Expertise for Maximum YouTube Affiliate Gains</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-outro-samples-collection-including-both-costs-for-2024/"><u>[Updated] Outro Samples Collection Including Both Costs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-understanding-youtubes-user-interaction-options/"><u>[Updated] Understanding YouTube's User Interaction Options</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-syncing-youtube-optimizing-screen-viewing-for-live-tv-audiences/"><u>2024 Approved Syncing YouTube Optimizing Screen Viewing for Live TV Audiences</u></a></li>
+<li><a href="https://techtrends.techidaily.com/decoding-tech-ageism-how-apple-defines-vintage-and-obsolete-devices-insights-from-zdnet/"><u>Decoding Tech Ageism: How Apple Defines Vintage and Obsolete Devices | Insights From ZDNET</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/revenues-forecasting-toolkit-for-vids/"><u>Fast Revenues Forecasting Toolkit for Vids</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/learn-the-ins-and-outs-of-adding-gifs-on-instagram-in-4-steps-for-2024/"><u>Learn the Ins and Outs of Adding GIFs on Instagram in 4 Steps for 2024</u></a></li>
+</ul></div>
 

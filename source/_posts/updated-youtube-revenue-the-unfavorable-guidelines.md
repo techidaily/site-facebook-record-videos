@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Revenue  The Unfavorable Guidelines\""
-date: 2024-07-31T02:48:49.668Z
-updated: 2024-08-01T02:48:49.668Z
+date: 2024-12-28T22:10:18.557Z
+updated: 2025-01-01T22:18:08.659Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997
 
 # YouTube Monetization: The New Rules Everyone Hates
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,8 +37,9 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 7. [Don't Give Up!](#dontquit)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -57,10 +55,6 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -70,8 +64,9 @@ However, even if the immediate financial impact won’t be that financially sign
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -82,15 +77,16 @@ Cough. Logan Paul. Cough.
 
 ####  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
 2. Link your videos together using cards and interactive end screens/outros.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -100,8 +96,9 @@ Cough. Logan Paul. Cough.
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -110,13 +107,15 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -124,4 +123,27 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-designing-a-trailer-blueprint-to-amplify-channel-income/"><u>[New] 2024 Approved Designing a Trailer Blueprint to Amplify Channel Income</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-visibility-with-youtube-branding-techniques/"><u>[New] 2024 Approved Elevate Your Visibility with YouTube Branding Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-youtube-thumbnails-capture-your-top-views/"><u>[New] In 2024, Essential YouTube Thumbnails Capture Your Top Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beginners-bane-the-top-8-youtube-errors-you-shouldnt-commit/"><u>[Updated] In 2024, Beginner's Bane The Top 8 Youtube Errors You Shouldn't Commit</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-the-course-of-youtube-success-through-social-blade-analysis/"><u>[Updated] In 2024, Charting the Course of YouTube Success Through Social Blade Analysis</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-iphones-secret-to-time-extended-videography/"><u>[Updated] IPhone's Secret to Time-Extended Videography</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-propel-your-youtube-content-faster-render-and-efficient-upload-processes/"><u>[Updated] Propel Your YouTube Content Faster Render & Efficient Upload Processes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-11-budget-friendly-creativity-for-youtube-names/"><u>[Updated] Unlock 11 Budget-Friendly Creativity for YouTube Names</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/1728479691817-windows-1011/"><u>转移Windows 10或11系统中的硬盘数据: 三种高效技巧</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-oppo-reno-11-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Oppo Reno 11 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-narzo-60-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Realme Narzo 60 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1715860522066-internal-recorder-usage-for-capturing-screens-on-mate-series-and-p-series-mate-1020-p2010-for-2024/"><u>Internal Recorder Usage for Capturing Screens on Mate Series & P Series (Mate 10/20; P20/10). For 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-y17s-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo Y17s? Fixed | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/mac-audio-sync-for-screen-captures/"><u>Mac Audio Sync for Screen Captures</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/prime-choices-webcams-on-windows-10-for-2024/"><u>Prime Choices Webcams on Windows 10 for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-to-exporting-your-video-from-adobe-after-effects/"><u>Step-by-Step Guide to Exporting Your Video From Adobe After Effects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tips-for-higher-youtube-traction-with-persistent-creative-commons-usage-for-2024/"><u>Tips for Higher YouTube Traction with Persistent Creative Commons Usage for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-microphones-for-various-youtube-content-creators-for-2024/"><u>Top Microphones for Various YouTube Content Creators for 2024</u></a></li>
+</ul></div>
 

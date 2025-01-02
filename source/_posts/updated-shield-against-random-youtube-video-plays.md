@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Shield Against Random YouTube Video Plays"
-date: 2024-07-31T02:48:41.777Z
-updated: 2024-08-01T02:48:41.777Z
+date: 2024-12-30T17:42:33.495Z
+updated: 2025-01-02T10:51:15.032Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/dccb34317888d85bf5b03242f6ff077822b2720dd
 
 # YouTube Recommended Videos - Block the Videos I Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,14 +38,8 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Manage Your Watch History
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
@@ -58,11 +49,16 @@ You will be able to completely clear your watch history, remove specific videos 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tell YouTube You Aren’t Interested
 
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -73,8 +69,9 @@ Hover over the thumbnail of a video you don’t want to be recommended to you an
 When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## But Why Does It Recommend Stuff I Don’t Like?
 
 Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
@@ -92,9 +89,14 @@ The only way to stop certain types of videos from being recommended for you is t
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -102,12 +104,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-revenue-with-the-perfect-youtube-trailer-strategy/"><u>[New] 2024 Approved Boosting Revenue with the Perfect YouTube Trailer Strategy</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-guiding-imovie-content-from-home-studio-to-youtube-hub-for-2024/"><u>[New] Guiding iMovie Content From Home Studio to YouTube Hub for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-80plus-catchy-cooking-channel-names-to-attract-more-audience/"><u>[New] In 2024, 80+ Catchy Cooking Channel Names to Attract More Audience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-leverage-video-platforms-with-targeted-sharing-techniques/"><u>[New] Leverage Video Platforms with Targeted Sharing Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-tips-for-designing-and-updating-igtv-thumbnails/"><u>[New] Tips for Designing & Updating IGTV Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-android-beat-best-free-apps-for-downloading-youtube-tunes/"><u>[Updated] 2024 Approved Android Beat Best Free Apps for Downloading YouTube Tunes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-amplify-content-with-free-audio-samples/"><u>[Updated] Amplify Content with Free Audio Samples!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps-for-2024/"><u>[Updated] Crafting a Customized Soundscape YouTube Playlist Building on the Internet/Apps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-double-your-watch-time-on-youtube-with-these-tips-for-2024/"><u>[Updated] Double Your Watch Time on YouTube with These Tips for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elite-gamers-showcase-premium-setups-unveiled-for-2024/"><u>[Updated] Elite Gamers' Showcase – Premium Setups Unveiled for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-youtube-video-edits-the-ultimate-step-by-step-guide/"><u>[Updated] Mastering YouTube Video Edits The Ultimate Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/10-instagram-hashtag-that-you-should-be-using-today-for-2024/"><u>10 Instagram Hashtag That You Should Be Using Today for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/every-game-unveiled-for-playstation-vr2-ultimate-collection-and-official-listing/"><u>Every Game Unveiled for PlayStation VR2: Ultimate Collection and Official Listing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/golden-5-premier-macsierra-dvd-makers/"><u>Golden 5 Premier MacSierra Dvd Makers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-audio-recording-top-mics-for-4k-video/"><u>In 2024, Mastering Audio Recording - Top Mics for 4K Video</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1723011911491-resolved-microsoft-flight-simulator-2020-update-errors-fixed/"><u>Resolved: Microsoft Flight Simulator 2020 - Update Errors Fixed</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/showcase-your-touchpad-regain-control/"><u>Showcase Your Touchpad, Regain Control!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-surprises-10-androidios-audio-twisters/"><u>Sound Surprises 10 Android/iOS Audio Twisters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unveiling-the-art-of-screencasting-orderly-tutorial-series/"><u>Unveiling the Art of Screencasting Orderly Tutorial Series</u></a></li>
+</ul></div>
 

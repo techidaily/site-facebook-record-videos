@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Laugh Out Loud  Crafting Humorous Video Ideas for Short Films\""
-date: 2024-12-18T19:56:40.221Z
-updated: 2024-12-24T19:27:20.472Z
+date: 2024-12-28T16:10:18.765Z
+updated: 2025-01-01T16:26:05.322Z
 tags:
   - ai video
   - ai youtube
@@ -31,7 +31,7 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
@@ -46,10 +46,6 @@ Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you hav
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
 #### Idea 2: Story Timeline Series
@@ -57,10 +53,6 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
@@ -89,7 +81,7 @@ If experimenting with chemicals or anything that surrounds you makes you out of 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
@@ -100,6 +92,10 @@ Competition creates a zeal to lead, and if you add some flavor to it. Then, peop
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
 #### Idea 7: Quirky Music
@@ -107,10 +103,6 @@ Funny competition can vary from a weird hairstyle, odd season festival celebrati
 The dripping sound of water, raindrops, flowing trees, and blowing air make some distinct sound. So, look around to find your inspiration to make some quirky sound, whether the musical instrument or can create your kind of instrument such as tumbler, glass, bowl, etc. And see the natural flow of music that resides all around us.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-8.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Just give it a try and dance with the music you create with all the worldwide listeners of YouTube Shorts Channel with this idea.
 
@@ -135,6 +127,10 @@ You will be surprised to see how much fun-loving these cute pets are—so, geare
 Everybody holds some unique talent. You just need to identify it. If you have some talent, then showcasing talent ideas for YouTube Shorts will apt you. The whole world is waiting to see something unique that only you can do. So, shred your shyness and let the world see how talented you are.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
 
@@ -186,6 +182,10 @@ Thus, start utilizing these powerful ideas and tips and head towards your YouTub
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -201,20 +201,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-backtrack-your-youtube-queue-swiftly-and-sweetly/"><u>[New] 2024 Approved Backtrack Your YouTube Queue, Swiftly & Sweetly</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-breaking-down-barriers-combining-obs-with-zoom-for-2024/"><u>[New] Breaking Down Barriers Combining OBS with Zoom for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-leveraging-your-smartphone-a-2024-tutorial-on-youtubing-money/"><u>[New] Leveraging Your Smartphone A 2024 Tutorial on YouTubing Money</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-mastering-multimedia-slides-with-speech-recordings-powerpoint/"><u>[New] Mastering Multimedia Slides with Speech Recordings (PowerPoint)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-monetization-metrics-viewers-contribution-to-earnings/"><u>[New] Monetization Metrics Viewers' Contribution to Earnings</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-nurturing-audience-growth-mastering-live-streaming-with-onestream/"><u>[Updated] Nurturing Audience Growth Mastering Live Streaming with OneStream</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-deciphering-the-art-of-voice-documentation/"><u>2024 Approved Deciphering the Art of Voice Documentation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-oneplus-nord-3-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track OnePlus Nord 3 5G Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-immersive-experiences-the-metaverse-explored-through-6-models/"><u>In 2024, Immersive Experiences The Metaverse Explored Through 6 Models</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-oneplus-11r-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 OnePlus 11R Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/optimizing-youtube-content-for-top-views-for-2024/"><u>Optimizing YouTube Content for Top Views for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/ranking-top-10-budget-friendly-video-editing-apps-for-2024/"><u>Ranking Top 10 Budget-Friendly Video Editing Apps for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/setting-up-your-own-mac-based-sports-chat-space-for-2024/"><u>Setting Up Your Own Mac-Based Sports Chat Space for 2024</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/step-by-step-tutorial-seamlessly-transferring-your-outlook-backup-emails/"><u>Step-by-Step Tutorial: Seamlessly Transferring Your Outlook Backup Emails</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-video-game-systems-in-2/"><u>Top-Rated Video Game Systems in 2</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-tips-for-youtube-thumbnail-design-for-2024/"><u>[New] Essential Tips for YouTube Thumbnail Design for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-budget-friendly-bundles-startup-channels-for-newcomers/"><u>[New] In 2024, Budget-Friendly Bundles Startup Channels for Newcomers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-blueprint-for-successful-freefire-videos-on-youtube/"><u>[New] The Ultimate Blueprint for Successful FreeFire Videos on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-your-creativity-crafting-youtube-trailers-in-filmora-for-2024/"><u>[Updated] Channel Your Creativity Crafting YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-essential-guides-to-the-top-10-student-focused-history-vlogs-for-2024/"><u>[Updated] Essential Guides to the Top 10 Student-Focused History Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decrypting-youtubes-view-count-calculation-system/"><u>[Updated] In 2024, Decrypting YouTube’s View-Count Calculation System</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-use-creative-commons-copyright-licenses-complete-guide/"><u>[Updated] In 2024, How to Use Creative Commons Copyright Licenses [Complete Guide]</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-perspectives-perfected-top-11-bridging-camera-reviews/"><u>[Updated] In 2024, Perspectives Perfected Top 11 Bridging Camera Reviews</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-optimizing-views-understanding-the-key-rankers-for-youtubers/"><u>[Updated] Optimizing Views Understanding the Key Rankers for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-flawless-loops-on-youtube-with-these-tips/"><u>[Updated] Unlock Flawless Loops on YouTube with These Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-viral-talent-quest-episodes-1-10/"><u>[Updated] Viral Talent Quest Episodes #1-10</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-kickstart-cinematic-craft-install-xp-movie-maker/"><u>2024 Approved Kickstart Cinematic Craft Install XP Movie Maker</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-crafting-effective-youtube-thumbnails-and-banners/"><u>In 2024, Crafting Effective YouTube Thumbnails & Banners</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-the-game-how-googles-ai-takes-on-novice-table-tennis-rivals/"><u>Mastering the Game: How Google’s AI Takes on Novice Table Tennis Rivals</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unleashing-creative-possibilities-how-to-harness-the-power-of-photo-cutout-in-ios-16-on-your-iphone/"><u>Unleashing Creative Possibilities: How to Harness the Power of Photo Cutout in iOS 16 on Your iPhone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-the-ultimate-guide-for-the-10-leading-slow-motion-cameras/"><u>Updated 2024 Approved The Ultimate Guide for the 10 Leading Slow-Motion Cameras</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Block YouTube Ads on Chrome/Firefox/Android/iPhone"
-date: 2024-12-22T17:34:21.237Z
-updated: 2024-12-24T16:21:13.999Z
+date: 2024-12-25T22:39:00.772Z
+updated: 2025-01-01T21:39:41.102Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ In case you care about and want to support content creators on YouTube, you can 
 However, as most of us won’t like the idea of paying for a free service, there are possible solutions of how to block YouTube ads in Chrome or Firefox. You will need to install a third-party browser extension proficient in blocking the annoying YouTube ads in Google Chrome or Mozilla Firefox.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1.Google Chrome
@@ -54,31 +54,15 @@ Chrome allows you to have extensions to enhance the browser features and interac
 
 ![more tools](https://images.wondershare.com/filmora/article-images/open-google1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * 3\. In the Extensions tap the “Main menu” at the left-hand side. It will show the menu here open the Chrome Web Store. Or you can simply open [Chrome Web Store](https://chrome.google.com/webstore/category/extensions?hl=en-GB)
 
 ![main menu](https://images.wondershare.com/filmora/article-images/main-menu2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 4\. You will need to sign in with your Google account if you’re not already signed in.
 * 5\. In the search box type “ad blocker YouTube” and tap enter. You’ll see a list of ad blockers available for chrome.
 * 6\. You will adblocker’s specifically for YouTube ads. Select whichever you like and it will block the YouTube ads on Chrome.
 
 ![block ads](https://images.wondershare.com/filmora/article-images/block-ads-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2.Mozilla Firefox
 
@@ -88,17 +72,21 @@ You can also install third-party extensions to block YouTube ads from popping up
 
 ![open firefox](https://images.wondershare.com/filmora/article-images/open-firefox4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. In the search bar “Find more extensions” type “ad blocker YouTube” and press enter.
 
 ![find more extension](https://images.wondershare.com/filmora/article-images/find-more-extension5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 3\. Select an appropriate ad blocker and it will protect you from the irritating ads.
 
 ![select appropriate ad](https://images.wondershare.com/filmora/article-images/block-add-on6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 4\. Tap the “Add to Firefox” to download the extension.
 
@@ -108,15 +96,15 @@ You can also install third-party extensions to block YouTube ads from popping up
 
 ![grant the permissions](https://images.wondershare.com/filmora/article-images/grant-the-permission8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 2: How to block YouTube ads on the mobile phone (Android & iPhone)**
 
 Ads can cause inconvenience and make YouTube watching a sour experience. To protect yourself from the constant nagging ads on mobile platforms both Android and iPhone you can utilize the numerous ad-blocking apps for Android and iOS. Though the simplest method of blocking the ads and watch YouTube content without ads is to use the Adblock Browser available both for both devices at Google Play Store and Apple Store. This technique won’t require you to root your Android phone or jailbreak the iPhone for watching ad-free YouTube videos.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1.Android
 
@@ -126,18 +114,22 @@ Android is pretty flexible and allows you to add many feature-rich third-party a
 
 ![install adblock](https://images.wondershare.com/filmora/article-images/install-adblock1-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. It is a full-fledged browser and can act as your primary browser for YouTube playback.
 
 ![open browser](https://images.wondershare.com/filmora/article-images/open-browser2-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. After installing the Adblock Browser your Android device may still try to play videos in the YouTube app.
 * 4\. To current that, open the “Settings” on your Android and go to “Apps & notifications” and press See all. In the apps find YouTube, tap in to see app info.
 
 ![apps and notifications](https://images.wondershare.com/filmora/article-images/apps-and-notifications3-min.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * 5\. In the App info screen click “Storage & cache”.
 
@@ -158,12 +150,16 @@ On iOS, you can keep using the default iOS browser and still be able to block Yo
 ![download any blocker](https://images.wondershare.com/filmora/article-images/download-any-blocker6-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * 2\. Now come to the iPhone device Settings and go to Safari.
 
 ![iphone device settings](https://images.wondershare.com/filmora/article-images/iphone-device-settings7-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. In the Safari settings, you will find a “Block Pop-ups” toggle button, activate it.
 * 4\. Right below the toggle button, you’ll see the “Content Blockers” tap to configure it.
@@ -173,6 +169,10 @@ On iOS, you can keep using the default iOS browser and still be able to block Yo
 * 5\. The ad blocker app you just downloaded will be displaying under Allow these content blockers, enable it with the toggle button.
 
 ![allow blocker](https://images.wondershare.com/filmora/article-images/allow-blocker9-min.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 6\. Now your Safari browser will block all YouTube ads during playback.
 
@@ -197,19 +197,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-copyright-safe-techniques-for-youtube-to-mp4/"><u>[New] 2024 Approved Copyright-Safe Techniques for Youtube-to-MP4</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs-for-2024/"><u>[New] Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-user-friendly-guide-to-starting-an-effective-group-chat-on-skype-across-multiple-platforms/"><u>[Updated] 2024 Approved The Ultimate User-Friendly Guide to Starting an Effective Group Chat on Skype Across Multiple Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-tools-simplifying-the-task-of-feedback-erasure-for-2024/"><u>[Updated] Efficient Tools Simplifying the Task of Feedback Erasure for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-study-aids-top-10-educational-history-channels/"><u>[Updated] Study Aids Top 10 Educational History Channels</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/1-wie-loschen-sie-geloschte-dateien-aus-dem-usb-speicher-erfolgreich-in-den-desktop-recyclingbehalter-verschieben/"><u>1. Wie Löschen Sie Gelöschte Dateien Aus Dem USB-Speicher Erfolgreich in Den Desktop-Recyclingbehälter Verschieben?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-soundtrack-anytime-anywhere-6-top-ranked-free-apps-to-download-youtube-music/"><u>2024 Approved Your Soundtrack, Anytime, Anywhere 6 Top-Ranked Free Apps to Download Youtube Music</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-pop-culture-sounds-to-your-ringtone-a-compreeved-guide-for-2024/"><u>From Pop Culture Sounds to Your Ringtone A Compreeved Guide for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-oneplus-12-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-apple-iphone-se-2020-smoothly-by-drfone-ios/"><u>How To Remove iCloud From Apple iPhone SE (2020) Smoothly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/professional-video-tweaks-with-these-top-8-free-editing-apps-for-2024/"><u>Professional Video Tweaks with These Top 8 Free Editing Apps for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/rediscovering-my-smartphone-after-three-years-an-in-depth-analysis-for-tech-enthusiasts-zdnet-insights/"><u>Rediscovering My Smartphone After Three Years: An In-Depth Analysis for Tech Enthusiasts | ZDNET Insights</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-pros-handbook-to-perfecting-your-gopro-studio-project/"><u>The Pro's Handbook to Perfecting Your GoPro Studio Project</u></a></li>
-<li><a href="https://win-latest.techidaily.com/1726027411272-windows-1011wav/"><u>Windows 10/11向けWAV形式ファイル仕様チェック</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-8-best-free-video-editing-software-for-youtube/"><u>[Updated] 2024 Approved 8 Best Free Video Editing Software for YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-demystifying-creator-studio-a-practical-handbook/"><u>[Updated] 2024 Approved Demystifying Creator Studio A Practical Handbook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-7-tips-to-make-your-tasty-cooking-videos/"><u>[Updated] 7 Tips to Make Your Tasty Cooking Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audio-outliers-best-sound-distortion-apps-for-your-device-for-2024/"><u>[Updated] Audio Outliers Best Sound Distortion Apps for Your Device for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-channels-traffic-and-value-with-innovative-hashtags-for-2024/"><u>[Updated] Boost Your Channels' Traffic & Value with Innovative Hashtags for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-building-a-broad-spectrum-audience-with-multichannel-strategy/"><u>[Updated] In 2024, Building a Broad-Spectrum Audience with Multichannel Strategy</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-inside-spaces-weaving-in-the-essence-of-daylight/"><u>[Updated] Inside Spaces Weaving in the Essence of Daylight</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-identity-verification-a-deep-dive-into-ig-selfies/"><u>[Updated] Mastering Identity Verification A Deep Dive Into IG Selfies</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-list-mastering-youtubes-best-music-reaction-videos/"><u>[Updated] The Ultimate List Mastering YouTube's Best Music Reaction Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-editing-tutorial-mastering-video-cuts/"><u>2024 Approved YouTube Editing Tutorial Mastering Video Cuts</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-windows-11-0x80240034-update-issue-a-complete-solution/"><u>How to Fix Windows 11 0X80240034 Update Issue: A Complete Solution</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-poco-c65-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Poco C65 Device SIM</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-wevideo-where-video-creation-meets-simplicity/"><u>New In 2024, WeVideo Where Video Creation Meets Simplicity</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/understanding-chinas-role-in-the-treaty-of-versailles-a-deep-dive-with-yl-computing-and-yl-software/"><u>Understanding China's Role in the Treaty of Versailles: A Deep Dive with YL Computing and YL Software</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-best-free-video-watermark-software-for-beginners-for-2024/"><u>Updated The Best Free Video Watermark Software for Beginners for 2024</u></a></li>
 </ul></div>
 

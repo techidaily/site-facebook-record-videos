@@ -1,7 +1,7 @@
 ---
 title: "[New] Configure YouTube's Audience Options with Ease for 2024"
-date: 2024-07-31T02:51:14.911Z
-updated: 2024-08-01T02:51:14.911Z
+date: 2024-12-28T03:32:15.884Z
+updated: 2025-01-01T22:02:50.009Z
 tags:
   - ai video
   - ai youtube
@@ -39,8 +39,9 @@ thumbnail: https://www.lifewire.com/thmb/v85bfyovlFrSzqb3hpw7d5XyR5c=/400x300/fi
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -61,14 +62,8 @@ thumbnail: https://www.lifewire.com/thmb/v85bfyovlFrSzqb3hpw7d5XyR5c=/400x300/fi
 
  It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -85,24 +80,30 @@ thumbnail: https://www.lifewire.com/thmb/v85bfyovlFrSzqb3hpw7d5XyR5c=/400x300/fi
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
@@ -117,12 +118,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>[New] 2024 Approved A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-embed-audios-in-microsoft-powerpoint-slides/"><u>[New] 2024 Approved Embed Audios in Microsoft PowerPoint Slides</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-leveraging-multiple-channels-to-boost-online-visibility/"><u>[New] In 2024, Leveraging Multiple Channels to Boost Online Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailored-trends-the-pathway-to-a-specialized-youtube-niche/"><u>[New] Tailored Trends The Pathway to a Specialized Youtube Niche</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-guide-to-exceptional-online-marketing-savor-our-selection-of-50-free-ads/"><u>[New] Your Guide to Exceptional Online Marketing – Savor Our Selection of 50 FREE Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>[Updated] 2024 Approved Elevate Your Content A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-strategies-for-effective-content-management-in-creator-studio/"><u>[Updated] 2024 Approved Essential Strategies for Effective Content Management in Creator Studio</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevating-your-show-with-expert-rss-feed-craftsmanship/"><u>[Updated] Elevating Your Show with Expert RSS Feed Craftsmanship</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-learning-to-capture-virtual-conferences-without-costs/"><u>[Updated] In 2024, Learning to Capture Virtual Conferences Without Costs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-unlocking-crossfade-magic-using-audacity-effectively-for-2024/"><u>[Updated] Unlocking Crossfade Magic Using Audacity Effectively for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-outros-that-grow-your-channel-faster/"><u>2024 Approved YouTube Outros that Grow Your Channel Faster</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-realme-12plus-5g-frp-bypass-by-drfone-android/"><u>About Realme 12+ 5G FRP Bypass</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-studio-for-beginners-basic-to-pro-editing-guide/"><u>In 2024, YouTube Studio for Beginners Basic to Pro Editing Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/reel-in-your-audience-with-professional-ipadiphone-podcasting-hacks-for-2024/"><u>Reel in Your Audience with Professional IPad/iPhone Podcasting Hacks for 2024</u></a></li>
+</ul></div>
 
