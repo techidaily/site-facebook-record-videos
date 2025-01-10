@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating Online Hostility on Video Platforms"
-date: 2024-07-31T02:41:47.917Z
-updated: 2024-08-01T02:41:47.917Z
+date: 2025-01-04T22:06:09.149Z
+updated: 2025-01-09T16:40:55.424Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/LDGDXhBhUDNkoiB2mRPsMRdSznw=/400x300/fi
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://www.lifewire.com/thmb/LDGDXhBhUDNkoiB2mRPsMRdSznw=/400x300/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://www.lifewire.com/thmb/LDGDXhBhUDNkoiB2mRPsMRdSznw=/400x300/fi
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,12 +68,25 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-analyzing-youtubes-process-for-selective-comment-showcasing-for-2024/"><u>[New] Analyzing YouTube's Process for Selective Comment Showcasing for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-audio-wizardry-in-action-techniques-for-professional-video-sound-recording/"><u>[Updated] In 2024, Audio Wizardry in Action Techniques for Professional Video Sound-Recording</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-delving-into-trending-video-exchange/"><u>[Updated] In 2024, Delving Into Trending Video Exchange</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-demystifying-the-process-of-writing-youtube-video-content/"><u>[Updated] In 2024, Demystifying the Process of Writing YouTube Video Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/be-a-part-of-the-buzz-top-10-tiktok-tests/"><u>Be a Part of the Buzz Top 10 TikTok Tests</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-for-fixing-overwatch-not-working-voice-chat-issues-instantly/"><u>Expert Tips for Fixing 'Overwatch Not Working' Voice Chat Issues Instantly</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-for-fixing-stubborn-airpods-that-wont-restart-properly/"><u>Expert Tips for Fixing Stubborn AirPods That Won't Restart Properly</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-12-4g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 12 4G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-your-video-calls-google-meet-on-youtube-guide-for-2024/"><u>Transform Your Video Calls Google Meet on YouTube Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/vfx-essentials-unlocked-top-8-sites-for-free-high-quality-green-screen-imagery-for-2024/"><u>VFX Essentials Unlocked Top 8 Sites for FREE High-Quality Green Screen Imagery for 2024</u></a></li>
+</ul></div>
 

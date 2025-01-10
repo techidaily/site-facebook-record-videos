@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Creating Dynamic Content with YouTube Playlist Embedding for 2024"
-date: 2024-12-31T12:57:14.550Z
-updated: 2025-01-02T07:51:36.946Z
+date: 2025-01-05T00:29:54.129Z
+updated: 2025-01-10T01:09:20.762Z
 tags:
   - ai video
   - ai youtube
@@ -24,6 +24,10 @@ To help you with the process, we'll explore different step-by-step methods to em
 
 So, if you're ready to get started, read on!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Embed a YouTube Playlist on a Website
 
 If you want to embed and display a YouTube playlist on your website, we'll give you a complete rundown of the three methods you can try to get this done. But, of course, each method has its pros and cons, so you'll need to decide which is right for you.
@@ -31,7 +35,7 @@ If you want to embed and display a YouTube playlist on your website, we'll give 
 Here's **how to embed a YouTube playlist on a Website:**
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Embedding a YouTube Playlist on Website Using WordPress Plugin
@@ -60,17 +64,25 @@ Step5 Select the Playlist you want to display on your WordPress website and take
 
 ![adding playlist id to embed in website](https://images.wondershare.com/filmora/article-images/2023/03/adding-playlist-id-to-embed-in-website.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Your YouTube playlist will be connected to your WordPress website. To further customize it, select the template you want and click **"Next."** You can also configure the **Feed Layout** and **Color Scheme.**
 
 ![customizing youtube playlist embedded in website](https://images.wondershare.com/filmora/article-images/2023/03/customizing-youtube-playlist-embedded-in-website.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step6 Once you are done with customization, click the **"Embed"** option on the top-right side of the screen, and a pop-up window will appear. Next, click **"Add to a Page,"** and a list of pages on your website will be displayed.
 
 ![adding playlist to website page](https://images.wondershare.com/filmora/article-images/2023/03/adding-playlist-to-website-page.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Choose your page and click **"Add"** at the bottom of the pop-up window. You'll be directed to a new page where you can embed the feed. Click the **"Plus"** icon at the top-left of the screen, search for **YouTube Feed** and choose the **Feeds for YouTube** block to embed and add your playlist.
 
@@ -91,10 +103,6 @@ Step2 Now, login to your WordPress dashboard and open the post or page editor wh
 Step3 Paste the URL directly in the editor and click **"Update"** to save the changes.
 
 WordPress will grab your playlist from YouTube and automatically show it in your post using oEmbed. The outcome is a single video with a menu that your viewers can click to see other videos in the playlist.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Embedding a YouTube Playlist on WebsiteUsing <iframe >
 
@@ -132,10 +140,6 @@ Some key features of Wondershare Filmora are as follows:
 * Record from webcam, screen, and voiceover.
 * Simple drag-and-drop interface.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 This article discusses step-by-step methods **to embed a YouTube playlist on a website** using the WordPress plugin, oEmbed code, and iFrame embed code.
@@ -178,16 +182,16 @@ We hope you've found this article informative and can now display your YouTube p
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Step-Up Content Creation: Standard Studio Vs. Beta Access
 
 # YouTube Creator Studio vs. YouTube Studio (Beta): Which One is Better?
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -304,6 +308,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why YouTube Is Getting Rid of Classic Creator Studio?
 
 Data-driven YouTubers have long loved the YouTube Creator Studio. It has supplied so much information that it took this [comprehensive post about Analytics](https://tools.techidaily.com/wondershare/filmora/download/) to highlight all the insights. So why would YouTube change it?
@@ -394,6 +402,10 @@ In 2017, [YouTube revealed YouTube Studio Beta](https://www.adweek.com/digital/y
 
 In this article, we will look at the new features YouTube Studio Beta has, what we can expect from it in the future, and why YouTube will eventually phase out the older YouTube Creator Studio… and whether that change will be an improvement.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Edit YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -415,10 +427,6 @@ Undoubtedly, YouTube updated its Creator Studio to offer a tool that enables its
 ## Intro to YouTube Studio (Beta)
 
 ![ YouTube Studio Beta](https://images.wondershare.com/filmora/article-images/youtube-studio-beta.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 YouTube Studio (Beta), for many YouTubers, is now the default. However, for the time being, creators can still switch back to the Classic view (as some of the features are still being built). YouTube’s objective is to receive data of their own by understanding how creators are using the new Studio and gaining feedback to improve upon it.
 
@@ -450,10 +458,6 @@ YouTube wants you to know how your videos are performing in the first few days. 
 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-recent-video-data.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3. Video Analysis
 
 In the Classic Creator Studio, you couldn’t get an aggregated view of all the important video data on one dashboard. You would have to click to each set of analytics individually and then dive deeper. This ate up your precious content creation time and made it hard to combine insights. Now with Studio Beta, you can see all the critical data in one spot. Right away, you can see how that video is performing through different factors. This will let you know where audience retention is dropping off or which traffic source is supplying most of the views.
@@ -483,6 +487,10 @@ YouTube has always put a lot of value into its analytic tools, and with YouTube 
 _Have you tried the new YouTube Studio (Beta)? What are your thoughts? Please let us know in the comments below._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -552,10 +560,6 @@ YouTube wants you to know how your videos are performing in the first few days. 
 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-recent-video-data.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 3. Video Analysis
 
 In the Classic Creator Studio, you couldn’t get an aggregated view of all the important video data on one dashboard. You would have to click to each set of analytics individually and then dive deeper. This ate up your precious content creation time and made it hard to combine insights. Now with Studio Beta, you can see all the critical data in one spot. Right away, you can see how that video is performing through different factors. This will let you know where audience retention is dropping off or which traffic source is supplying most of the views.
@@ -574,10 +578,6 @@ If the average view duration is not up to your standards, then you will have to 
 
 ![YouTube Creator Studio Watch Time Funnel](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-watch-time-funnel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 5. Traffic Sources
 
 YouTube now presents all the different traffic sources in one easy-to-find page in the Reach Viewer tab, so creators no longer have to click between them to analyze where their traffic is coming from. This new design is far less intimidating and messy. At a glance, you can now see where the majority of your audiences are coming from.
@@ -591,7 +591,7 @@ _Have you tried the new YouTube Studio (Beta)? What are your thoughts? Please le
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -615,22 +615,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-traffic-with-smart-youtube-title-and-tag-use/"><u>[New] 2024 Approved Boosting Traffic with Smart YouTube Title & Tag Use</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dissecting-digital-dynamics-comparative-channel-analysis/"><u>[New] 2024 Approved Dissecting Digital Dynamics Comparative Channel Analysis</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-culinary-comrades-youtubes-best-food-blogs-for-2024/"><u>[New] Culinary Comrades YouTube's Best Food Blogs for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-compare-and-contrast-the-creme-de-la-creme-of-free-edits/"><u>[New] In 2024, Compare and Contrast The Crème De La Crème of Free Edits</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-determining-facebook-video-layout-preference/"><u>[Updated] 2024 Approved Determining Facebook Video Layout Preference</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-deciding-on-ideal-vimeo-subscription-plan/"><u>[Updated] Deciding on Ideal Vimeo Subscription Plan</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-personality-complimentary-youtube-graphics/"><u>[Updated] In 2024, Channel Personality Complimentary YouTube Graphics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-clip-groove-best-bgm-choices-for-todays-popular-yt-shorts/"><u>[Updated] In 2024, Clip Groove Best BGM Choices For Today's Popular YT Shorts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>[Updated] In 2024, Essential Free Tools Convert YouTube Audio to MP3 on iPhone</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-navigating-picture-in-picture-mode-with-ease-in-microsoft-edge/"><u>[Updated] In 2024, Navigating Picture-In-Picture Mode with Ease in Microsoft Edge</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essence-of-youtubes-new-shorts-investment-scheme/"><u>[Updated] The Essence of YouTube's New Shorts Investment Scheme</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/crafting-conversations-proven-techniques-for-telegram-engagement/"><u>Crafting Conversations Proven Techniques for Telegram Engagement</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-7-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 7 Without a Passcode | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-samsung-galaxy-xcover-6-pro-tactical-edition-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Samsung Galaxy XCover 6 Pro Tactical Edition FRP Locks</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-infinix-note-30-vip-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Infinix Note 30 VIP Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-itel-s23plus-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Itel S23+ Device</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unveiling-superfetch-comprehensive-insights-into-its-functionality/"><u>Unveiling SuperFetch: Comprehensive Insights Into Its Functionality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-erasing-the-spotlight-hide-visuals-in-shared-media/"><u>[New] 2024 Approved Erasing the Spotlight Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-audio-mastery-in-visual-storytelling-vimeo-edition/"><u>[New] Audio Mastery in Visual Storytelling Vimeo Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-digital-film-composer/"><u>[New] In 2024, Digital Film Composer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-bites-outside-the-box-new-film-favorites/"><u>[Updated] In 2024, Best Bites Outside the Box New Film Favorites</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-your-earnings-effective-youtube-money-methods/"><u>[Updated] In 2024, Channel Your Earnings Effective YouTube Money Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-content-creators-arena-vs-beta-studio-evolutionary-path/"><u>[Updated] In 2024, Content Creator's Arena Vs. Beta Studio Evolutionary Path</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-effective-youtube-banners-for-2024/"><u>[Updated] The Ultimate Guide to Effective YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-shorts-showing-up-after-fix/"><u>[Updated] YouTube Shorts Showing Up After Fix</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unraveling-the-secrets-to-auditory-harmony-crossfade/"><u>2024 Approved Unraveling the Secrets to Auditory Harmony (Crossfade)</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-apple-iphone-se-ios-system-issues-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair Apple iPhone SE iOS System Issues? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-top-11-techniques-for-perfecting-color-in-post-production/"><u>In 2024, Top 11 Techniques for Perfecting Color in Post-Production</u></a></li>
+<li><a href="https://fox-links.techidaily.com/precise-guide-to-navigating-adobe-cloud-then-comparing-other-methods-for-2024/"><u>Precise Guide to Navigating Adobe Cloud, Then Comparing Other Methods for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210053300-9780990446897-reiki-21st-century-updated-methods-teachings-attunements-from-a-20th-century-master/"><u>Reiki 21st Century Updated Methods, Teachings, Attunements from a 20th Century Master | Free Book</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/strategies-for-seamless-integration-of-work-and-youtube-for-2024/"><u>Strategies for Seamless Integration of Work & YouTube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-insiders-guide-to-professional-grade-editing-in-windows-10-for-2024/"><u>The Insider's Guide to Professional-Grade Editing in Windows 10 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-multimedia-sensation-apps-iphoneandroid-showdown-for-2024/"><u>Top 5 Multimedia Sensation Apps IPhone/Android Showdown for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtubes-prime-moments-celebrations-beyond-vidcon-for-2024/"><u>Youtube's Prime Moments Celebrations Beyond VidCon for 2024</u></a></li>
 </ul></div>
 

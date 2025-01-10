@@ -1,7 +1,7 @@
 ---
 title: "Solution Strategies: When Google Chrome Refuses to Open Up"
-date: 2024-12-26T08:37:07.749Z
-updated: 2025-01-01T18:08:56.692Z
+date: 2025-01-02T16:00:07.351Z
+updated: 2025-01-09T16:48:40.384Z
 tags:
   - win11
   - win10
@@ -32,6 +32,10 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **HDD Space**        | **16 GB**           |
 | **DirectX**          | **DirectX 11.0**    |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Recommended system requirements for Fortnite
 
 | **Operating System** | **Windows 10/8/7**                                           |
@@ -42,10 +46,6 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 | **Processor**        | **Core i5 2.8 Ghz**                                          |
 | **HDD Space**        | **20 GB**                                                    |
 | **DirectX**          | **DirectX 11.0**                                             |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Try these fixes
 
@@ -67,7 +67,7 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 2: Use compatibility mode
@@ -78,6 +78,10 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 2. In the Compatibility tab, click **Run this program in compatibility mode for** . Then choose the system in the drop-down menu.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/com.jpg)
 3. Click **OK** then run Fortnite to check.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If this method doesn’t help, don’t worry, move to the next one.
 
@@ -114,12 +118,12 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update** button next to the driver to automatically download and install the correct version of this driver (you can do this with Free version). Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Reboot your computer and run Fortnite to check the black screen issue will appear or not.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ---
 
@@ -131,10 +135,6 @@ OR
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Method 5: Change scale and layout limit
 
  This solution has been proved by some users that help them fix the Fortnite black screen problem. Follow the steps below to change the display settings on your computer.
@@ -142,10 +142,6 @@ OR
 1. Right-click on your desktop screen.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display.jpg)
 2. In the Display tab, find Scale and layout.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 3. Change the scaling limit.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/display1.jpg)
@@ -159,16 +155,20 @@ OR
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall0.jpg)
 2. Click**Allow an app through firewall** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall.jpg)
 3. Find Fortnite and check whether it has been blocked or not.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. Click**Change Settings** if it does and check all the boxes to enable the app through the firewall.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall-1.jpg)
 5. Reboot Fortnite and check whether this problem is resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ---
 
@@ -193,22 +193,17 @@ OR
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-banish-youtube-shorts-forever-with-ease/"><u>[New] 2024 Approved Banish YouTube Shorts Forever with Ease</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-visuals-mastering-youtubes-video-enhancement-tools/"><u>[New] 2024 Approved Boosting Visuals Mastering YouTube's Video Enhancement Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-a-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary-for-2024/"><u>[New] A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-guide-to-the-premier-10-youtube-news-channels/"><u>[New] Your Guide to the Premier 10 YouTube News Channels</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-a-guide-to-the-best-bridal-films-8-from-youtube-plus-vimeo/"><u>[Updated] 2024 Approved A Guide to the Best Bridal Films (8 From YouTube + Vimeo)</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-peak-online-cam-dance-battles/"><u>[Updated] 2024 Approved Peak Online Cam Dance Battles</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-top-eight-video-recording-apps-reviewed/"><u>[Updated] 2024 Approved Top Eight Video Recording Apps Reviewed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-bring-imagination-to-life-self-animated-artistry/"><u>[Updated] Bring Imagination to Life Self-Animated Artistry</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts-for-2024/"><u>[Updated] Comparing Micro-Video Formats The Battle of TikTok and YouTube Shorts for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-filmoras-recipe-for-captivating-youtube-trailers/"><u>[Updated] Filmora’s Recipe for Captivating YouTube Trailers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>[Updated] In 2024, Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-launching-into-creation-equipment-essentials-for-youtubers/"><u>[Updated] Launching Into Creation Equipment Essentials for YouTubers</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-leveraging-the-power-of-movie-maker-in-windows-8-for-professional-results-for-2024/"><u>[Updated] Leveraging the Power of Movie Maker in Windows 8 for Professional Results for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/from-pilot-to-producer-editing-mastery-in-drone-filmmaking-for-2024/"><u>From Pilot to Producer Editing Mastery in Drone Filmmaking for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/navigating-hardware-choices-with-toms-system-solutions/"><u>Navigating Hardware Choices with Tom's System Solutions</u></a></li>
-<li><a href="https://blog-min.techidaily.com/reliable-and-safe-movavi-media-software-a-trusted-companion-for-content-creation/"><u>Reliable & Safe Movavi Media Software - A Trusted Companion for Content Creation</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/seamless-emoji-incorporation-into-discords-status-feature/"><u>Seamless Emoji Incorporation Into Discord's Status Feature</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-guide-to-your-profit-share-in-youtube-shorts/"><u>[New] 2024 Approved A Step-by-Step Guide to Your Profit Share in YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-converting-youtube-journeys-into-animated-expressions-a-comprehensive-guide-for-mobiledesktop-users/"><u>[Updated] 2024 Approved Converting YouTube Journeys Into Animated Expressions A Comprehensive Guide for Mobile/Desktop Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-curating-soundscapes-a-detailed-look-at-youtube-playlists/"><u>[Updated] 2024 Approved Curating Soundscapes A Detailed Look at YouTube Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-your-videos-popularity-on-youtube-for-2024/"><u>[Updated] Boost Your Video's Popularity on YouTube for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-meticulous-study-of-magix-photo-controls/"><u>[Updated] In 2024, Meticulous Study of MAGIX Photo Controls</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-12-pro-max-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone 12 Pro Max for Free</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-m6-pro-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Poco M6 Pro 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-make-movies-for-free-top-rated-video-editing-software/"><u>In 2024, Make Movies for Free Top-Rated Video Editing Software</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/inside-the-innovative-world-of-intova-x/"><u>Inside the Innovative World of Intova X</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-rated-external-dvd-drive-software-and-hardware-for-macos-in-2/"><u>Top Rated External DVD Drive Software and Hardware for macOS in 2</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/transform-your-recording-experience-moving-past-fbx-methods/"><u>Transform Your Recording Experience Moving Past FBX Methods</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/troubleshooting-imovie-how-to-convert-unsupported-mp4-files-for-editing-in-apples-software/"><u>Troubleshooting iMovie: How to Convert Unsupported MP4 Files for Editing in Apple's Software</u></a></li>
 </ul></div>
 

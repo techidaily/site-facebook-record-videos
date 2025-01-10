@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2024-12-28T13:23:48.315Z
-updated: 2025-01-01T20:22:20.376Z
+date: 2025-01-05T16:14:44.553Z
+updated: 2025-01-10T00:10:51.546Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,20 +77,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-youtube-visibility-with-tubebuddy-for-2024/"><u>[New] Enhancing YouTube Visibility with TubeBuddy for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-5-frosty-yet-inviting-backdrops-for-your-vids/"><u>[New] In 2024, 5 Frosty Yet Inviting Backdrops for Your Vids</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoid-ad-dollars-boost-your-view-count-for-free/"><u>[New] In 2024, Avoid Ad Dollars – Boost Your View Count for Free</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-syncing-tunes-with-video-cut-and-paste-youtube-editor-basics/"><u>[New] Syncing Tunes with Video Cut & Paste YouTube Editor Basics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-initial-stages-of-joining-youtube-as-a-chanel-owner/"><u>[New] The Initial Stages of Joining YouTube as a Chanel Owner</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-collect-premium-audio-for-video-editors/"><u>[Updated] Collect Premium Audio for Video Editors!</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-your-video-content-with-desktopmobile-timestamps/"><u>[Updated] In 2024, Elevate Your Video Content with Desktop/Mobile Timestamps</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-quick-tips-to-produce-quality-thumbnails-fast-for-2024/"><u>[Updated] Quick Tips to Produce Quality Thumbnails Fast for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-list-templates-for-youtube-previews/"><u>[Updated] Ultimate List Templates for YouTube Previews</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-essential-podcast-scriptwriting-skills-demystified-examples-included/"><u>2024 Approved Essential Podcast Scriptwriting Skills Demystified (Examples Included)</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-your-pathway-to-audio-mastery-download-and-install-vrecorder/"><u>2024 Approved Your Pathway to Audio Mastery - Download & Install VRecorder</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/choe-from-pre-designed-templates-or-create-your-own-custom-design-n-indicates-a-new-line-for-readability/"><u>Choe From Pre-Designed Templates or Create Your Own Custom Design. ( N Indicates a New Line for Readability)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/free-conversion-of-tod-files-in-the-cloud-easy-with-movavi-tools/"><u>Free Conversion of TOD Files in the Cloud - Easy with Movavi Tools</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/love-in-a-digital-age-chatgpt-to-the-rescue/"><u>Love in a Digital Age: ChatGPT to the Rescue</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-14-passcode-without-a-computer-by-drfone-ios/"><u>Unlocking iPhone 14 Passcode without a Computer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-comprehensive-list-of-top-9-free-video-channel-branding-aids-for-2024/"><u>[New] Comprehensive List of Top 9 Free Video Channel Branding Aids for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-12-best-vlogging-cameras-with-a-flip-screen/"><u>[New] In 2024, 12 Best Vlogging Cameras with a Flip Screen</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-cutting-edge-methods-to-reduce-youtube-video-size/"><u>[Updated] 2024 Approved Cutting-Edge Methods to Reduce YouTube Video Size</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-free-top-chromebook-recording-software/"><u>[Updated] 2024 Approved Free Top Chromebook Recording Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-creating-compelling-solo-videos-on-a-budget-for-2024/"><u>[Updated] Creating Compelling Solo Videos on a Budget for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-videos-to-vibrant-gifs-youtube-conversion-techniques/"><u>[Updated] From Videos to Vibrant GIFs YouTube Conversion Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-fiscal-picture-for-content-makers-on-youtube-shorts-platform/"><u>[Updated] The Fiscal Picture for Content Makers on YouTube Shorts Platform</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/gratis-weergave-wegwijzer-om-online-wma-bestandjes-naar-m4v-format-te-zetten-movavi/"><u>Gratis Weergave: Wegwijzer Om Online WMA-Bestandjes Naar M4V-Format Te Zetten - Movavi</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-rectify-windows-11-camera-app-f429f-hiccup/"><u>How to Rectify Windows 11 Camera App F429F Hiccup</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/step-by-step-guide-seamlessly-duplicate-your-windows-pc-display-on-an-ipad/"><u>Step-by-Step Guide: Seamlessly Duplicate Your Windows PC Display on an iPad</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-and-repair-for-non-functional-corsair-hs35-microphones-on-pcs-with-windows-os/"><u>Troubleshooting and Repair for Non-Functional Corsair HS35 Microphones on PCs with Windows OS</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-design-your-dream-face-free-online-generators-for-2024/"><u>Updated Design Your Dream Face Free Online Generators for 2024</u></a></li>
 </ul></div>
 

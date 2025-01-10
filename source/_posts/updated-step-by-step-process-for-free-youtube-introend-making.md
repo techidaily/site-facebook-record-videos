@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-12-28T10:33:56.710Z
-updated: 2025-01-01T17:46:58.723Z
+date: 2025-01-06T17:33:09.490Z
+updated: 2025-01-09T23:10:54.221Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,24 +143,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-content-hub-hierarchy-stand-out-amongst-titans-vimeo-youtube-and-dailymotion/"><u>[New] 2024 Approved Content Hub Hierarchy Stand Out Amongst Titans – Vimeo, YouTube & Dailymotion?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-decoding-the-instagram-story-viewer-experience/"><u>[New] 2024 Approved Decoding the Instagram Story Viewer Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-youtube-visibility-with-featured-channels-techniques-for-2024/"><u>[New] Enhancing YouTube Visibility with Featured Channels Techniques for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-hexa-drone-elite-collection-the-finest-ten/"><u>[New] Hexa-Drone Elite Collection - The Finest Ten</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-5-winter-youtube-background-ideas-to-warm-up-your-videos/"><u>[New] In 2024, 5 Winter YouTube Background Ideas to Warm Up Your Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-online-presence-with-expert-streaming-guide/"><u>[New] In 2024, Elevate Your Online Presence with Expert Streaming Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevating-engagement-finding-your-youtube-segment/"><u>[New] In 2024, Elevating Engagement Finding Your YouTube Segment</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-tips-for-seamlessly-screening-instagram-stories/"><u>[Updated] 2024 Approved Tips for Seamlessly Screening Instagram Stories</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-channel-command-center-masterminding-visionary-content-for-2024/"><u>[Updated] Channel Command Center Masterminding Visionary Content for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-financial-magnitude-in-mr-beasts-realm-for-2024/"><u>[Updated] Financial Magnitude in Mr. Beast's Realm for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-perfect-your-strategy-top-rated-techniques-for-video-marketing/"><u>[Updated] Perfect Your Strategy Top-Rated Techniques for Video Marketing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-phones-as-cameras-a-comprehensive-guide-to-mobile-video-production/"><u>[Updated] Phones as Cameras A Comprehensive Guide to Mobile Video Production</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/4-mistakes-to-avoid-when-using-chatgpt-for-content-creation/"><u>4 Mistakes to Avoid When Using ChatGPT for Content Creation</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-nokia-c32-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Nokia C32? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/how-to-captivate-audiences-with-ppt-on-mobilelaptop-in-gmeet-for-2024/"><u>How to Captivate Audiences with PPT on Mobile/Laptop in GMeet for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-iphone-15-plus-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on iPhone 15 Plus online without jailbreak</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-unveiling-the-art-of-choosing-high-impact-youtube-channels/"><u>In 2024, Unveiling the Art of Choosing High-Impact Youtube Channels</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/making-a-smart-pick-comparative-analysis-of-bing-chat-and-chatgpt-for-independent-professionals/"><u>Making a Smart Pick: Comparative Analysis of Bing Chat and ChatGPT for Independent Professionals</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlock-the-potential-of-your-youtube-videos-with-effective-end-screens-for-2024/"><u>Unlock the Potential of Your YouTube Videos with Effective End Screens for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-explore-the-top-5-pick-for-windows-screen-snipers/"><u>[New] 2024 Approved Explore the Top 5 Pick for Windows Screen Snipers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-capture-the-internets-attention-craft-with-kapwing/"><u>[New] Capture the Internet’s Attention – Craft with Kapwing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cutting-edge-techniques-for-ios-users-uploading-videos-to-youtube-for-2024/"><u>[New] Cutting-Edge Techniques for iOS Users Uploading Videos to YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhancing-youtube-popularity-editing-and-optimizing-content-metadata-for-2024/"><u>[New] Enhancing YouTube Popularity Editing & Optimizing Content Metadata for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-swift-recording-pro-with-voice-commentary-feature/"><u>[New] In 2024, Swift Recording Pro with Voice Commentary Feature</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-layered-comfort-selecting-snug-winter-themes-for-filming/"><u>[New] Layered Comfort Selecting Snug Winter Themes for Filming</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ext-gen-videostreaming-hubs-triumph-beyond-youtube-for-2024/"><u>[New] Next-Gen Videostreaming Hubs Triumph Beyond Youtube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-comprehensive-playbook-for-self-branded-content-creators/"><u>[New] The Comprehensive Playbook for Self-Branded Content Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-trending-potential-in-your-videos/"><u>[New] Unlocking Trending Potential in Your Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-perfect-thumbnail-size-for-click-through-rates/"><u>[Updated] Perfect Thumbnail Size for Click-Through Rates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-ultra-hd-content-with-youtubes-advanced-video-setting/"><u>[Updated] Unlock Ultra HD Content with YouTube’s Advanced Video Setting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-handy-hint-downloading-youtube-videos-to-your-apple-device/"><u>2024 Approved Your Handy Hint Downloading YouTube Videos to Your Apple Device</u></a></li>
+<li><a href="https://win-community.techidaily.com/get-the-ultimate-karaoke-experience-with-partytyme-subscription-access-to-new-hits-and-top-tracks/"><u>Get the Ultimate Karaoke Experience with PartyTyme - Subscription Access to New Hits & Top Tracks!</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-monetizing-your-youtube-content-costing/"><u>In 2024, Monetizing Your YouTube Content Costing</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/review-of-microsofts-latest-refresh-for-surface-pro-7-stable-performance-minimal-adjustments/"><u>Review of Microsoft's Latest Refresh for Surface Pro 7 – Stable Performance, Minimal Adjustments</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-windows-7-network-connection-woes-complete-resolution-guide/"><u>Troubleshooting Windows 7 Network Connection Woes - Complete Resolution Guide</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/win32ksys-bluescreen-fixes-comprehensive-troubleshooting-steps/"><u>Win32k.sys Bluescreen Fixes: Comprehensive Troubleshooting Steps</u></a></li>
 </ul></div>
 

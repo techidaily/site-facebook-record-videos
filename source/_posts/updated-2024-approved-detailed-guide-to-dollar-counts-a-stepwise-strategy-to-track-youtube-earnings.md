@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Detailed Guide to Dollar Counts  A Stepwise Strategy to Track YouTube Earnings\""
-date: 2025-01-01T14:10:24.970Z
-updated: 2025-01-01T21:08:18.808Z
+date: 2025-01-06T01:21:06.380Z
+updated: 2025-01-09T19:10:27.300Z
 tags:
   - ai video
   - ai youtube
@@ -82,10 +82,6 @@ The information that you’ll find in the YouTube revenue analytics includes the
 * **Top Earnings;** It shows the data of the video with the highest estimated revenue.
 * **Ad Type;** This displays the percentage of revenue earned from the different types of ads.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How your YouTube earnings are calculated
 
 Having known how to check YouTube income, if you’re still wondering how your earnings are calculated, here, we’ve discussed all the necessary information you need to know about how YouTube earnings are calculated.
@@ -136,10 +132,6 @@ Step5 Next, drag-n-dop the chosen AI Portrait effect to the timeline. After that
 
 ![drag n drop ai portrait to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step6 Double-click the AI Portrait effect from the Timeline. From the pop-up that appears, adjust the settings according to your requirements.
 
 ![adjust ai portrait effect filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-12.jpg)
@@ -160,10 +152,6 @@ Step9 Enter file name in the box next to Label. Then, navigate to Folder Path an
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Upload videos regularly
 
 Starting a YouTube channel can be quite hard from start, but make it a priority to upload at least two quality videos every week. Yes, the more quality videos you post, the more you attract the viewer to like your videos, and the higher your chances of getting new subscribers, thereby increasing your YouTube earnings.
@@ -172,6 +160,10 @@ Starting a YouTube channel can be quite hard from start, but make it a priority 
 
 Promoting your YouTube videos is a great way to increase your YouTube earnings. Once you post a new video on YouTube, you can share it to your other social media profiles or websites to increase views and attract new folks to watch the video. The more views you get the more money you’ll make.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: Hot FAQs on YouTube channel earnings check
 
 Let’s take a look at some frequently asked questions from users like you.
@@ -179,10 +171,6 @@ Let’s take a look at some frequently asked questions from users like you.
 ### 1\. Is monetizing on YouTube different from Google AdSense?
 
 YouTube monetization involves making money from videos you upload on your YouTube channel. And Google AdSense is a means of monetizing your YouTube channel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Why should you consider monetizing on YouTube creator?
 
@@ -213,10 +201,6 @@ Checking YouTube income is not a big deal. This article has covered every necess
 Part 1: Follow the steps below to check your YouTube earnings
 
 The process of checking YouTube income is pretty straightforward. So, regardless of what device you’re using to check, we’ve briefly explained the step-by-step instructions to carry out your YouTube income check within a few clicks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Check on a computer
 
@@ -312,6 +296,10 @@ Step3 Drag-n-drop the video you uploaded to the Timeline.
 
 ![drag n drop video to timeline filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-9.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 To remove unwanted background from your video, click Effects from the top side of the screen. Select AI Portrait from the left side of the screen and select a preferred AI Portrait effect that you’ll like to use in the video.
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-10.jpg)
@@ -328,6 +316,10 @@ Step7 You can add Subscribe watermark by clicking the >> icon at the top of the 
 
 ![click element filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Choose the ‘Social Media Show Element 07’ Effects. Drag-n-drop the selected effect to the Timeline.
 
 ![add subscribe watermark filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-14.jpg)
@@ -340,13 +332,13 @@ Step9 Enter file name in the box next to Label. Then, navigate to Folder Path an
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-check-youtube-income-16.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Upload videos regularly
 
 Starting a YouTube channel can be quite hard from start, but make it a priority to upload at least two quality videos every week. Yes, the more quality videos you post, the more you attract the viewer to like your videos, and the higher your chances of getting new subscribers, thereby increasing your YouTube earnings.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Promote your Videos
 
@@ -355,10 +347,6 @@ Promoting your YouTube videos is a great way to increase your YouTube earnings. 
 ## Part 4: Hot FAQs on YouTube channel earnings check
 
 Let’s take a look at some frequently asked questions from users like you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Is monetizing on YouTube different from Google AdSense?
 
@@ -381,10 +369,6 @@ Finance & Investing - $12.25
 Educational Videos - $9.89
 
 Photography & Film Making - $7.31
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -497,6 +481,10 @@ Modern video editing software is fairly complex, and it allows you to make profe
 
 ![alternative youtube video editor - PR](https://images.wondershare.com/filmora/article-images/2021/youtube-studio-video-editor-3.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 One of the most well-known video editing software programs is Adobe Premiere Pro. It's been used for professional video editing, design, and rendering by editors. Adobe's most essential seasoned academic courses will teach you how to utilize the video editing program as well as its advanced features.
 
 Adobe Premiere Pro may be used in a variety of unique ways. It may be used as a simple video editor or a program for editing motion pictures.
@@ -518,6 +506,10 @@ For macOS 10.12 or later
 #### 3\. Blender
 
 ![alternative youtube video editor - Blender](https://images.wondershare.com/filmora/article-images/2021/youtube-studio-video-editor-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Blender is a free and open-source 3D computer graphics software tool program. Modeling, rigging, animation, simulation, rendering, compositing, and movement tracking, as well as video enhancement and game development, are all aided by it. Its straightforward and easy-to-use foundation makes it simple for beginners to start improving right away.
 
@@ -594,22 +586,22 @@ Step 3: From the left-hand menu, choose Editor, and then click Get Started in th
 1\. Go to the Trim button. In the Editor, a blue box will appear.
 
 ![trim youtube video with youtube studio](https://images.wondershare.com/filmora/article-images/2021/youtube-studio-video-editor-2.jpg)
+
+2\. Click and drag the blue box's sides. Stop when the box encloses the video segment that you want to save. You will eliminate anything from the video that is not in the box.
+
+3\. Select Preview to double-check your changes and save your file.
+
+#### Remove a segment of your video
+
+1. Go to the Trim menu. In the Editor, a blue box will appear.
+2. Select the blue box at the start of the section you want to delete.
+3. Choose Split.
+4. Drag the blue bar to the end of the part you want to delete by clicking and dragging it.
 
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-2\. Click and drag the blue box's sides. Stop when the box encloses the video segment that you want to save. You will eliminate anything from the video that is not in the box.
-
-3\. Select Preview to double-check your changes and save your file.
-
-#### Remove a segment of your video
-
-1. Go to the Trim menu. In the Editor, a blue box will appear.
-2. Select the blue box at the start of the section you want to delete.
-3. Choose Split.
-4. Drag the blue bar to the end of the part you want to delete by clicking and dragging it.
-
 ## Is YouTube Studio editor enough for editing videos?
 
 For film editing, YouTube's video editor is insufficient. It includes a few basic features, but if you want to do some serious altering, you'll need a third-party program.
@@ -619,6 +611,10 @@ Modern video editing software is fairly complex, and it allows you to make profe
 #### 1\. Adobe Premiere Pro
 
 ![alternative youtube video editor - PR](https://images.wondershare.com/filmora/article-images/2021/youtube-studio-video-editor-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 One of the most well-known video editing software programs is Adobe Premiere Pro. It's been used for professional video editing, design, and rendering by editors. Adobe's most essential seasoned academic courses will teach you how to utilize the video editing program as well as its advanced features.
 
@@ -857,6 +853,10 @@ Modern video editing software is fairly complex, and it allows you to make profe
 #### 1\. Adobe Premiere Pro
 
 ![alternative youtube video editor - PR](https://images.wondershare.com/filmora/article-images/2021/youtube-studio-video-editor-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 One of the most well-known video editing software programs is Adobe Premiere Pro. It's been used for professional video editing, design, and rendering by editors. Adobe's most essential seasoned academic courses will teach you how to utilize the video editing program as well as its advanced features.
 
@@ -893,7 +893,7 @@ Lightworks is a strong, easy-to-use enhancement tool that works with a variety o
 Their basic software package is available for free download and includes a wide range of features. The software program can export to various formats and supports 1080p HD images.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -915,17 +915,21 @@ Their basic software package is available for free download and includes a wide 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-deciphering-how-to-find-my-youtube-comments-posts/"><u>[New] 2024 Approved Deciphering How To Find My YouTube Comments Posts</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-diversify-referrals-tactics-for-effective-youtube-backlinks/"><u>[New] 2024 Approved Diversify Referrals Tactics for Effective YouTube Backlinks</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-androids-best-free-mp3-extraction-tools/"><u>[New] Android's Best Free MP3 Extraction Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-edits-made-easy-a-newbies-guide-to-video-trimming-and-enhancing/"><u>[New] Top Edits Made Easy A Newbie's Guide to Video Trimming & Enhancing</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-pro-level-webcams-the-ultimate-choice-for-your-podcasts/"><u>[Updated] Pro Level Webcams The Ultimate Choice for Your Podcasts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-hash-tags-skyrocketing-to-6-figure-views-on-youtube/"><u>[Updated] Top Hash Tags Skyrocketing to 6-Figure Views on YouTube</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/delving-into-telegram-a-closer-look-at-this-messaging-giant/"><u>Delving Into Telegram: A Closer Look at This Messaging Giant</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/discovering-the-power-behind-youtube-statistics-interpretation-for-2024/"><u>Discovering the Power Behind YouTube Statistics Interpretation for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Honor Magic5 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/initiate-flawless-zoom-sessions-today/"><u>Initiate Flawless Zoom Sessions Today</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-mechanics-of-youtube-shorts-monetization-for-2024/"><u>The Mechanics of YouTube Shorts Monetization for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/ultimate-guide-forced-deletion-of-persistent-folders-in-windows-1011-with-revo-uninstaller/"><u>Ultimate Guide: Forced Deletion of Persistent Folders in Windows 10/11 with Revo Uninstaller</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-livestream-capturing-gear-for-online-content-makers/"><u>[New] 2024 Approved Best Livestream Capturing Gear for Online Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cost-effective-techniques-for-youtube-intro-creation-for-2024/"><u>[New] Cost-Effective Techniques for YouTube Intro Creation for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-top-12-budget-friendly-high-performing-video-players-pcandroid-devices/"><u>[New] In 2024, Top 12 Budget-Friendly, High-Performing Video Players PC/Android Devices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/each-new-heights-boosting-youtube-viewership-for-2024/"><u>[New] Reach New Heights Boosting YouTube Viewership for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[Updated] 2024 Approved Comprehensive Guide Your Shorts' Hidden Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-video-converters-for-high-quality-webm-for-2024/"><u>[Updated] Best YouTube Video Converters for High-Quality WebM for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-climbing-to-youtube-zenith-a-step-by-step-guide-to-creative-studio-mastery-for-2024/"><u>[Updated] Climbing to YouTube Zenith A Step-by-Step Guide to Creative Studio Mastery for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-ultimate-highlight-reel-of-2022-skating-stars/"><u>[Updated] In 2024, Ultimate Highlight Reel of 2022 Skating Stars</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-honor-90-lite-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Honor 90 Lite FRP</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-xiaomi-redmi-note-13-proplus-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Xiaomi Redmi Note 13 Pro+ 5G Phones</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-13-mini-properly-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone 13 mini Properly</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-tv-picture-settings-unlock-ultimate-viewing-experience-with-these-two-effortless-calibration-methods-zdnet/"><u>Mastering TV Picture Settings: Unlock Ultimate Viewing Experience with These Two Effortless Calibration Methods | ZDNET</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/outstanding-movies-beyond-the-leading-titles-for-2024/"><u>Outstanding Movies Beyond the Leading Titles for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/purifying-audio-from-films-and-movies-cost-effective-methods/"><u>Purifying Audio From Films and Movies Cost-Effective Methods</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/universal-online-creation-the-top-10-easy-youtube-videos-for-beginners-for-2024/"><u>Universal Online Creation The Top 10 Easy YouTube Videos For Beginners for 2024</u></a></li>
 </ul></div>
 
