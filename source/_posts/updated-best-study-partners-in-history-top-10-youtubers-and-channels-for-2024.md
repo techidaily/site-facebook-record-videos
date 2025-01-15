@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Best Study Partners in History  Top 10 Youtubers & Channels for 2024\""
-date: 2025-01-02T23:50:53.294Z
-updated: 2025-01-10T01:42:30.015Z
+date: 2025-01-13T17:08:44.050Z
+updated: 2025-01-15T19:10:22.223Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ This channel follows the name that they gave to themselves, they dedicated their
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4. History Civils
 
 A YouTube channel created by someone who loves Rome like he were from there. A Rome freak who created a channel based on the Roman Empire. There are several histories to talk about when it comes to Rome, for instance, talking about NATO and Cleopatra. The videos on the channel are very short but they hit the nail directly on the head so you get to gain knowledge about old Rome and what it was before. Most of the videos are on the wars that were fought but they were also other Roman histories involved. This channel posts videos every week, at least once
@@ -136,13 +132,13 @@ Normally, no one likes the idea of listening or learning from someone who makes 
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 9. Timeline
 
 This is a timeline popularly on YouTube as the home of world history. What they do here is drop a video once a week that talk about documentaries and other things. They explore around all of ancient Egypt, shedding their whole light on the former dark ages.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 10. Epic History TV
 
@@ -182,16 +178,12 @@ This channel follows the name that they gave to themselves, they dedicated their
 
 This channel is just a brilliant channel, why do we say this? Well, see what they do here. You might have an interest in learning about the dishes that are served in amazing series like Game of Thrones and other historical movies. You just want to know how they make those historical cuisines on these epic series, this is the channel for you. They recreate the dishes made in movies and series like Vikings and the rest. This channel was created to pass time by a Disney employee but he got the most out of it and has made it a full-time job, posting two to three videos daily.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 4. History Civils
 
 A YouTube channel created by someone who loves Rome like he were from there. A Rome freak who created a channel based on the Roman Empire. There are several histories to talk about when it comes to Rome, for instance, talking about NATO and Cleopatra. The videos on the channel are very short but they hit the nail directly on the head so you get to gain knowledge about old Rome and what it was before. Most of the videos are on the wars that were fought but they were also other Roman histories involved. This channel posts videos every week, at least once
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5. Kings And Generals
@@ -222,10 +214,6 @@ Epic history TV tells you a lot about history and its most important occurrences
 
 For sure everyone knows the concept of fake news, this is like a rumor that people spread around to implicate those around them. Everyone is well aware that not every news is as authentic as it seems. Relating to the history part, you shouldn’t just go ahead and believe what everyone says on YouTube. Make sure you don’t fall for a fake history story. Sometimes, while trying to avoid fake history, you have to get a mindset that is critical, ensure that the source you get it from is checked, check the story out, take a look at the evidence given, and try to make sure it sounds believable.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Final Words
 
 Sometimes it might help your mental health if you can take out time to watch some videos on YouTube, it has so many niches so you can choose the ones you like. History should be a good one for everyone.
@@ -259,6 +247,10 @@ This channel is just a brilliant channel, why do we say this? Well, see what the
 ### 4. History Civils
 
 A YouTube channel created by someone who loves Rome like he were from there. A Rome freak who created a channel based on the Roman Empire. There are several histories to talk about when it comes to Rome, for instance, talking about NATO and Cleopatra. The videos on the channel are very short but they hit the nail directly on the head so you get to gain knowledge about old Rome and what it was before. Most of the videos are on the wars that were fought but they were also other Roman histories involved. This channel posts videos every week, at least once
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5. Kings And Generals
 
@@ -318,12 +310,16 @@ And if you’re into producing content for YouTube, read on to find bonus tips.
 
 * [Pro Tips: How to be a YouTuber and Make Videos Like Sourav Joshi](#part4)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Who is Sourav Joshi?
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 An Indian YouTuber, Sourav started his first channel “Sourav Joshi Arts” on the Platform in September, 2015\. You can find drawings of famous people, including Abraham Lincoln on his arts channel.
@@ -359,6 +355,10 @@ As an established YouTuber, Sourav makes money from affiliate marketing, sponsor
 Want to know Sourav Joshi's income from YouTube? He’s known to earn $30,000 to $45,000 monthly, and has a current net worth, $1 million.
 
 Sourav receives 320-350 million views monthly on his two YouTube videos that helped him elevate his net worth.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Sourav Joshi YouTube Stats
 
@@ -445,7 +445,7 @@ The first step is to click on “import” to access the folder where you can br
 ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
@@ -454,15 +454,15 @@ Drag and drop your files from the media library to be used as the background in 
 
 ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
 ##### Step4 Fix Size and Positioning of your Video
 
 ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
@@ -499,6 +499,10 @@ The software comes with a vast library packed with stunning effects, elements, t
 _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Find “effects” on the top menu, click, and choose from the list.
 
@@ -612,10 +616,6 @@ He also gives off humble vibes. Looking at his content, you’ll see and feel ad
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Since he’s got two channels, both are great in terms of content. On his art channel, he’s drawn images of known people, such as Bollywood actor Tiger Shroff, Indian Cricketer MS Dhoni, and many more.
 
 More so, on his vlog channel, he created daily-life vlogs which most people can relate to. From travel videos to surprises for family, you can see enjoyable content on Sourav’s vlog channel.
@@ -676,6 +676,10 @@ In the duration settings, you can adjust the video duration. If there’s need f
 
 ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
 
 ##### Step5 See Advance Editing Option
@@ -730,10 +734,6 @@ _Transitions_
 
 ![transitions](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Using various video clips in a single video? Use transitions, located on the top menu, to smooth out everything.
 
 ##### Step7 Save and Export your Footage
@@ -769,18 +769,19 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-frame-your-story-a-guide-to-insta-video-bordering/"><u>[New] 2024 Approved Frame Your Story A Guide to Insta Video Bordering</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/est-practices-for-producing-encouragement-driven-vlogs/"><u>[New] Best Practices for Producing Encouragement-Driven Vlogs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-audience-enchantment-setting-tips-for-streams/"><u>[New] In 2024, Audience Enchantment Setting Tips for Streams</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-chronicle-your-conquests-with-galaxy-screen-captures/"><u>[New] In 2024, Chronicle Your Conquests with Galaxy Screen Captures</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-managing-a-day-job-and-your-thriving-youtube-channel/"><u>[New] Managing a Day Job and Your Thriving YouTube Channel</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-picturecut-pro/"><u>[New] PictureCut Pro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-hub-for-newbies-in-cinematic-craftsmanship/"><u>[New] YouTube Hub for Newbies in Cinematic Craftsmanship</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-getting-started-with-your-youtube-channel-essentials/"><u>[Updated] Getting Started with Your YouTube Channel – Essentials</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-get-facetime-running-again-a-list-of-15-effective-fixes/"><u>How to Get FaceTime Running Again: A List of 15 Effective Fixes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-best-8-youtube-editing-software-for-linux/"><u>In 2024, Best 8 YouTube Editing Software for Linux</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/the-ultimate-guide-to-accelerating-your-computers-processing-power-effective-maintenance-techniques/"><u>The Ultimate Guide to Accelerating Your Computer's Processing Power: Effective Maintenance Techniques</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-the-best-television-streaming-applications/"><u>The Ultimate Guide to the Best Television Streaming Applications</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/vegas-pro-21-a-comprehenive-examination-for-gamblers-and-techies-alike/"><u>Vegas Pro '21 A Comprehenive Examination for Gamblers and Techies Alike</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-viewer-interest-with-optimal-video-thumbnail-sizes-for-2024/"><u>[New] Boosting Viewer Interest with Optimal Video Thumbnail Sizes for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-converging-worlds-effortlessly-incorporate-linktree-on-tiktok/"><u>[New] Converging Worlds Effortlessly Incorporate Linktree on TikTok</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-selfies-to-subscribers-jake-pauls-online-odyssey/"><u>[Updated] From Selfies to Subscribers Jake Paul’s Online Odyssey</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-effective-affordable-youtube-intros-with-templates/"><u>[Updated] In 2024, Crafting Effective, Affordable YouTube Intros with Templates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-online-broadcast-battle-facebook-vs-youtube-and-twitspaces/"><u>[Updated] Online Broadcast Battle FACEbook Vs. YOUTube & TWITSpaces</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-optimal-technique-integrating-gopro-videos-into-compreited-cinematic-universe/"><u>2024 Approved Optimal Technique Integrating GoPro Videos Into Compreited Cinematic Universe</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-the-dynamics-behind-tseries-youtube-earning-patterns/"><u>2024 Approved The Dynamics Behind TSeries' YouTube Earning Patterns</u></a></li>
+<li><a href="https://win-forum.techidaily.com/explore-popular-networking-sites-connect-on-facebook-tweet-with-twitter-share-on-instagram-and-vlog-on-youtube/"><u>Explore Popular Networking Sites: Connect on Facebook, Tweet with Twitter, Share on Instagram and Vlog on Youtube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/getting-started-in-google-meet-on-computersphone-for-2024/"><u>Getting Started in Google Meet on Computers/Phone for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-best-of-the-best-8-cameras-for-top-streaming-experience/"><u>In 2024, Best of the Best 8 Cameras for Top Streaming Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/reestablishing-the-original-state-of-windows-backups/"><u>Reestablishing the Original State of Windows Backups</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-green-screen-on-a-mac-which-software-reigns-supreme/"><u>Updated In 2024, Green Screen on a Mac Which Software Reigns Supreme?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-tunes-heres-how-to-download-safely-and-free-for-2024/"><u>Youtube Tunes? Here's How to Download Safely & Free for 2024</u></a></li>
 </ul></div>
 

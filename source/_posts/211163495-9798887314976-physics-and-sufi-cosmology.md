@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2025-01-06T01:18:50.295Z
-updated: 2025-01-10T00:47:04.468Z
+date: 2025-01-10T19:09:36.077Z
+updated: 2025-01-15T18:11:53.121Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,21 +175,25 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harmonizing-horizons-easy-steps-for-sharing-soundtracks/"><u>[New] 2024 Approved Harmonizing Horizons Easy Steps for Sharing Soundtracks</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-optimal-free-cam-viewer-with-snatch-feature-for-2024/"><u>[New] Optimal Free Cam Viewer with Snatch Feature for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-streamlining-long-videos-on-youtube-through-effective-chapter-management/"><u>[New] Streamlining Long Videos on YouTube Through Effective Chapter Management</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-techniques-in-live-streamed-gaming/"><u>[Updated] 2024 Approved Cutting-Edge Techniques in Live-Streamed Gaming</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-designing-a-memorable-youtube-sign-off/"><u>[Updated] 2024 Approved Designing a Memorable YouTube Sign-Off</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-calculator-projected-profits-from-youtube-for-2024/"><u>[Updated] Calculator Projected Profits From YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-practices-for-youtube-video-brightness-and-contrast/"><u>[Updated] In 2024, Best Practices for YouTube Video Brightness and Contrast</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-respecting-copyrights-when-converting-youtube-to-mp4/"><u>[Updated] Respecting Copyrights When Converting YouTube to MP4</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-tecno-pova-5-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Tecno Pova 5 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/discover-the-deal-on-your-go-to-photography-gear-save-500-on-samsungs-top-display-at-best-buy-according-to-zdnet/"><u>Discover the Deal on Your Go-To Photography Gear: Save $500 on Samsung's Top Display at Best Buy, According to ZDNet</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Apple iPhone 6 Plus? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/itunes-support-easily-import-and-enjoy-high-quality-flac-audio-tracks/"><u>ITunes Support: Easily Import and Enjoy High-Quality FLAC Audio Tracks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-comprehensive-guide-to-youtube-content-moderation-rules-for-2024/"><u>[New] Comprehensive Guide to YouTube Content Moderation Rules for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-entry-level-landing-low-cost-profitable-youtube-platforms-for-2024/"><u>[New] Entry Level Landing Low-Cost, Profitable YouTube Platforms for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-brands-together-a-guide-to-selecting-youtube-teams/"><u>[Updated] 2024 Approved Building Brands Together A Guide to Selecting YouTube Teams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-double-the-joy-master-looping-of-youtube-media-on-televisions/"><u>[Updated] 2024 Approved Double the Joy Master Looping of YouTube Media on Televisions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-clarity-fix-black-screens-on-youtube/"><u>[Updated] In 2024, Unlocking Clarity Fix Black Screens on YouTube</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-market-essential-youtube-finance-channels-for-2024/"><u>[Updated] Mastering the Market Essential YouTube Finance Channels for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-strategies-to-fast-track-vimeo-content/"><u>[Updated] Strategies to Fast-Track Vimeo Content</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/exploring-the-world-of-digital-wallets-the-role-of-balance-validation-tools-by-yl-software/"><u>Exploring the World of Digital Wallets: The Role of Balance Validation Tools by YL Software</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-apple-iphone-se-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock Apple iPhone SE Without Passcode Now</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premier-mic-choices-for-4k-cameras-and-clear-audio-capture/"><u>Premier Mic Choices for 4K Cameras & Clear Audio Capture</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quash-unwanted-youtube-suggested-videos-for-2024/"><u>Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/this-model-was-trained-by-microsoft-with-a-focus-on-generating-coherent-and-fluent-text-based-on-the-given-prompt-but-without-specific-fine-tuning-for-factu624/"><u>This Model Was Trained by Microsoft with a Focus on Generating Coherent and Fluent Text Based on the Given Prompt, but without Specific Fine-Tuning for Factual Correctness or Nuanced Understanding of Complex Topics</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-10-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning hardware drivers with Windows Device Manager in Windows 10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/visual-ventures-partnership-playbook-for-2024/"><u>Visual Ventures Partnership Playbook for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/xbox-one-and-netflix-compatibility-fixed-watch-your-favorite-shows-without-hiccups/"><u>Xbox One and Netflix Compatibility Fixed - Watch Your Favorite Shows Without Hiccups</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-blueprint-to-youtube-success-top-tips-for-outstanding-shorts-for-2024/"><u>Your Blueprint to Youtube Success Top Tips for Outstanding Shorts for 2024</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

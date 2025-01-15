@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Brevity in Action  Shortening YouTube Video Content\""
-date: 2024-07-31T02:32:21.835Z
-updated: 2024-08-01T02:32:21.835Z
+date: 2025-01-10T18:38:58.646Z
+updated: 2025-01-15T17:17:40.318Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f48c4b3b1ae7e8d504b5fa9d1d43efb4b89cbd743
 
 # How to Edit the Length of a Video on YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,8 +37,9 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -50,11 +48,11 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 #### Step 1 Get to the video editor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
@@ -62,19 +60,21 @@ In order to do so, you would have to go ahead and login into your account. Then,
 
 Once you've done all of the above, you would have to drag your video in order to cut it's time. Keep in mind that the videos are made out of a maximum of 50 clips. The site is going to save every single video that you upload as a particular clip which could be properly combined with the rest in order to make one larger video. This is important.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -82,10 +82,11 @@ What is more, if you want to increase the length, you have to drag the bar to th
 
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -93,12 +94,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-amplify-your-audience-maximizing-youtube-viewership/"><u>[New] In 2024, Amplify Your Audience Maximizing YouTube Viewership</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-syncing-to-success-unveiling-youtubes-musical-shortcuts/"><u>[New] Syncing to Success Unveiling YouTube's Musical Shortcuts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-audiences-eye-view-selecting-best-webcams-for-podcasts/"><u>[New] The Audience's Eye View Selecting Best Webcams for Podcasts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ultimate-guide-to-choosing-video-fps-30fps-vs-60fps-for-2024/"><u>[New] Ultimate Guide to Choosing Video FPS 30Fps Vs. 60Fps for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>[Updated] 2024 Approved Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-easy-pathway-to-fish-chatter-alteration-within-win-environment-for-2024/"><u>[Updated] Easy Pathway to Fish Chatter Alteration Within Win Environment for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-monetizing-content-how-much-adsense-pays-you-per-thousand-video-hits/"><u>[Updated] Monetizing Content How Much AdSense Pays You Per Thousand Video Hits?</u></a></li>
+<li><a href="https://common-error.techidaily.com/complete-guide-to-eliminate-livekernelevent-error-number-144/"><u>Complete Guide to Eliminate LiveKernelEvent Error Number 144</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/social-media-showdown-comparing-igtv-and-youtubes-unique-aspects-for-2024/"><u>Social Media Showdown Comparing IGTV and YouTube's Unique Aspects for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-solution-for-non-shown-shorts-thumbnails-on-youtube-for-2024/"><u>Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-usa-vpn-free-trial-for-privacy-security-unblocking/"><u>Top USA VPN [Free Trial] - for Privacy, Security, Unblocking</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-corrective-measures-for-windows-file-repair-service-sfc-malfunction/"><u>Troubleshooting Guide: Corrective Measures for Windows File Repair Service (SFC) Malfunction</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-asus-touchpad-driver-fast-with-easy-steps-for-windows-11-users/"><u>Update Your ASUS Touchpad Driver Fast with Easy Steps for Windows 11 Users</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/what-is-ai-marketing-in-2024/"><u>What Is AI Marketing, In 2024</u></a></li>
+</ul></div>
 
