@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Boost Your Visual Storytelling  Key Strategies for Solo Videos for 2024\""
-date: 2025-01-11T16:11:08.189Z
-updated: 2025-01-15T17:12:49.513Z
+date: 2025-01-16T21:25:06.974Z
+updated: 2025-01-21T17:55:20.444Z
 tags:
   - ai video
   - ai youtube
@@ -37,15 +37,11 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -62,7 +58,7 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -79,6 +75,10 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -86,6 +86,10 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -104,7 +108,7 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -114,10 +118,6 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,22 +134,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-clubbing-essentials-top-rated-dj-template-vids/"><u>[New] 2024 Approved Clubbing Essentials Top-Rated DJ Template Vids</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-how-to-use-gopro-hero5-black-tips-for-shooting-great-photos-and-video/"><u>[New] 2024 Approved How to Use GoPro Hero5 Black Tips for Shooting Great Photos and Video</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-youtube-income-how-much-does-each-1000-viewer-earn-for-2024/"><u>[New] Decoding YouTube Income How Much Does Each 1,000 Viewer Earn for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-step-by-step-guide-screen-casts-on-discord/"><u>[New] In 2024, Step-by-Step Guide Screen Casts on Discord</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-metrics-for-effective-content-strategy/"><u>[New] Mastering YouTube Metrics for Effective Content Strategy</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-photomontage-effect-visual-synthesis-techniques/"><u>[New] The Photomontage Effect Visual Synthesis Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-unlocking-superior-communication-optimal-use-of-zoom-in-skype-sessions/"><u>[New] Unlocking Superior Communication Optimal Use of ZOOM in Skype Sessions</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-youtube-end-card-tactics-and-layouts/"><u>[Updated] 2024 Approved Cutting Edge Youtube End Card Tactics & Layouts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-calculating-earnings-ad-revenues-in-the-world-of-youtube-for-2024/"><u>[Updated] Calculating Earnings Ad Revenues in the World of YouTube for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-achieving-cohesion-in-content-with-flv-video-integration/"><u>[Updated] In 2024, Achieving Cohesion in Content with FlV Video Integration</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-ghostly-glimpses-video-review/"><u>[Updated] In 2024, Ghostly Glimpses Video Review</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-premier-football-vids-key-youtube-infographic-data/"><u>[Updated] Premier Football Vids Key YouTube Infographic Data</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-quick-guide-personalized-youtube-shorts-images-without-hassle/"><u>[Updated] Quick Guide Personalized YouTube Shorts Images Without Hassle</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-samsung-galaxy-m34-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/discover-the-marvel-universe-with-apple-vision-pro-the-future-of-ar-glasses-revealed-on-may-30th-zdnet/"><u>Discover the Marvel Universe with Apple Vision Pro: The Future of AR Glasses Revealed on May 30Th - ZDNet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-26-metaverse-milestones-a-journey-into-virtual-realms/"><u>In 2024, 26 Metaverse Milestones A Journey Into Virtual Realms</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-lava-blaze-2-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Lava Blaze 2 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cutting-edge-techniques-for-private-yt-content-dissemination-in-gmail/"><u>[New] 2024 Approved Cutting-Edge Techniques for Private YT Content Dissemination in Gmail</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-a-step-by-step-guide-to-engaging-video-blog-plots/"><u>[New] A Step-by-Step Guide to Engaging Video Blog Plots</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-a-step-by-step-strategy-to-design-engaging-youtube-teasers-for-2024/"><u>[New] A Step-by-Step Strategy to Design Engaging YouTube Teasers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enhancing-video-quality-editing-tips-for-published-content/"><u>[New] In 2024, Enhancing Video Quality Editing Tips for Published Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-optimize-youtube-visibility-by-sustaining-creativity-commons-license/"><u>[New] Optimize YouTube Visibility by Sustaining Creativity Commons License</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-quick-fixes-to-design-delight-canvas-top-10-tips/"><u>[Updated] 2024 Approved Quick Fixes to Design Delight Canva's Top 10 Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-critically-acclaimed-video-cards-for-clear-youtube-broadcasts/"><u>[Updated] In 2024, Critically Acclaimed Video Cards for Clear YouTube Broadcasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mobile-mastery-youtube-video-thumbnails-made-easy/"><u>[Updated] Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-swift-film-techniques-for-at-home-creators/"><u>[Updated] Swift Film Techniques for At-Home Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-5-youtube-link-shortener-you-can-find/"><u>[Updated] Top 5 YouTube Link Shortener You Can Find</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-ultimate-chromebook-capture-top-screen-recorder-choice-for-2024/"><u>[Updated] Ultimate Chromebook Capture Top Screen Recorder Choice for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/educational-ai-parental-edition-of-the-new-age-tech/"><u>Educational AI: Parental Edition of the New Age Tech</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722849082326-elevate-your-gaming-experience-how-to-hit-and-maintain-a-steady-120-fps-on-sonys-playstation-groove/"><u>Elevate Your Gaming Experience: How to Hit and Maintain a Steady 120 FPS on Sony's PlayStation Groove!</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-nokia-c02-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Nokia C02 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-rankings-secrets-enhancing-video-visibility/"><u>In 2024, YouTube Rankings Secrets Enhancing Video Visibility</u></a></li>
+<li><a href="https://win11.techidaily.com/launching-screen-capture-in-windows-11-with-ease/"><u>Launching Screen Capture in Windows 11 with Ease</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/star-trek-saga-the-perfect-viewing-order-for-new-fans/"><u>Star Trek Saga - The Perfect Viewing Order for New Fans</u></a></li>
 </ul></div>
 

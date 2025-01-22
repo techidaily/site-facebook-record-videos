@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Luminous Techniques for Engaging Vlogs"
-date: 2024-12-02T22:42:33.547Z
-updated: 2024-12-09T23:30:24.928Z
+date: 2025-01-20T00:22:53.876Z
+updated: 2025-01-21T21:46:42.451Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ One of the best things you can do for your video quality is to ensure you have g
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
@@ -37,7 +37,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -52,11 +52,11 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-### Watch Video! Top Lighting Tips for Vlogging
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -91,7 +91,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -101,7 +101,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -119,24 +119,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-is-there-a-perfect-fps-for-everyone-comparing-30-and-60/"><u>[New] 2024 Approved Is There a 'Perfect' FPS for Everyone? Comparing 30 and 60</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-amplify-your-storytelling-seamlessly-insert-music-into-youtube-videos-for-2024/"><u>[New] Amplify Your Storytelling Seamlessly Insert Music Into YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-footage-tips-for-youtube-studios-video-editing/"><u>[New] Transform Your Footage Tips for YouTube Studio's Video Editing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-youtube-video-ideas-to-spark-inspiration/"><u>[Updated] 2024 Approved Best YouTube Video Ideas to Spark Inspiration</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-insiders-guide-to-professional-vsco-usage/"><u>[Updated] 2024 Approved The Insider's Guide to Professional VSCO Usage</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-a-course-through-websites-of-youtube-affiliates/"><u>[Updated] In 2024, Charting a Course Through Websites of YouTube Affiliates</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>[Updated] In 2024, Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-echoing-ethos-with-closing-credits/"><u>[Updated] In 2024, Echoing Ethos with Closing Credits</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-offline-mobile-world-choose-the-ultimate-game-for-fun/"><u>[Updated] In 2024, Top Offline Mobile World - Choose the Ultimate Game for Fun</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-methods-for-shuffling-yt-playlists/"><u>[Updated] Innovative Methods for Shuffling YT Playlists</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-mastering-the-use-of-tags-for-maximum-reach/"><u>[Updated] YouTube Mastering the Use of Tags for Maximum Reach</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/clearsnap-guide-how-to-exclude-distracting-picture-borders/"><u>ClearSnap Guide How to Exclude Distracting Picture Borders</u></a></li>
-<li><a href="https://win-bits.techidaily.com/comprehensive-troubleshooting-steps-for-fixing-pfn-list-corruption-issues/"><u>Comprehensive Troubleshooting Steps for Fixing PFN List Corruption Issues</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/from-novice-to-pro-comprehensible-periscope-steps-for-2024/"><u>From Novice to Pro Comprehensible Periscope Steps for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Gionee F3 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-shorts-revenue-sharing-explained-how-much-will-i-make/"><u>In 2024, YouTube Shorts Revenue Sharing Explained How Much Will I Make?</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/navigating-the-truth-in-your-photos-an-instagram-selfie-audit-for-2024/"><u>Navigating the Truth in Your Photos An Instagram Selfie Audit for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/unleash-your-devices-potential-with-these-8-must-have-apps/"><u>Unleash Your Device's Potential with These 8 Must-Have Apps</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/king-the-secrets-to-earning-from-viral-snippets/"><u>Unlocking the Secrets to Earning From Viral Snippets</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-building-a-fanbase-with-youtube-streams-for-2024/"><u>[Updated] Building a Fanbase with YouTube Streams for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-classic-cinematography-step-by-step-guide-for-2024/"><u>[Updated] Crafting Classic Cinematography Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-hitting-the-high-notes-of-youtube-editing-audio-addition-secrets-revealed/"><u>[Updated] Hitting the High Notes of YouTube Editing Audio Addition Secrets Revealed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-keep-your-identity-under-wraps-while-livestreaming/"><u>[Updated] In 2024, Keep Your Identity Under Wraps While Livestreaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-revel-in-the-rush-free-zone-unveiling-three-ways-to-slowdown-youtube-streams-62-chars-slightly-over-but-justified-with-context/"><u>[Updated] Revel in the Rush-Free Zone Unveiling Three Ways to Slowdown YouTube Streams (62 Chars, Slightly over but Justified with Context)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-securing-your-youtube-footage-a-quick-walkthrough/"><u>[Updated] Securing Your YouTube Footage A Quick Walkthrough</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-complete-guide-to-editing-youtube-on-the-go-with-sony-vegas/"><u>[Updated] The Complete Guide to Editing YouTube on the Go With Sony Vegas</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/video-lessons-to-vivid-engaging-gifs-no-download-needed-for-2024/"><u>From Video Lessons to Vivid, Engaging GIFs – No Download Needed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/how-to-improve-latency-and-frame-rate-in-counter-strike-2-for-better-gameplay/"><u>How to Improve Latency & Frame Rate in Counter-Strike 2 for Better Gameplay</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-covert-observers-fb-flashbacks-reader/"><u>In 2024, Covert Observers FB Flashbacks Reader</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-vlog-edit-mastery-harnessing-the-power-of-jump-cuts/"><u>In 2024, Vlog Edit Mastery Harnessing the Power of Jump Cuts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/supersonic-phenomenon-how-a-common-can-of-compressed-air-reaches-sonic-velocity/"><u>Supersonic Phenomenon: How a Common Can of Compressed Air Reaches Sonic Velocity</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-case-for-local-llm-9-pros-9-cons/"><u>The Case for Local LLM: 9 Pros, 9 Cons</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/troubleshooting-techniques-for-detecting-an-unseen-hdd-on-windows-10-systems/"><u>Troubleshooting Techniques for Detecting an Unseen HDD on Windows 10 Systems</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-bert-a-comprehensive-guide-to-the-nlp-framework-gpt-vs/"><u>Understanding BERT: A Comprehensive Guide to the NLP Framework - GPT Vs</u></a></li>
+<li><a href="https://games-able.techidaily.com/your-gateway-to-pc-gaming-google-play-betas-best-titles/"><u>Your Gateway to PC Gaming - Google Play Beta's Best Titles</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Solution for Non-Shown Shorts Thumbnails on YouTube\""
-date: 2025-01-10T18:46:27.373Z
-updated: 2025-01-15T19:52:43.668Z
+date: 2025-01-19T17:03:14.870Z
+updated: 2025-01-21T18:25:21.777Z
 tags:
   - ai video
   - ai youtube
@@ -55,10 +55,6 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -72,6 +68,10 @@ Some YouTubers have tried using different images. Others have experimented with 
 Attracting viewers on Shorts is the same as attracting viewers on the main YouTube. You use interesting thumbnails and video titles. Since thumbnails are out of the options, selecting great video titles has become even more important.
 
 Here are some pointers. Your title should be at most 40 characters. Also, it should be concise and irresistible. And forget about SEO since no one is searching for YouTube Shorts anyway. People consume what they see in their feeds. So instead, the title should be "snappy." It should intrigue, entertain, or enlighten the viewers. That will net you some views for your Shorts content.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Q5\. How To Get More Views on YouTube Shorts?
 
@@ -129,6 +129,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Tap "Library"
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
@@ -137,17 +141,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -171,10 +167,6 @@ Luckily, that's going to change. Starting this year, Shorts will be a part of th
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
@@ -189,16 +181,24 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Library" on the left panel.
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### On a Mobile Phone
@@ -206,10 +206,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Open the YouTube app. Watch a Shorts video.
 
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Like the Shorts video.
 
@@ -226,10 +222,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -287,6 +279,10 @@ Despite its name, YouTube TV is not a part of YouTube; Google maintains both as 
 
 ![youtube tv](https://images.wondershare.com/filmora/article-images/2021/youtube-tv-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Watch YouTube TV?
 
 #### Using a computer
@@ -305,6 +301,10 @@ Despite its name, YouTube TV is not a part of YouTube; Google maintains both as 
 5. Control YouTube TV on your TV with your mobile device.
 
 ![what is youtube tv](https://images.wondershare.com/filmora/article-images/2021/youtube-tv-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Is Youtube Tv A Good Investment?
 
@@ -384,6 +384,10 @@ While traveling in the United States, you can watch YouTube TV; however, the ava
 
 Google asked for our ZIP code when we originally joined up for YouTube TV, which established our Home Area. Then, we confirmed this position using our iPhone's device location permissions. This location dictated which local affiliate networks we could view, but we couldn't watch these networks while traveling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 ● If you have a relatively recent phone, tablet, TV, or computer, there's a good chance you'll be able to view YouTube TV. Because the watching experience is so similar across platforms and devices, YouTube TV is one of the most mobile-friendly solutions. However, it requires Wi-Fi or 4G to function, which means it lacks the offline capabilities of other alternatives.
@@ -419,7 +423,7 @@ Despite its name, YouTube TV is not a part of YouTube; Google maintains both as 
 ![youtube tv](https://images.wondershare.com/filmora/article-images/2021/youtube-tv-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Watch YouTube TV?
@@ -572,10 +576,6 @@ Despite its name, YouTube TV is not a part of YouTube; Google maintains both as 
 
 ![what is youtube tv](https://images.wondershare.com/filmora/article-images/2021/youtube-tv-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Is Youtube Tv A Good Investment?
 
 YouTube TV is the premium live TV service to choose from because it has the best channel selection and an unlimited DVR. YouTube TV has proven to be one of the greatest live TV streaming services, with an excellent channel selection and an unrivaled user experience, since its introduction in 2017.
@@ -688,10 +688,6 @@ Despite its name, YouTube TV is not a part of YouTube; Google maintains both as 
 
 ![youtube tv](https://images.wondershare.com/filmora/article-images/2021/youtube-tv-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Watch YouTube TV?
 
 #### Using a computer
@@ -788,6 +784,10 @@ While traveling in the United States, you can watch YouTube TV; however, the ava
 #### Where does Youtube TV get information about your location?
 
 Google asked for our ZIP code when we originally joined up for YouTube TV, which established our Home Area. Then, we confirmed this position using our iPhone's device location permissions. This location dictated which local affiliate networks we could view, but we couldn't watch these networks while traveling.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -810,22 +810,20 @@ Google asked for our ZIP code when we originally joined up for YouTube TV, which
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-captivating-cold-ideal-snowy-scenes-to-brighten-videos/"><u>[New] 2024 Approved Captivating Cold Ideal Snowy Scenes to Brighten Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-building-gear-a-quick-start-guide/"><u>[New] 2024 Approved Channel-Building Gear A Quick Start Guide</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-husqvarna-h501s-drone-unboxed-review-essentials/"><u>[New] 2024 Approved Husqvarna H501S Drone Unboxed - Review Essentials</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-unlocking-the-secrets-of-effective-youtube-thumbnails/"><u>[New] Unlocking the Secrets of Effective YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-apex-artists-youtubes-most-followed-sages-for-2024/"><u>[Updated] Apex Artists YouTube's Most-Followed Sages for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-content-that-captures-audiences-hearts-for-2024/"><u>[Updated] Crafting Content that Captures Audiences' Hearts for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-imageslice-cutter/"><u>[Updated] ImageSlice Cutter</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-becoming-a-vlogger-voice-confident-content-creation-strategies/"><u>[Updated] In 2024, Becoming a Vlogger Voice Confident Content Creation Strategies</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-for-the-tech-sleuth-dissecting-the-best-top-10-fb-videos-downloaders/"><u>[Updated] In 2024, For the Tech Sleuth Dissecting the Best Top 10 FB Videos Downloaders</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-master-fast-sharing-youtube-playlists-made-simple/"><u>[Updated] Master Fast Sharing YouTube Playlists Made Simple</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-mastering-the-m1-market-the-top-pick-for-apple-enthusiasts/"><u>[Updated] Mastering the M1 Market The Top Pick for Apple Enthusiasts</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-revealing-the-identity-of-viewers-on-youtube/"><u>[Updated] Revealing the Identity of Viewers on YouTube</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-is-your-apple-iphone-15-in-security-lockout-proper-ways-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 15 in Security Lockout? Proper Ways To Unlock | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/powerslide-music-integration-a-comprehensive-guide/"><u>PowerSlide Music Integration A Comprehensive Guide</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/ultimate-guide-top-avi-file-compressor-tools-for-optimal-video-size-and-display/"><u>Ultimate Guide: Top AVI File Compressor Tools for Optimal Video Size and Display</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-ultimate-free-video-blur-hack-online-solution/"><u>Updated 2024 Approved The Ultimate Free Video Blur Hack Online Solution</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-10-cheeky-tunes-turned-parodies-for-2024/"><u>[New] 10 Cheeky Tunes Turned Parodies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-consistent-viewing-automatic-youtube-video-playback-on-tv/"><u>[New] 2024 Approved Consistent Viewing Automatic YouTube Video Playback on TV</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-bend-reality-with-your-own-animated-craftsmanship-for-2024/"><u>[New] Bend Reality with Your Own Animated Craftsmanship for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cosmetics-confidentials-building-a-beauty-channel-on-youtube-for-2024/"><u>[New] Cosmetics Confidentials Building a Beauty Channel on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-best-youtube-to-gif-makers-how-to-create-gif-from-youtube-video/"><u>[New] In 2024, 10 Best YouTube To GIF Makers How to Create GIF From YouTube Video?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-audience-engagement-top-hashtag-strategies-revealed/"><u>[New] In 2024, Elevate Audience Engagement Top Hashtag Strategies Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-degrees-elevating-your-youtube-videos/"><u>[New] The Art of Degrees Elevating Your YouTube Videos</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-dive-into-the-world-of-tiktok-loved-novels/"><u>[Updated] Dive Into the World of TikTok-Loved Novels</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-top-10-easy-to-use-drones-kids-edition/"><u>2024 Approved Top 10 Easy-to-Use Drones - Kids Edition</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-lenovo-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Lenovo Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-12-pro-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone 12 Pro?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-14-plus-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone 14 Plus With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/organized-thoughts-in-one-place-embracing-obsidian/"><u>Organized Thoughts in One Place - Embracing Obsidian</u></a></li>
+<li><a href="https://win11.techidaily.com/tips-for-preventing-black-display-in-win-gaming/"><u>Tips for Preventing Black Display in Win Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
 </ul></div>
 

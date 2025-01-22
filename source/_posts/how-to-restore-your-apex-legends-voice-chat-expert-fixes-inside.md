@@ -1,7 +1,7 @@
 ---
 title: How to Restore Your Apex Legends Voice Chat - Expert Fixes Inside
-date: 2025-01-12T17:13:14.772Z
-updated: 2025-01-15T16:37:14.525Z
+date: 2025-01-20T21:43:57.554Z
+updated: 2025-01-21T17:17:46.760Z
 tags:
   - win11
   - win10
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025
 
  Microphone not working when you’re on a Webex meeting? You’re not alone! Such audio issues are quite common but they’re usually not hard to fix. Even if you’re not familiar with computer, follow this post and you’ll be able to tackle the Webex microphone not working issue easily and quickly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  Here are 4 fixes for the Webex mic not working issue. You don’t have to try them all. Just work from the top down until you find the one that solves the problem.
@@ -28,10 +32,6 @@ thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025
 3. [**Update your audio driver**](https://tools.techidaily.com/drivereasy/download/)
 4. **[Check the Webex settings](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 1 – Troubleshoot the connection
 
  Before you proceed to anything more complicated, make sure you’ve set up the audio device correctly.
@@ -40,10 +40,6 @@ thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025
 * Make sure the mute button on your headsets or microphone is turned off.
 
  If your mic is securely plugged in but still not working in Webex, continue to more solutions below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 2 – Allow Webex to access your microphone
 
@@ -56,6 +52,10 @@ thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/4-3.jpg)
 4. Scroll down and toggle on the button below**Allow apps to access your microphone** and**Allow desktop apps to access your microphone** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2021/10/allow-access-to-microphone-1.jpg)
 
@@ -82,21 +82,21 @@ There are mainly two ways you can update the audio driver:
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/de-borderless.jpg)
 3. Click the**Update** button next to the flagged audio driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the**FREE version** ).  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/3-2-11.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  Now check if your microphone works in the Webex meeting. If not, there’s one more fix to try.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Fix 3 – Check the Webex settings
 
@@ -111,7 +111,7 @@ There are mainly two ways you can update the audio driver:
 4. You can also adjust the volume by dragging the slider. Then click Save to apply the changes.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/03/webex-settings-4.jpg)
@@ -139,24 +139,22 @@ There are mainly two ways you can update the audio driver:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-cinema-craftsmanship-unleashed-youtube-green-screens-101-for-2024/"><u>[New] Cinema Craftsmanship Unleashed Youtube Green Screens 101 for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-antique-cinematography-in-the-digital-realm/"><u>[New] In 2024, Antique Cinematography in the Digital Realm</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-transformation-unleash-potential-with-tubebuddy/"><u>[New] In 2024, Channel Transformation Unleash Potential with TubeBuddy</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-instagram-video-timing-what-you-need-to-know-for-2024/"><u>[New] Instagram Video Timing What You Need To Know for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-your-first-steps-in-the-digital-world-course-recommendations/"><u>[New] Your First Steps in the Digital World Course Recommendations</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-converting-videos-to-gifs-online-the-ultimate-youtube-resource/"><u>[Updated] In 2024, Converting Videos to Gifs Online The Ultimate YouTube Resource</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-where-is-youtube-video-manager-all-you-need-to-know/"><u>2024 Approved Where Is Youtube Video Manager? [All You Need to Know]</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-leading-severe-weather-trackers-for-your-smartphone/"><u>Expert Picks: Leading Severe Weather Trackers for Your Smartphone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-copy-and-backup-a-protected-dvd-using-mac-compatible-winx-dvd-ripper-software/"><u>How to Copy and Backup a Protected DVD Using Mac-Compatible WinX DVD Ripper Software</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-update-and-install-aoc-graphics-card-drivers-for-windows-users-versions-11108/"><u>How to Update & Install AOC Graphics Card Drivers for Windows Users (Versions 11/10/8)</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Poco X6? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-your-ultimate-cheat-sheet-for-seamlessly-looping-videos-on-youtube/"><u>In 2024, Your Ultimate Cheat Sheet for Seamlessly Looping Videos on YouTube</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/optimize-your-gaming-setup-logitech-driving-force-pro-driver-for-windows-operating-systems/"><u>Optimize Your Gaming Setup: Logitech Driving Force Pro Driver for Windows Operating Systems</u></a></li>
-<li><a href="https://some-tips.techidaily.com/photos-that-speak-volumes-starting-with-lunapics-tutorial-for-2024/"><u>Photos That Speak Volumes Starting with LunaPic's Tutorial for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/step-by-step-guide-to-crafting-striking-youtube-thumbnails-mac-edition-for-2024/"><u>Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/successfully-running-swf-files-in-google-chrome-shockwave-flash-fixed/"><u>Successfully Running SWF Files in Google Chrome – Shockwave Flash Fixed!</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-poco-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Poco X6 | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-the-power-of-natural-and-artificentic-lights-on-iphone/"><u>Unleash the Power of Natural and Artificentic Lights on iPhone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtubes-high-stakes-hardware-showdown-for-2024/"><u>YouTube’s High-Stakes Hardware Showdown for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-cultivating-a-positive-mindset-against-cyberbullying/"><u>[New] 2024 Approved Cultivating a Positive Mindset Against Cyberbullying</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-efficiently-record-your-screen-with-io-screen-recorder-for-2024/"><u>[New] Efficiently Record Your Screen with IO Screen Recorder for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-10-strategies-for-educators-starting-their-own-youtube-series/"><u>[New] In 2024, 10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-11-zero-cost-youtube-moniker-makers/"><u>[New] In 2024, Essential 11 Zero-Cost YouTube Moniker Makers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-instant-screen-grabber-for-chromebooks-for-2024/"><u>[New] Instant Screen Grabber for Chromebooks for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pclaptop-editors-without-relying-on-inshot/"><u>[New] PC/Laptop Editors without Relying on Inshot</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-avoiding-piracy-safe-techniques-for-youtube-to-mp4/"><u>[Updated] 2024 Approved Avoiding Piracy Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-the-mystery-of-youtube-shorts-for-2024/"><u>[Updated] Decoding the Mystery of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficient-strategies-for-saving-youtube-thumbnails-on-any-os/"><u>[Updated] In 2024, Efficient Strategies for Saving Youtube Thumbnails on Any OS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-explore-top-10-iphoneandroid-intro-creation-software/"><u>[Updated] In 2024, Explore Top 10 iPhone/Android Intro Creation Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-streaming-wars-understanding-vimeo-and-youtubes-distinctions/"><u>[Updated] Streaming Wars Understanding Vimeo and YouTube's Distinctions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-best-slo-mo-camera-apps-on-iosandroid-platforms/"><u>2024 Approved Explore Best Slo-Mo Camera Apps on iOS/Android Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-art-of-selective-engagement-on-ig/"><u>2024 Approved The Art of Selective Engagement on IG</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/how-to-install-and-use-instagram-app-on-your-kindle-fire-tablet/"><u>How to Install and Use Instagram App on Your Kindle Fire Tablet</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-masterclass-in-cross-platform-content-sharing-instagram-plus-tiktok/"><u>In 2024, Masterclass in Cross-Platform Content Sharing Instagram + TikTok</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/prime-time-podcasting-release-patterns-for-2024/"><u>Prime Time Podcasting Release Patterns for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/scheduling-virtual-gatherings-with-zoom-an-android-users-handbook/"><u>Scheduling Virtual Gatherings with Zoom An Android User's Handbook</u></a></li>
 </ul></div>
 

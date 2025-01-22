@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2025-01-13T16:54:10.899Z
-updated: 2025-01-15T18:57:55.782Z
+date: 2025-01-14T20:34:52.401Z
+updated: 2025-01-21T19:24:56.560Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,21 +77,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-beauty-on-streams-via-color-grading/"><u>[New] 2024 Approved Enhancing Beauty on Streams via Color Grading</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>[New] Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-making-an-impression-professional-pc-editing-strategies-for-youtube/"><u>[New] Making an Impression Professional PC Editing Strategies for YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aximize-your-youtube-viewing-download-icons-via-online-and-os-specific-methods/"><u>[New] Maximize Your YouTube Viewing Download Icons via Online & OS-Specific Methods</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-white-list-microphones-for-frugal-filmmakers/"><u>[New] White-List Microphones for Frugal Filmmakers</u></a></li>
-<li><a href="https://common-error.techidaily.com/solved-computer-restarts-when-playing-games/"><u>[SOLVED] Computer Restarts When Playing Games</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-adding-a-digital-clock-to-your-youtube-video-playback/"><u>[Updated] 2024 Approved Adding a Digital Clock to Your YouTube Video Playback</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crafting-captivating-animations-creating-gifs-from-your-favorite-youtube-videos/"><u>[Updated] 2024 Approved Crafting Captivating Animations Creating GIFs From Your Favorite YouTube Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-dismantle-that-dominating-green-distortion-in-mac-based-videos/"><u>[Updated] In 2024, Dismantle That Dominating Green Distortion in Mac-Based Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-exploring-the-expense-of-youtube-channel-growth/"><u>2024 Approved Exploring the Expense of YouTube Channel Growth</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-oppo-a78-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Oppo A78 Unlock Without Password</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-10-non-native-screen-capture-applications/"><u>In 2024, Top 10 Non-Native Screen Capture Applications</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/mastering-the-connection-linking-oculus-quest-2-to-a-handheld-device-efficiently/"><u>Mastering the Connection: Linking Oculus Quest 2 to a Handheld Device Efficiently</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-realme-gt-neo-5-se-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Realme GT Neo 5 SE</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/smart-sound-showdown-deciding-between-apples-homepod-and-homepod-mini-for-ultimate-audio-experience-tech-insights-by-zdnet/"><u>Smart Sound Showdown: Deciding Between Apple's HomePod & HomePod Mini for Ultimate Audio Experience | Tech Insights by ZDNET</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-maximizing-engagement-sharing-images-on-youtube/"><u>[New] 2024 Approved Maximizing Engagement Sharing Images on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone-for-2024/"><u>[New] Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-discover-premiere-pro-essentials-free-and-high-quality-for-2024/"><u>[Updated] Discover Premiere Pro Essentials Free & High-Quality for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-eco-film-hub-dive-into-green-screen-creativity/"><u>2024 Approved Youtube’s Eco-Film Hub Dive Into Green Screen Creativity</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-motorola-moto-g84-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Motorola Moto G84 5G Unlock Without Password</u></a></li>
+<li><a href="https://win-special.techidaily.com/guide-complet-pour-lajout-dun-ssd-m2-plus-grand-sans-perte-de-donnees-les-4-etape/"><u>Guide Complet Pour L'Ajout D'Un SSD M.2 Plus Grand Sans Perte De Données: Les 4 Etape</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quickfire-engagement-top-30plus-youtube-hashes-for-2024/"><u>Quickfire Engagement Top 30+ YouTube Hashes for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-city-skylines-2-pc-crash-issues-proven-fixes/"><u>Solving 'City Skylines 2' PC Crash Issues - Proven Fixes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamline-creation-with-no-cost-high-quality-banner-templates-for-2024/"><u>Streamline Creation with No-Cost, High-Quality Banner Templates for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-portable-solar-power-unit-by-aeiusny-ideal-pure-sine-wave-inverter-for-healthcare-equipment/"><u>Top Rated Portable Solar Power Unit by Aeiusny: Ideal Pure Sine Wave Inverter for Healthcare Equipment</u></a></li>
 </ul></div>
 

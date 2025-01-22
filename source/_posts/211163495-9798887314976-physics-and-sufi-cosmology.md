@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2025-01-10T19:09:36.077Z
-updated: 2025-01-15T18:11:53.121Z
+date: 2025-01-15T16:12:00.481Z
+updated: 2025-01-21T22:00:19.967Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,25 +175,20 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-comprehensive-guide-to-youtube-content-moderation-rules-for-2024/"><u>[New] Comprehensive Guide to YouTube Content Moderation Rules for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-entry-level-landing-low-cost-profitable-youtube-platforms-for-2024/"><u>[New] Entry Level Landing Low-Cost, Profitable YouTube Platforms for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-brands-together-a-guide-to-selecting-youtube-teams/"><u>[Updated] 2024 Approved Building Brands Together A Guide to Selecting YouTube Teams</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-double-the-joy-master-looping-of-youtube-media-on-televisions/"><u>[Updated] 2024 Approved Double the Joy Master Looping of YouTube Media on Televisions</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-clarity-fix-black-screens-on-youtube/"><u>[Updated] In 2024, Unlocking Clarity Fix Black Screens on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-mastering-the-market-essential-youtube-finance-channels-for-2024/"><u>[Updated] Mastering the Market Essential YouTube Finance Channels for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-strategies-to-fast-track-vimeo-content/"><u>[Updated] Strategies to Fast-Track Vimeo Content</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/exploring-the-world-of-digital-wallets-the-role-of-balance-validation-tools-by-yl-software/"><u>Exploring the World of Digital Wallets: The Role of Balance Validation Tools by YL Software</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-apple-iphone-se-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock Apple iPhone SE Without Passcode Now</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/premier-mic-choices-for-4k-cameras-and-clear-audio-capture/"><u>Premier Mic Choices for 4K Cameras & Clear Audio Capture</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/quash-unwanted-youtube-suggested-videos-for-2024/"><u>Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/this-model-was-trained-by-microsoft-with-a-focus-on-generating-coherent-and-fluent-text-based-on-the-given-prompt-but-without-specific-fine-tuning-for-factu624/"><u>This Model Was Trained by Microsoft with a Focus on Generating Coherent and Fluent Text Based on the Given Prompt, but without Specific Fine-Tuning for Factual Correctness or Nuanced Understanding of Complex Topics</u></a></li>
-<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-hardware-drivers-with-windows-device-manager-in-windows-10-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning hardware drivers with Windows Device Manager in Windows 10</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/visual-ventures-partnership-playbook-for-2024/"><u>Visual Ventures Partnership Playbook for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/xbox-one-and-netflix-compatibility-fixed-watch-your-favorite-shows-without-hiccups/"><u>Xbox One and Netflix Compatibility Fixed - Watch Your Favorite Shows Without Hiccups</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-blueprint-to-youtube-success-top-tips-for-outstanding-shorts-for-2024/"><u>Your Blueprint to Youtube Success Top Tips for Outstanding Shorts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-step-by-step-manual-on-repetitive-watch-experiences-in-yt/"><u>[New] 2024 Approved A Step-by-Step Manual on Repetitive Watch Experiences in YT</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-legal-means-to-elevate-your-youtube-popularity-by-one-million/"><u>[New] Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-the-world-with-a-fisheye-lens-for-2024/"><u>[New] Navigating the World with a Fisheye Lens for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tailoring-trailers-to-amplify-your-youtube-channels-earnings/"><u>[New] Tailoring Trailers to Amplify Your YouTube Channel's Earnings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dodge-digital-watchers-accelerating-view-count-growth/"><u>[Updated] 2024 Approved Dodge Digital Watchers Accelerating View Count Growth</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-behind-the-scenes-what-does-an-unlisted-video-mean-for-2024/"><u>[Updated] Behind the Scenes What Does an 'Unlisted' Video Mean for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-integrating-azures-speech-recognition-into-development/"><u>[Updated] In 2024, Integrating Azure’s Speech Recognition Into Development</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtube-live-potential-a-step-by-step-guide/"><u>[Updated] Unlocking YouTube Live Potential A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-vivo-y56-5g-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-recommendations-simple-profitable-youtube-purchases-for-2024/"><u>Rookie Recommendations Simple, Profitable YouTube Purchases for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-charging-your-oculus-quest-2-handsets/"><u>Step-by-Step Guide: Charging Your Oculus Quest 2 Handsets</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Cultivating a Positive Mindset Against Cyberbullying for 2024"
-date: 2024-07-31T02:26:46.525Z
-updated: 2024-08-01T02:26:46.525Z
+date: 2025-01-14T21:06:35.315Z
+updated: 2025-01-21T21:57:37.051Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/68d72132debc55d7a219d5ad96f3f8ade10f55eb9
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,12 +68,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-best-streaming-setup-leading-livestream-hardware-and-software-guide-for-2024/"><u>[New] Best Streaming Setup Leading Livestream Hardware & Software Guide for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/isabling-youtube-ads-across-chrome-firefox-android-and-ios-browsers-for-2024/"><u>[New] Disabling YouTube Ads Across Chrome, Firefox, Android & iOS Browsers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-easy-ways-to-add-music-to-imovie-from-youtube-for-2024/"><u>[New] Easy Ways to Add Music to iMovie From YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-the-complexity-of-online-content-monetization-for-2024/"><u>[Updated] Deciphering the Complexity of Online Content Monetization for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-the-hidden-truth-behind-youtubes-viewer-numbers-for-2024/"><u>[Updated] Discovering the Hidden Truth Behind YouTube's Viewer Numbers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dominate-youtube-with-effective-content-strategies-for-2024/"><u>[Updated] Dominate YouTube with Effective Content Strategies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elite-edits-the-best-video-editors-ranked-for-2024/"><u>[Updated] Elite Edits The Best Video Editors Ranked for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-data-deluge-infographics-on-youtubes-intriguing-insights/"><u>[Updated] In 2024, Data Deluge Infographics on YouTube's Intriguing Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleashing-the-power-of-youtube-finding-and-creating-partnerships/"><u>[Updated] Unleashing the Power of YouTube Finding and Creating Partnerships</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-enhancing-zoom-picture-resolution-simple-upgrades/"><u>2024 Approved Enhancing Zoom Picture Resolution Simple Upgrades</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-comprehensive-review-camera-lenses-for-youtube-for-2024/"><u>A Comprehensive Review Camera Lenses for YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/advanced-3d-text-techniques-in-ai-for-2024/"><u>Advanced 3D Text Techniques in AI for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/dealing-with-steams-erratic-content-loading/"><u>Dealing with Steam's Erratic Content Loading</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-track-imei-number-of-honor-play-40c-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Honor Play 40C Through Google Earth?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-effortless-screen-changes-made-simple/"><u>In 2024, Effortless Screen Changes Made Simple</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-unlock-the-power-of-screen-recording-a-filmora-scrn-tutorial/"><u>In 2024, Unlock the Power of Screen Recording A Filmora Scrn Tutorial</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-video-rotation-made-easy-top-free-solutions-for-windows-mac-android-and-iphone/"><u>In 2024, Video Rotation Made Easy Top Free Solutions for Windows, Mac, Android, and iPhone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-ranking-the-best-avchd-video-editing-software/"><u>New Ranking the Best AVCHD Video Editing Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/secrets-revealed-the-best-youtube-thumbnails-for-virality-for-2024/"><u>Secrets Revealed The Best YouTube Thumbnails for Virality for 2024</u></a></li>
+</ul></div>
 
