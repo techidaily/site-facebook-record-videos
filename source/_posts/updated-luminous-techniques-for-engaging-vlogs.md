@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Luminous Techniques for Engaging Vlogs"
-date: 2025-01-20T00:22:53.876Z
-updated: 2025-01-21T21:46:42.451Z
+date: 2025-01-22T16:07:42.396Z
+updated: 2025-01-29T00:18:03.854Z
 tags:
   - ai video
   - ai youtube
@@ -29,16 +29,12 @@ One of the best things you can do for your video quality is to ensure you have g
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -53,10 +49,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -91,7 +91,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -101,7 +101,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -119,21 +119,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-building-a-fanbase-with-youtube-streams-for-2024/"><u>[Updated] Building a Fanbase with YouTube Streams for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-crafting-classic-cinematography-step-by-step-guide-for-2024/"><u>[Updated] Crafting Classic Cinematography Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-hitting-the-high-notes-of-youtube-editing-audio-addition-secrets-revealed/"><u>[Updated] Hitting the High Notes of YouTube Editing Audio Addition Secrets Revealed</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-keep-your-identity-under-wraps-while-livestreaming/"><u>[Updated] In 2024, Keep Your Identity Under Wraps While Livestreaming</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-revel-in-the-rush-free-zone-unveiling-three-ways-to-slowdown-youtube-streams-62-chars-slightly-over-but-justified-with-context/"><u>[Updated] Revel in the Rush-Free Zone Unveiling Three Ways to Slowdown YouTube Streams (62 Chars, Slightly over but Justified with Context)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-securing-your-youtube-footage-a-quick-walkthrough/"><u>[Updated] Securing Your YouTube Footage A Quick Walkthrough</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-complete-guide-to-editing-youtube-on-the-go-with-sony-vegas/"><u>[Updated] The Complete Guide to Editing YouTube on the Go With Sony Vegas</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/video-lessons-to-vivid-engaging-gifs-no-download-needed-for-2024/"><u>From Video Lessons to Vivid, Engaging GIFs – No Download Needed for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/how-to-improve-latency-and-frame-rate-in-counter-strike-2-for-better-gameplay/"><u>How to Improve Latency & Frame Rate in Counter-Strike 2 for Better Gameplay</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-covert-observers-fb-flashbacks-reader/"><u>In 2024, Covert Observers FB Flashbacks Reader</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-vlog-edit-mastery-harnessing-the-power-of-jump-cuts/"><u>In 2024, Vlog Edit Mastery Harnessing the Power of Jump Cuts</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/supersonic-phenomenon-how-a-common-can-of-compressed-air-reaches-sonic-velocity/"><u>Supersonic Phenomenon: How a Common Can of Compressed Air Reaches Sonic Velocity</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-case-for-local-llm-9-pros-9-cons/"><u>The Case for Local LLM: 9 Pros, 9 Cons</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/troubleshooting-techniques-for-detecting-an-unseen-hdd-on-windows-10-systems/"><u>Troubleshooting Techniques for Detecting an Unseen HDD on Windows 10 Systems</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-bert-a-comprehensive-guide-to-the-nlp-framework-gpt-vs/"><u>Understanding BERT: A Comprehensive Guide to the NLP Framework - GPT Vs</u></a></li>
-<li><a href="https://games-able.techidaily.com/your-gateway-to-pc-gaming-google-play-betas-best-titles/"><u>Your Gateway to PC Gaming - Google Play Beta's Best Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-2023s-standout-youtube-music-playback-gems/"><u>[New] 2024 Approved 2023'S Standout YouTube Music Playback Gems</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-boosting-youtube-traffic-perfecting-titles-and-tags-for-max-views/"><u>[New] 2024 Approved Boosting YouTube Traffic Perfecting Titles & Tags for Max Views</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-digital-divas-top-ten-gamers-on-youtube-for-2024/"><u>[New] Digital Divas Top Ten Gamers on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-earnings-expedition-navigating-your-way-to-wealth-with-youtube-mobile-content-for-2024/"><u>[New] Earnings Expedition Navigating Your Way to Wealth with YouTube Mobile Content for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-screen-solidarities-picking-the-right-media-company/"><u>[New] Screen Solidarities Picking the Right Media Company</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-8-unique-workout-concepts-for-a-pulse-raising-video-channel-for-2024/"><u>[Updated] 8 Unique Workout Concepts for a Pulse-Raising Video Channel for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-99plus-million-view-snapshot-amusing-emoji-lore-for-2024/"><u>[Updated] 99+ Million View Snapshot Amusing Emoji Lore for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-content-control-youtube-vs-creative-commons-license-for-2024/"><u>[Updated] Deciphering Content Control YouTube Vs. Creative Commons License for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-essentials-for-launching-an-engaging-webcam-stream/"><u>[Updated] In 2024, Essentials for Launching an Engaging Webcam Stream</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-viral-vestments-the-15-most-informative-financial-videos/"><u>[Updated] Viral Vestments The 15 Most Informative Financial Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-vs-dailymention-identifying-key-variations/"><u>2024 Approved YouTube Vs. DailyMention Identifying Key Variations</u></a></li>
+<li><a href="https://driver-error.techidaily.com/hdr-sound-ready-error-cleared-on-bus/"><u>HDR Sound Ready: Error Cleared on Bus</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-realme-gt-neo-5-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Realme GT Neo 5 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-cricket-iphone-6s-plus-for-free-by-drfone-ios/"><u>How To Unlock Cricket iPhone 6s Plus for Free</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-guide-solving-the-issue-of-starfield-not-launching-on-steam-or-xbox/"><u>Troubleshooting Guide: Solving the Issue of Starfield Not Launching on Steam or Xbox</u></a></li>
 </ul></div>
 

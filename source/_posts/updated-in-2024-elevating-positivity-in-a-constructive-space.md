@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2025-01-14T20:34:52.401Z
-updated: 2025-01-21T19:24:56.560Z
+date: 2025-01-27T21:30:43.527Z
+updated: 2025-01-28T22:33:43.273Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,15 +77,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-maximizing-engagement-sharing-images-on-youtube/"><u>[New] 2024 Approved Maximizing Engagement Sharing Images on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone-for-2024/"><u>[New] Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-discover-premiere-pro-essentials-free-and-high-quality-for-2024/"><u>[Updated] Discover Premiere Pro Essentials Free & High-Quality for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-eco-film-hub-dive-into-green-screen-creativity/"><u>2024 Approved Youtube’s Eco-Film Hub Dive Into Green Screen Creativity</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-motorola-moto-g84-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Motorola Moto G84 5G Unlock Without Password</u></a></li>
-<li><a href="https://win-special.techidaily.com/guide-complet-pour-lajout-dun-ssd-m2-plus-grand-sans-perte-de-donnees-les-4-etape/"><u>Guide Complet Pour L'Ajout D'Un SSD M.2 Plus Grand Sans Perte De Données: Les 4 Etape</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/quickfire-engagement-top-30plus-youtube-hashes-for-2024/"><u>Quickfire Engagement Top 30+ YouTube Hashes for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-city-skylines-2-pc-crash-issues-proven-fixes/"><u>Solving 'City Skylines 2' PC Crash Issues - Proven Fixes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/streamline-creation-with-no-cost-high-quality-banner-templates-for-2024/"><u>Streamline Creation with No-Cost, High-Quality Banner Templates for 2024</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-portable-solar-power-unit-by-aeiusny-ideal-pure-sine-wave-inverter-for-healthcare-equipment/"><u>Top Rated Portable Solar Power Unit by Aeiusny: Ideal Pure Sine Wave Inverter for Healthcare Equipment</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-8-mirrorless-cameras-that-make-great-video-content/"><u>[New] 2024 Approved Explore 8 Mirrorless Cameras That Make Great Video Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweak-quick-twitter-video-preview/"><u>[New] 2024 Approved Tweak Quick Twitter Video Preview</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-beat-to-visuals-an-iphone-guide-for-music-videos/"><u>[New] Beat to Visuals An iPhone Guide for Music Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beyond-indexation-decoding-the-purpose-of-unlisted-videos/"><u>[Updated] 2024 Approved Beyond Indexation Decoding the Purpose of 'Unlisted' Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhanced-entertainment-tv-ready-looping-techniques-for-video-content-for-2024/"><u>[Updated] Enhanced Entertainment Tv-Ready Looping Techniques for Video Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-views-top-10-free-tools-for-custom-youtube-thumbnails/"><u>[Updated] In 2024, Boost Views Top 10 Free Tools for Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>[Updated] In 2024, Designing Youtube Ads That Grab Attention A Compreeher Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-minute-video-crafters/"><u>[Updated] Minute Video Crafters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-principles-of-filming-inspirational-daily-living-documentaries/"><u>[Updated] Principles of Filming Inspirational Daily Living Documentaries</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-into-fame-the-essential-blueprint-for-adding-channels-as-features-on-youtube/"><u>[Updated] Step Into Fame The Essential Blueprint for Adding Channels as Features on Youtube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-potential-with-magix-paint-pro/"><u>2024 Approved Unlocking Potential with MAGIX Paint Pro</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/chatgpt-plus-is-it-a-smart-investment-top-5-benefits-of-registering-now/"><u>ChatGPT Plus: Is It a Smart Investment? Top 5 Benefits of Registering Now!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/experience-unprecedented-savings-apple-slashes-m2-macbook-air-price-to-799-before-october-sales-bonanza/"><u>Experience Unprecedented Savings: Apple Slashes M2 MacBook Air Price to $799 Before October Sales Bonanza!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-x100-pro-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo X100 Pro Phone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-6-lite-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic 6 Lite To Phone | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-perfect-playback-top-strategies-for-gameplay-videos-for-2024/"><u>The Perfect Playback Top Strategies for Gameplay Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlock-igtv-master-video-submission-for-2024/"><u>Unlock IGTV Master Video Submission for 2024</u></a></li>
 </ul></div>
 

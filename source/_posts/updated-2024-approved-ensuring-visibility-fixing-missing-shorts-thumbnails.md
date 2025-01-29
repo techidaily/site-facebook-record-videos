@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Ensuring Visibility  Fixing Missing Shorts Thumbnails\""
-date: 2024-11-08T01:26:50.892Z
-updated: 2024-11-13T14:28:53.996Z
+date: 2025-01-23T13:35:19.126Z
+updated: 2025-01-29T11:28:35.669Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 * Get to your desktop computer or laptop. Open your channel's YouTube Studio.
 
 ![opening youtube studio on computer](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-2.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the left navigation menu, click "Content."
 
@@ -103,16 +107,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Library" on the left panel.
 
@@ -121,6 +122,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### On a Mobile Phone
 
@@ -141,10 +146,7 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Select the Shorts video you just watched. It should be at the top of the list.
@@ -195,13 +197,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -209,10 +204,7 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Like the Shorts video.
@@ -227,16 +219,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -278,13 +267,6 @@ Here in this article, we will explain Timestamp links, how to add Timestamp to Y
 * [part 4: Getting YouTube Timestamp Link on Mobile](#part4)
 * [Part 5: FAQ About YouTube Timestamps](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: What is YouTube Timestamp Links
 
 In this fast-paced world where viewers have limited time at hand, YouTube Timestamp links are extremely helpful. These links are anchor text or video hyperlinks found either in the description beneath the video or at the video link end.
@@ -502,13 +484,6 @@ Vibby allows you to not only share specific parts of videos from YouTube but oth
 
 ![share parts of YouTube video](https://images.wondershare.com/filmora/article-images/vib-share-parts-of-youtube-video-copy-paste.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Your video will load in the Vibby editor, now click on Highlight the parts to share.
 2. Here you will see the Start highlight button, jump 5-sec option, option to switch between HD and SD video quality, and volume control button. Navigate to the part you want to share and click on Start highlight.
 
@@ -586,6 +561,10 @@ The Timestamps links allow you to put a link to a key moment in your YouTube vid
 
 In addition to this, you can even provide a reference in minutes and hours where necessary. The YouTube Timestamp link acts as a guide that directs viewers to the part of the video, which is most relevant to them without having to watch the entire video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Add a Timestamp to YouTube Video Link on Desktop?
 
 In the following section, I will show you how to add timestamp to YouTube video link in several ways.
@@ -637,13 +616,6 @@ You can use YouTube’s built-in feature to share the key parts of your YouTube 
 3. Now either press Ctrl + click or right-click anywhere on the video. A pop-up opens where you can see various texts, click on the **Copy video URL at current time** and share the link.
 
 ![ get youtube timestamps link ](https://images.wondershare.com/filmora/article-images/copy-video-url-at-current-time.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Anyone who clicks on this link will be instantly transported to the exact segment of your YouTube video.
 
@@ -670,6 +642,10 @@ Vibby allows you to not only share specific parts of videos from YouTube but oth
 
 In this way, you can share the highlights of the YouTube video or Vimeo video easily.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Get YouTube Timestamp Link on iPhone and Android?
 
 Linking to specific YouTube Timestamp Link is straightforward on both iPhone and Android.
@@ -702,6 +678,10 @@ Note: You need to add at least three timestamps which are 10 seconds or longer i
 As much as possible YouTubers want to make videos short and to the point. However, if a video needs to be longer, you can still help users navigate through to find what is important to them by adding Timestamp to YouTube link or Timestamp the YouTube descriptions. This can help your viewers jump straight to the interesting part in the video, rather than viewing the entire video saving their time and boost user experience.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -786,6 +766,10 @@ You can use YouTube’s built-in feature to share the key parts of your YouTube 
 3. Now either press Ctrl + click or right-click anywhere on the video. A pop-up opens where you can see various texts, click on the **Copy video URL at current time** and share the link.
 
 ![ get youtube timestamps link ](https://images.wondershare.com/filmora/article-images/copy-video-url-at-current-time.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Anyone who clicks on this link will be instantly transported to the exact segment of your YouTube video.
 
@@ -866,14 +850,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-premiere-10-warzone-clashes/"><u>[New] 2024 Approved Premiere 10 Warzone Clashes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-foremost-10-recording-apps-for-social-media-vids/"><u>[Updated] Foremost 10 Recording Apps for Social Media Vids</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-10-parody-songs-that-totally-crack-you-up/"><u>[Updated] In 2024, 10 Parody Songs That Totally Crack You Up</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-put-a-halt-on-surprise-youtube-videos/"><u>[Updated] Put a Halt on Surprise YouTube Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-roadmap-to-youtube-fame-essential-steps-for-successful-content-for-2024/"><u>[Updated] The Roadmap to YouTube Fame Essential Steps for Successful Content for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/apple-books-application-a-comprehensive-review/"><u>Apple Books Application: A Comprehensive Review</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/essential-screen-snapping-tips-to-enhance-your-gaming-experience-for-2024/"><u>Essential Screen-Snapping Tips to Enhance Your Gaming Experience for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-video-game-systems-in-23/"><u>Top Rated Video Game Systems in 2^3</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unsubscribing-from-youtube-computer-and-mobile-techniques-for-2024/"><u>Unsubscribing From Youtube Computer & Mobile Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-convert-instagram-video-to-mp4-2-proven-ways/"><u>[New] 2024 Approved How to Convert Instagram Video to MP4 [ 2 Proven Ways]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mp3-upload-process-stream-convert-and-share-on-youtube-quickly/"><u>[New] MP3 Upload Process Stream, Convert & Share on YouTube Quickly</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-revolutionize-your-content-with-innovative-tagging-approaches/"><u>[New] Revolutionize Your Content with Innovative Tagging Approaches</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-stepwise-approach-to-unlinking-and-removing-youtube-content/"><u>[Updated] 2024 Approved A Stepwise Approach to Unlinking and Removing YouTube Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-the-worlds-most-popular-shorter-videos-free/"><u>[Updated] 2024 Approved Discovering the World's Most Popular Shorter Videos (FREE)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-craftsmanship-in-marvellous-marvel-creation-for-2024/"><u>[Updated] Craftsmanship in Marvellous Marvel Creation for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-earnings-expedition-navigating-your-way-to-wealth-with-youtube-mobile-content-for-2024/"><u>[Updated] Earnings Expedition Navigating Your Way to Wealth with YouTube Mobile Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-meta-descriptions-top-template-strategies/"><u>[Updated] In 2024, Elevate Meta Descriptions Top Template Strategies</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-premier-editing-software-perfect-for-dev-screens/"><u>[Updated] Premier Editing Software Perfect for Dev Screens</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-motorola-moto-g84-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Motorola Moto G84 5G online without jailbreak</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-low-lag-play-with-modern-techniques-overcoming-connectivity-challenges-in-todays-top-games-2/"><u>Master Low-Lag Play with Modern Techniques: Overcoming Connectivity Challenges in Today's Top Games (2#)</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/netgear-powerline-1200-review/"><u>Netgear Powerline 1200 Review</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-honor-play-40c-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Honor Play 40C | Dr.fone</u></a></li>
 </ul></div>
 

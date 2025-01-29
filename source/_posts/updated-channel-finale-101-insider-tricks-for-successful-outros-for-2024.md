@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Channel Finale 101  Insider Tricks for Successful Outros for 2024\""
-date: 2024-07-31T02:13:10.969Z
-updated: 2024-08-01T02:13:10.969Z
+date: 2025-01-28T08:34:05.947Z
+updated: 2025-01-29T00:12:23.509Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d6c8d5c25a5b3ae8109b2957c3f404be919cf133b
 
 # YouTube Outro Complete Guide \[+Best Makers & Templates\]
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,23 +38,18 @@ To get a sneak preview of what is entailed here; this guide has been subdivided 
 * [Part 4: How To Add An Outro To A Youtube Video](#part4)
 * [Part 5: Frequently Asked Questions about YouTube Outro](#part5)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## Part 1: YouTube Outro Prerequisites
 
 In this part, we will learn what outros for YouTube are, the importance of land that distinguishes them from the intro. Also included are expert tips on how to make YouTube outro that attracts a hundred thousand subscribers in seven days included.
 
 To understand what YouTube outro is and why you should add it to your videos, here is a detailed explanation.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube outro making guide](https://images.wondershare.com/filmora/article-images/youtube-outro-guide.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Section 1: What is a Youtube Outro?
 
 YouTube outro aka end screen is the last part of a video with a call to action statement, button or video suggestion to view other YouTube videos. In other words, it’s the last part of a video with calls to action links.
@@ -65,6 +57,10 @@ YouTube outro aka end screen is the last part of a video with a call to action s
 One of the most effective technical methods of optimizing YouTube videos is by adding an outro. This helps attract huge traffic, increase conversion and engage viewers.
 
 Why spend your time adding outro? You can add Outro to YouTube videos to direct viewers to your website, other selected videos, engage viewers for longer and to persuade them to subscribe to the channel. In short, most end screens have four elements incorporated into an outro: Channel, subscribe, Video playlist and a website link.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Section 2: Difference Between Outro and Intro
 
@@ -80,6 +76,10 @@ Even though video creators attach more emphasis on intros, both are both very cr
 | Introduces the topic                                            | Suggests new topics to viewers        |
 | Attract viewers to the video                                    | Contains a call-action button         |
 | Showcases a brand, logo, business slogan or a statement mission |                                       |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Section 3: YouTube Outro Requirements
 
@@ -100,11 +100,19 @@ End screen templates comprise elements that are in different shapes and sizes. W
 
 ![youtube outro screen format](https://images.wondershare.com/filmora/article-images/youtube-outro-dimensions.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **3\. Outro Length**
 
 If you want to make your outro boring, make it long. So, how long should YouTube outro be? For your outros to have a high conversation rate, they should be approximately 10-20 seconds long. However, the length of your video should be the determining factor. A one-hour YouTube video can have a longer outro.
 
 Don’t be challenged by setting the above sizes because nearly all intro and outro makers have already set dimensions for the elements. The major requirements are done for you
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Section 4: Best Practices When Making A YouTube Outro
 
@@ -112,10 +120,11 @@ Imagine given 10 seconds to showcase your YouTube channel and direct viewers on 
 
 At this point, you should be already be having the best outro maker in mind - [**Filmora**](https://tools.techidaily.com/wondershare/filmora/download/). The below YouTube outro tips should coincide with the features of your selected outro maker.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![tips to make outro for YouTube](https://images.wondershare.com/filmora/article-images/youtube-outro-tips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. **Be relevant**
 
@@ -147,9 +156,6 @@ Quick fact – _Using Filmora as an outro maker, allows you to select your admir
 
 Do you want to make HD YouTube intros and outros that will grow your channel? I recommend [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 This software has the simplest friendly interface that any new and expert video editor would understand easily. This is very important for you; to use the best intro or outro for your YouTube videos, download Filmora video editor to get access to Filmstock. There are plenty of free and editable YouTube intro and outro templates ready for download.
@@ -160,9 +166,6 @@ Filmora is an all in one YouTube outro maker: you can download intro and outro t
 
 Quick fact – _Outromaker is highly preferred for adding YouTube end screens with animated backgrounds that are mobile-friendly._
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/outro-maker-interface.jpg)
 
 In spite of its pricey plans, Outro Maker continues to be more and more users due to its high genre of outro templates. Among the features included in this app are outro templates, YouTube mobile cards, and YouTube graphics.
@@ -175,6 +178,10 @@ _Quick fact – MotionDen is an online into and outro maker. To create YouTube i
 
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/motionden-interface.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There are plenty of YouTube intro and outro templates for your marketing videos, showdown movies or hard sports videos. Only two pricing plans are available, namely $9.0/Video and $39/ month. Both plans produce HD intros and outros for YouTube and give access to directly publish to YouTube.
 
 To start creating end screens, creating an account is a requirement. MotionDen has rich text editing features and direct typography to edit your logo.
@@ -183,9 +190,6 @@ To start creating end screens, creating an account is a requirement. MotionDen h
 
 _Quick fact- With Snappa as your YouTube outro maker, only 60 seconds are enough to create a professional high-quality outro._
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/snappa-interface.jpg)
 
 This is the perfect YouTube outro maker online free with over a 5000+ outro template and million-plus royalty-free HD photos and graphics. Among the features it’s renowned for include, thousands of templates in different sizes, resizable graphics, a huge library of HD intros and outros and seamless integration with uploaded logos and custom fonts.
@@ -226,18 +230,6 @@ There are many features to look out for in Animaker. Some include 50+ background
 
 _Quick fact – Video Jaguar is a cloud-based software used creating YouTube intros and outros. You can, therefore, use it from any location without downloading it._
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![best youtube outro maker interface](https://images.wondershare.com/filmora/article-images/video-jaguar-interface.jpg)
 
 This app's outro maker interface comes equipped with easy to use features like full HD intro and outro templates, licensed music and text editor. There are also plenty of royalty-free photos.
@@ -252,9 +244,6 @@ How to make a YouTube outro was comprehensively answered by the launch Filmora v
 
 **Step 1:** Start by downloading and installing Filmora on your Windows or Mac by clicking any of the below icons.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 **Step 2**: Once it’s fully installed, double-click on the Filmora icon on your desktop to open a welcome screen for you to start a new project. Adjust the project aspect ratio to 16:9\.
@@ -271,6 +260,10 @@ Check this video tutorial. It's very easy and simple to make a YouTube outro. Fr
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How To Add An Outro To A Youtube Video
 
 To understand the whole end screen process we will continue with the Filmora video editing procedure.
@@ -284,14 +277,11 @@ To understand the whole end screen process we will continue with the Filmora vid
 **Step 3:** Click “Export” to save or upload the video on YouTube. You now have your video with an end screen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 5: Frequently Asked Questions about YouTube Outro
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![FAQs](https://images.wondershare.com/filmora/article-images/faq-article.jpg)
 
 ### Best Websites for YouTube Outro Template Download
@@ -316,9 +306,6 @@ Despite their low demand, few websites continue to create YouTube outro songs li
 
 **You may also like:** [10 Best Sources to Download Free Outro Music \[No Copyright\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We all wish to create YouTube videos that attract many viewers and eventually subscribers! To grow your YouTube channel, start adding outros to your videos before uploading them to YouTube. YouTube outro engages viewers for longer by clicking the suggested videos or helps grow the channel.
@@ -327,9 +314,6 @@ It’s not a surprise to find some of your videos with no outros despite the hig
 
 Was this guide helpful to you? Kindly share your comments or thoughts on the social media platforms on this site.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -338,12 +322,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-decipher-high-impact-content-selecting-premier-rank-trackers-for-youtubers/"><u>[New] 2024 Approved Decipher High-Impact Content Selecting Premier Rank Trackers for YouTubers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-optimal-android-apps-for-clear-screen-recordings/"><u>[New] 2024 Approved Optimal Android Apps for Clear Screen Recordings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-build-a-custom-vr-device-diy-google-cardboard-guide/"><u>[New] Build a Custom VR Device DIY Google Cardboard Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>[New] Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exclusive-movies-behind-the-best-chart/"><u>[Updated] 2024 Approved Exclusive Movies Behind the Best Chart</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-bright-idea-boost-your-videos-impact-on-youtube-for-2024/"><u>[Updated] A Bright Idea Boost Your Video's Impact on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing-for-2024/"><u>[Updated] Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficient-hashtag-use-for-skyrocketing-youtube-audience/"><u>[Updated] In 2024, Efficient Hashtag Use for Skyrocketing YouTube Audience</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-no-lag-top-8-screen-grab-essentials-for-2024/"><u>[Updated] No Lag Top 8 Screen Grab Essentials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-trophy-chain-for-engaged-audiences/"><u>[Updated] YouTube's Trophy Chain for Engaged Audiences</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ai6012/"><u>AI框图优化程序，提高帧率至60/12 更换影片过渡平滑</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-strategies-to-address-windows-7s-unresponsive-headphone-problems/"><u>Effective Strategies to Address Windows 7'S Unresponsive Headphone Problems</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-installation-free-qualcomm-atheros-ar938x-driver-download-available-now/"><u>Effortless Installation: Free Qualcomm Atheros AR938X Driver Download Available Now!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-smartphone-browser-showdown-youtube-app-analysis/"><u>In 2024, Smartphone Browser Showdown YouTube App Analysis</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-to-winxvideo-enhancements-ai-powered-techniques-for-recording-compressing-and-converting-videos/"><u>Step-by-Step Guide to WinXVideo Enhancements - AI-Powered Techniques for Recording, Compressing & Converting Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/television-or-projector-for-peak-4k-performance-for-2024/"><u>Television or Projector for Peak 4K Performance for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transforming-viewership-a-proven-guide-to-implementing-youtubes-featured-listings-for-2024/"><u>Transforming Viewership A Proven Guide to Implementing Youtube's Featured Listings for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-tutorial-simplifying-youtube-subscriptions-for-2024/"><u>Ultimate Tutorial Simplifying YouTube Subscriptions for 2024</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/watch-your-favorite-youtube-in-wmv-free-tutorial-for-using-yt-videos-with-windows-media-player/"><u>Watch Your Favorite YouTube in WMV: Free Tutorial for Using YT Videos with Windows Media Player</u></a></li>
+</ul></div>
 

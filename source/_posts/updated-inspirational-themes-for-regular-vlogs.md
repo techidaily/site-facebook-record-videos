@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Inspirational Themes for Regular Vlogs"
-date: 2025-01-17T17:49:55.373Z
-updated: 2025-01-21T22:51:14.466Z
+date: 2025-01-22T01:41:27.751Z
+updated: 2025-01-29T12:21:20.828Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -56,7 +52,7 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Snapshots of Your Day
@@ -66,7 +62,7 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
@@ -78,6 +74,10 @@ _Flula is frequently puzzled by English expressions, like 'Party Pooper', and ne
 It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## What did you learn today?
 
@@ -104,7 +104,7 @@ You could also just flick the camera on and tell the full story of your day like
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -114,7 +114,7 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -132,24 +132,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-critically-acclaimed-video-cards-for-clear-youtube-broadcasts/"><u>[New] 2024 Approved Critically Acclaimed Video Cards for Clear YouTube Broadcasts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-android-audio-archive-a-curated-list-of-top-6-free-music-downloading-apps/"><u>[New] In 2024, Android Audio Archive A Curated List of Top 6 Free Music Downloading Apps</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elite-video-influencers/"><u>[New] In 2024, Elite Video Influencers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-battle-for-ephemeral-content-youtube-shorts-versus-tiktok/"><u>[New] In 2024, The Ultimate Battle for Ephemeral Content YouTube Shorts Versus TikTok</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-guide-to-the-best-gaming-tech/"><u>[New] YouTube's Guide to the Best Gaming Tech</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-bringing-your-outdoor-experiences-home-gopro-livestreams-on-facebookperiscope/"><u>[Updated] 2024 Approved Bringing Your Outdoor Experiences Home GoPro Livestreams on Facebook/Periscope</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-easy-guide-to-using-your-phone-as-an-alternative-camera-for-2024/"><u>[Updated] Easy Guide to Using Your Phone as an Alternative Camera for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-new-territory-youtubes-revised-policies/"><u>[Updated] In 2024, Charting New Territory YouTube's Revised Policies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-prime-5-tools-shake-off-youtube-video-editing/"><u>[Updated] Prime 5 Tools Shake Off Youtube Video Editing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-youtubes-link-trimming-winners-select-the-top-5-apps/"><u>[Updated] Youtube's Link-Trimming Winners Select the Top 5 Apps</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-earning-potential-unleashed-monetizing-fb-pages-effectively/"><u>2024 Approved Earning Potential Unleashed Monetizing FB Pages Effectively</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fujitsu-scansnap-ix1400-review/"><u>Fujitsu ScanSnap iX1400 Review</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-writers-and-their-payment-frequency/"><u>In 2024, YouTube' Writers and Their Payment Frequency</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-wireless-mouse-innovations-the-best-picks-to-upgrade-your-pc/"><u>Leading Wireless Mouse Innovations: The Best Picks to Upgrade Your PC</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723210658486-no-show-on-sd-recognition-lets-fix-it/"><u>No-Show on SD Recognition? Let's Fix It</u></a></li>
-<li><a href="https://article-posts.techidaily.com/rhythm-discoveries-at-your-fingertips-free-online/"><u>Rhythm Discoveries at Your Fingertips (Free, Online)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/irtual-set-masterclass-learning-filmmaking-online-for-2024/"><u>The Virtual Set Masterclass Learning Filmmaking Online for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/ultimate-list-seamless-no-download-gif-to-video-converters/"><u>Ultimate List Seamless No-Download GIF to Video Converters</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtube-shorts-showing-up-after-fix-for-2024/"><u>YouTube Shorts Showing Up After Fix for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevating-your-channels-profits-with-impactful-and-effective-trailers/"><u>[New] 2024 Approved Elevating Your Channels' Profits with Impactful and Effective Trailers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>[New] In 2024, Bypassing YouTube's Copyright Strike Legal Strategies and Precautions</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-simplifying-image-reduction-creating-professional-thumbnails/"><u>[New] In 2024, Simplifying Image Reduction Creating Professional Thumbnails</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-sail-the-seas-with-these-superior-underwater-recorders/"><u>[New] Sail the Seas with These Superior Underwater Recorders</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-ultimate-guide-to-leveraging-preview-capabilities-on-a-mac/"><u>[New] The Ultimate Guide to Leveraging Preview Capabilities on a Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-aspect-ratios-your-pathway-to-youtube-excellence/"><u>[New] Unveiling Aspect Ratios Your Pathway to YouTube Excellence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boundless-creativity-fantasy-backdrops-on-thumbnails-for-2024/"><u>[Updated] Boundless Creativity Fantasy Backdrops on Thumbnails for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easy-access-luxury-free-access-to-your-dreamset-of-50-banners/"><u>[Updated] In 2024, Easy-Access Luxury - Free Access to Your Dreamset of 50 Banners</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-what-makes-dji-inspire-2-special-full-review/"><u>[Updated] In 2024, What Makes DJI Inspire 2 Special? Full Review</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-video-description-engineer/"><u>2024 Approved Video Description Engineer</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oppo-a78-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo A78 in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-xs-max-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone XS Max for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-banishing-static-like-motion-in-aerial-videos/"><u>In 2024, Banishing Static-Like Motion in Aerial Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-tactics-to-maximize-engagement-with-every-reddit-post/"><u>In 2024, Tactics to Maximize Engagement with Every Reddit Post</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/perfect-your-video-calls-essential-10-free-recording-solutions-for-slack/"><u>Perfect Your Video Calls Essential 10 Free Recording Solutions for Slack</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-youtube-videos-adding-subtitles-and-cc-proficiently-for-2024/"><u>Streamlining YouTube Videos Adding Subtitles & CC Proficiently for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-viewership-on-multiple-channels-youtube-and-friends-for-2024/"><u>Unlocking Viewership on Multiple Channels (YouTube & Friends) for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube Visuals  Perfecting Banners and Thumbnails\""
-date: 2024-07-31T02:12:26.613Z
-updated: 2024-08-01T02:12:26.613Z
+date: 2025-01-27T07:20:04.666Z
+updated: 2025-01-28T18:25:17.639Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,24 +67,27 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -94,12 +95,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-critical-channels-for-asmr-lovers-for-2024/"><u>[New] Critical Channels for ASMR Lovers for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-essential-screen-recording-steps-for-perfection/"><u>[New] Essential Screen Recording Steps for Perfection</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-vs-dailymention-spotlighting-key-aspects/"><u>[New] YouTube Vs. DailyMention Spotlighting Key Aspects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-blocks-of-a-well-structured-youtube-video/"><u>[Updated] 2024 Approved Building Blocks of a Well-Structured YouTube Video</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-restoring-classic-photo-viewing-on-the-modern-windows-11/"><u>[Updated] 2024 Approved Restoring Classic Photo Viewing on the Modern Windows 11</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-chucklechroma-jokejunction/"><u>[Updated] ChuckleChroma JokeJunction</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dynamic-and-simple-building-a-subscriber-button-for-youtube-using-filmora-for-2024/"><u>[Updated] Dynamic and Simple Building a Subscriber Button for YouTube Using Filmora for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>[Updated] In 2024, How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-voice-of-volume-6-free-apps-for-channeling-youtube-music-onto-android-devices/"><u>2024 Approved Voice of Volume 6 Free Apps for Channeling YouTube Music Onto Android Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/delving-into-the-world-of-mixed-reality-technology/"><u>Delving Into the World of Mixed Reality Technology</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-your-listening-experience-with-these-6-premier-android-apps/"><u>Elevate Your Listening Experience with These 6 Premier Android Apps</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/error-fixes-for-when-you-cant-find-msvcr70dll-on-your-pc/"><u>Error Fixes for When You Can’t Find MSVCR70.dll on Your PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1722137049218-impatient-for-a-chatbot-on-your-pc-discover-an-amazing-open-source-substitute-now/"><u>Impatient for a Chatbot on Your PC? Discover an Amazing Open Source Substitute Now</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/insights-on-the-upcoming-free-android-16-anticipated-news-pricing-estimates-release-date-and-tech-specs/"><u>Insights on the Upcoming Free Android 16: Anticipated News, Pricing Estimates, Release Date & Tech Specs</u></a></li>
+</ul></div>
 

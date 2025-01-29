@@ -1,7 +1,7 @@
 ---
 title: "Troubleshooting Tips: Why Football Manager 2019 Keeps Crashing and How to Fix It"
-date: 2025-01-19T23:58:12.488Z
-updated: 2025-01-21T22:02:55.841Z
+date: 2025-01-24T20:13:55.899Z
+updated: 2025-01-29T09:27:15.336Z
 tags:
   - win11
   - win10
@@ -42,16 +42,8 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-1-8.jpg)
 3. Click the**Update** button next to the flagged graphics card driver to automatically download the correct version of that driver, then you can manually install it (you can do this with the FREE version).  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Or click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a 30-day money back guarantee. You’ll be prompted to upgrade when you click**Update All** .)  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/de-2-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with full technical support.  
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
@@ -66,11 +58,15 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-1-5.jpg)
 2. Right-click**Football Manager 2021** from the game list and click**Properties** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
 3. Select**Local Files** and then click**Verify Integrity of Game Files** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-3-4.jpg)
@@ -78,7 +74,7 @@ Football Manager 2021 is by far one of the most popular management simulator gam
  Wait until the process finishes and relaunch FM 21 to test. If your issue persists, take a look at more fixes below.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Fix 3 – Temporarily disable your antivirus
@@ -94,10 +90,6 @@ Football Manager 2021 is by far one of the most popular management simulator gam
 
 If this method doesn’t help, go ahead with the next fix below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Fix 4 – Delete the Preferences and Caches folder
 
  According to Sports Interactive, Football Manager 2021 crashing may be caused by the custom data, and the very solution is to remove the preferences and caches folder. Don’t worry as this will not affect your game progress.
@@ -107,10 +99,18 @@ If this method doesn’t help, go ahead with the next fix below.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/4-2-5.jpg)
 3. Navigate to the following locations:  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  **C:\\Users\\\[Your Windows Username\]\\AppData\\Local\\Sports Interactive\\Football Manager 2021**
 4. Delete the**Preferences** and**Caches** folder.
 
 So does the crash go away now? If not, there is the last fix to try.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Fix 5 – Set launch options
 
@@ -121,7 +121,7 @@ So does the crash go away now? If not, there is the last fix to try.
 2. Right-click**Football Manager 2021** and click**Properties** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/11/2-2-8.jpg)
@@ -159,21 +159,20 @@ So does the crash go away now? If not, there is the last fix to try.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-free-youtube-ending-creators-top-6-picks/"><u>[New] 2024 Approved Best Free YouTube Ending Creators - Top 6 Picks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-youtube-live-with-high-quality-webcam-cameras-for-2024/"><u>[New] Elevating YouTube Live with High-Quality Webcam Cameras for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-essential-steps-for-procuring-clip-art-at-no-cost/"><u>[New] Essential Steps for Procuring Clip Art at No Cost</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-techniques-for-uploading-youtubes-on-dailymotion/"><u>[New] In 2024, Expert Techniques for Uploading YouTubes on Dailymotion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-guide-to-the-top-10-historical-education-channels/"><u>[Updated] 2024 Approved Guide to the Top 10 Historical Education Channels</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-earning-potential-unleashed-monetizing-fb-pages-effectively/"><u>[Updated] Earning Potential Unleashed Monetizing FB Pages Effectively</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-ace-list-of-low-cost-youtube-caption-tools/"><u>[Updated] In 2024, Ace List of Low-Cost YouTube Caption Tools</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-the-maze-of-youtube-endorsements-with-a-famebit-perspective/"><u>[Updated] Navigating the Maze of YouTube Endorsements with a FameBit Perspective</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-tailored-soundtracks-at-your-fingertips-constructing-youtube-music-collections-webmobile/"><u>[Updated] Tailored Soundtracks at Your Fingertips Constructing YouTube Music Collections (Web/Mobile)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-crafting-an-impactful-waterway-teaser/"><u>2024 Approved Crafting an Impactful Waterway Teaser</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-honor-x50-gt-frp-bypass-by-drfone-android/"><u>About Honor X50 GT FRP Bypass</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/google-pixel-rhythms-the-ideal-online-source-for-2024/"><u>Google Pixel Rhythms The Ideal Online Source for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-apple-iphone-11-pro-max-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling Apple iPhone 11 Pro Max Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pro-freefire-compiling-premier-gaming-vids-and-hashtags-for-2024/"><u>Pro-FreeFire Compiling Premier Gaming Vids and Hashtags for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/twitch-livestream-hacks-to-boost-engagement-and-followers/"><u>Twitch Livestream Hacks to Boost Engagement and Followers</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-in-2024-expert-guide-extracting-silence-from-video-files-on-windows-10-without-spending-a-penny/"><u>Updated In 2024, Expert Guide Extracting Silence From Video Files on Windows 10 Without Spending a Penny</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-video-performance-following-the-path-of-stars/"><u>[New] 2024 Approved Elevate Video Performance Following the Path of Stars</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-break-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion-for-2024/"><u>[New] Break Down Long-Form Videos The Insider's Guide to YouTube Chapter Inclusion for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fundamentals-of-copywriting-for-engaging-fb-campaigns-for-2024/"><u>[New] Fundamentals of Copywriting for Engaging FB Campaigns for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-top-photography-choices-for-sharpest-4k-reflections-for-2024/"><u>[New] Top Photography Choices for Sharpest 4K Reflections for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-direct-linkage-bridging-youtube-and-imovie-with-music/"><u>[Updated] 2024 Approved Direct Linkage Bridging YouTube and iMovie with Music</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-treasure-trove-of-discounts-top-10-sites-for-box-purchases/"><u>[Updated] A Treasure Trove of Discounts Top 10 Sites for Box Purchases</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-rewind-the-recordings-streamlined-playlist-reversal/"><u>[Updated] Rewind the Recordings Streamlined Playlist Reversal</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-perfect-your-iphone-videographyphoto-expertise-with-add-ons/"><u>2024 Approved Perfect Your iPhone Videography/Photo Expertise With Add-Ons</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-what-are-ethical-alternatives-to-buying-likes/"><u>2024 Approved What Are Ethical Alternatives to Buying Likes?</u></a></li>
+<li><a href="https://win11.techidaily.com/essential-tips-to-mend-disk-errors-on-modern-windows-systems/"><u>Essential Tips to Mend Disk Errors on Modern Windows Systems</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-xiaomi-redmi-note-12-pro-5g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Xiaomi Redmi Note 12 Pro 5G Face Lock?</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-oppo-a58-4g-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Oppo A58 4G FRP Bypass Instantly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/outsmart-automated-views-to-propel-your-channel-for-2024/"><u>Outsmart Automated Views to Propel Your Channel for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/cting-your-videos-the-power-of-proper-thumbnails/"><u>Perfecting Your Videos The Power of Proper Thumbnails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/snappy-fortnite-visuals-in-no-time-for-2024/"><u>Snappy Fortnite Visuals in No Time for 2024</u></a></li>
 </ul></div>
 

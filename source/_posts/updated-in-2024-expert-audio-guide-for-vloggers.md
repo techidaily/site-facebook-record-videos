@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Expert Audio Guide for Vloggers"
-date: 2024-07-31T02:19:07.176Z
-updated: 2024-08-01T02:19:07.176Z
+date: 2025-01-25T05:44:32.296Z
+updated: 2025-01-29T03:48:30.961Z
 tags:
   - ai video
   - ai youtube
@@ -49,9 +49,6 @@ The Shotgun attaches to your DSLR camera and is great for capturing specific sou
 
 #### 3. Audio-Technica AT875R Line + Gradient Condenser Microphone - $240
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube03.JPG)
 
 This microphone is similar to the ones you think of being mounted on boom poles on professional sets, and it can easily be mounted onto a pole and used the same way. This gradient condenser mic is good at picking up sound at a distance, and at only picking up sound coming from directly in front of it. If you are working alone then you can set this mic up on a stand so it is pointing at you, or if you have a friend to help you you can ask them to hold it on a boom pole.
@@ -64,36 +61,31 @@ A LAV Mic, also called a lavalier or lapel mic, is a small microphone which can 
 
 #### 5. Roland R-05 WAVE/MP3 Recorder - $200
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![microphone](https://images.wondershare.com/filmora/article-images/mic-for-youtube05.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The [R-05](https://bstasmr.com/asmr-accessories/best-asmr-microphones.html) is a pocket recorder that captures flawless audio. Its small size means you can hide it in your pocket and it will not show up in your video. Also, since it does not need to hook up to your camera or computer you will have freedom of movement.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Best Microphones for All Types of YouTube Creators
 
 If you have to invest in a new piece of equipment for your YouTube channel, consider upgrading your microphones. Your viewers can forgive your grainy video footage, poor lighting, and unsteady camera handling, but if your audio sounds like you’re speaking across the road on a busy highway, all your hard work will be wasted, because nobody will want to watch it.
 
 But the thing about microphones is that they are not all created equal. Depending on the type of videos you’re filming and the environment where you’re recording, the capabilities of the microphone will differ.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### 1. Best Microphone for Live Streamers and Gamers
 
 [Blue Yeti USB](https://www.amazon.com/Blue-Microphones-Yeti-USB-Microphone/dp/B00N1YPXW2/) \- $150
 
 As a live streamer, gamer, or vlogger such as beauty or lifestyle, you’ll want a balance of easy setup and high-quality audio. The Blue Yeti USB delivers on that.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ Best Microphone for Live Streamers and Gamers: Blue Yeti USB ](https://images.wondershare.com/filmora/article-images/best-mic-for-live-streaming-gaming-youtuber.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 It’s the closest budget microphone to a professional studio mic on the market, and it feels that way when you hold its solid metal frame for the first time. Connecting directly to your computer via USB, the Blue Yeti comes with a 6-feet long USB cable. Out of the box, it sits upon a sturdy stand, which can be removed and the mic can be threaded a shock mount.
 
@@ -102,8 +94,9 @@ The Blue Yeti can pick up audio in four different polar patterns: cardioid, bidi
 Tip: In cardioid mode, speak into the front of the mic, not the top of it.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Best Microphones for Outdoor Locations
 
 [Rode VideoMic Pro Compact VMP Shotgun Microphone](https://www.amazon.com/gp/product/B004K8WPUQ) \- $268
@@ -112,6 +105,10 @@ When you are filming outside, you are dealing with audio from all different dire
 
 ![ Best Microphones for Outdoor Locations: Rode VideoMic Pro Compact VMP Shotgun Microphone ](https://images.wondershare.com/filmora/article-images/best-microphones-for-outdoor-locations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That’s why a shotgun mic is better than an omnidirectional one for outdoor situations. Shotgun microphones, such as the Rode VideoMic Pro, picks up audio only in the direction it’s pointing in. You can aim it at your subject and it will give you clear audio without a lot of background noises.
 
 The Rode VideoMic Pro comes with a mount that attaches on top of your camera, if you are filming outdoors. So if you are holding the camera and vlogging, then the audio will be great. However, if you want to take advantage of the space, and set the camera further away, you should attach the mic on a boom or a stand to get the best audio.
@@ -119,8 +116,9 @@ The Rode VideoMic Pro comes with a mount that attaches on top of your camera, if
 Tip: With Rode VideoMic Pro, and any mic you use to shoot outdoors, always do a sound check to make sure the quality is up to standard. Ten seconds of your subject talking at the level they will be speaking in will be enough to judge the sound quality.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3. Best Microphone for Music (Vocals)
 
 [Audio-Technica AT2035](https://www.amazon.com/Audio-Technica-Diaphragm-Condenser-Microphone-bundled/dp/B01F62PRU4/) \- $163
@@ -134,8 +132,9 @@ Nevertheless, this microphone does a fantastic job isolating the source of sound
 **Tip** : Position yourself 8-12 inches away from the mic when singing. This allows your voice to sound more natural (too close and it’ll sound bassy) and it prevents the audio volume from fluctuating too dramatically as you move around or sing loudly one part and quietly at another.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4. Best Microphone for Voice Over
 
 [Rode NTK Tube Condenser Microphone](https://www.amazon.com/Rode-NTK-Tube-Condenser-Microphone/dp/B0002DUQOU/) \- $529
@@ -164,9 +163,6 @@ If you are a YouTuber who makes a lot of video in warehouses, workshops, or rehe
 
 **Tip** : Sometimes audio in a loud, big environment can’t be saved by the best microphone. If that’s the case, film the source of the background noise. Get b-roll of people walking around, machinery operating, or whatever challenging sound you are dealing with in the large space. Cutting to these noise makers will give the audience a reference for the background noise, which helps conceal it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 6. Best Handheld Microphone for Interviews
 
 [Zoom ZH1 H1 Handy Portable Digital Recorder](https://www.amazon.com/Zoom-Handy-Portable-Digital-Recorder/dp/B003QKBVYK) \- $68.99
@@ -185,9 +181,6 @@ The only thing that might slow you down, is that the audio will be captured dire
 
 [Rode VMPR VideoMic Pro R with Rycote Lyre Shockmount](https://www.amazon.com/gp/product/B00YAZHRZM) \- $214.90
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![ Best Microphone for Action and Fitness: Rode VMPR VideoMic Pro R with Rycote Lyre Shockmount](https://images.wondershare.com/filmora/article-images/best-mic-for-action-fitness.jpg)
 
 If you’re a YouTuber who films a lot of action shots or fitness videos, where you, your camera and your microphone are in motion, then I recommend the Rode VMPR VideoMic Pro R with Rycote Lyre Shockmount.
@@ -202,10 +195,11 @@ The Rycote Lyre shock mount eliminates any external audio that can be caused by 
 
 [Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://www.amazon.com/Sennheiser-MKE-elements-Action-GoPro/dp/B06XYS2KHG) \- $200
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Best Waterproof Microphone: Sennheiser MKE 2 elements - Action Mic for the GoPro HERO4](https://images.wondershare.com/filmora/article-images/best-waterproof-microphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In or around water, nothing can ruin a day of shooting faster than getting your equipment wet. If you’re using GoPro Hero4 for shooting all your intense water shots, you would be familiar with the awful audio you capture when the camera is inside the waterproof casing.
 
@@ -216,6 +210,10 @@ Lucky for you, Sennheiser has developed a waterproof microphone, the MKE 2 eleme
 Different situations call for different equipment. This is the true for tradespeople, golfers, and YouTubers. If you want to get the best audio, it’s more than simply buying the most expensive one, you’ll also need to find the microphone most suited for that situation.
 
  _I hope this post helped you improve your audio quality. If you are having challenges finding a good microphone for a particular scenario, let us know in the comments below!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: 10 Tips for Recording YouTube Audio \[Video Tutorial\]
 
@@ -235,9 +233,9 @@ After picking up the best microphone based on your need, you can record your aud
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How to Sync your Audio in Filmora
 
 Both the LAV Mics and the R-05 will create separate audio clips which you will need to sync up with your video when you are finished recording.
@@ -266,15 +264,12 @@ Once your external audio is synced to your camera’s audio it will also be sync
 
 Watch the video below to check more features about Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -283,12 +278,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-authentic-audience-boosting-legal-practices-that-work/"><u>[New] 2024 Approved Authentic Audience Boosting Legal Practices That Work</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-dominance-in-video-landscape-mirrorless-vs-dslr-cameras/"><u>[New] 2024 Approved Dominance in Video Landscape Mirrorless vs DSLR Cameras</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-king-and-queen-academy-youtube-excellence/"><u>[New] In 2024, Channel King & Queen Academy YouTube Excellence</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissecting-youtubes-activities-post-uploading-videos/"><u>[New] In 2024, Dissecting YouTube's Activities Post-Uploading Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-comprehensive-guide-to-zoom-screen-casts-for-2024/"><u>[New] The Comprehensive Guide to Zoom Screen Casts for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-pixelpress-mastering-the-art-of-screen-recording/"><u>[Updated] 2024 Approved 'PixelPress' Mastering the Art of Screen Recording</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-exploring-9-zero-price-editors-for-youtube-content/"><u>[Updated] 2024 Approved Exploring 9 Zero Price Editors for YouTube Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-unlock-potential-innovating-with-effective-instagram-video-loops/"><u>[Updated] 2024 Approved Unlock Potential Innovating with Effective Instagram Video Loops</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-rapidly-increase-views-effective-growth-hacks-for-channels-for-2024/"><u>[Updated] Rapidly Increase Views Effective Growth Hacks for Channels for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-seeking-clarity-complete-accessibility-of-mutual-shared-materials-for-2024/"><u>[Updated] Seeking Clarity Complete Accessibility of Mutual Shared Materials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-condensation-editing-youtube-video-durations/"><u>[Updated] The Art of Condensation Editing YouTube Video Durations</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-collection-of-top-ranked-cost-free-youtube-short-video-downloader-apps/"><u>[Updated] The Ultimate Collection of Top-Ranked, Cost-Free YouTube Short Video Downloader Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-strategy-for-top-tier-youtube-titles-and-tags/"><u>[Updated] The Ultimate Strategy for Top-Tier Youtube Titles & Tags</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/giggle-genesis-app-for-2024/"><u>Giggle Genesis App for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-realme-c51-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Realme C51 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-motorola-moto-e13-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Motorola Moto E13</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-viral-beats-cutting-edge-music-for-youtube-short-videos/"><u>In 2024, Viral Beats Cutting-Edge Music for YouTube Short Videos</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-vivo-s17-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Vivo S17</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/transformez-vos-videos-avec-la-technologie-avancee-de-winxvideo-edition-montage-and-conversion-facile/"><u>Transformez Vos Vidéos Avec La Technologie Avancée De Winxvideo : Édition, Montage & Conversion Facile</u></a></li>
+</ul></div>
 

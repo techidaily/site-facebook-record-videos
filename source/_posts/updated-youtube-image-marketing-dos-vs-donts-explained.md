@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Image Marketing  Dos vs Don'ts Explained\""
-date: 2025-01-15T22:28:12.683Z
-updated: 2025-01-21T21:09:34.993Z
+date: 2025-01-25T01:23:57.672Z
+updated: 2025-01-29T00:04:02.058Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,14 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -69,13 +77,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -97,10 +105,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -112,6 +116,10 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -134,7 +142,7 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Touch Up YouTube Videos with Filmora
@@ -143,15 +151,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,22 +168,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-engage-in-enlightening-youtube-exchanges/"><u>[New] 2024 Approved Engage in Enlightening YouTube Exchanges</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-tweet-tracks-top-ranked-amazon-originals-on-twittersphere-for-2024/"><u>[New] Tweet Tracks Top-Ranked Amazon Originals on Twittersphere for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-harnessing-the-potential-of-youtube-shorts-advertising/"><u>[Updated] Harnessing the Potential of YouTube Shorts Advertising</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-digestible-vid-info-quick-start/"><u>[Updated] In 2024, Digestible Vid Info Quick Start</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-webcam-integration-for-flawless-gameplay-logs/"><u>[Updated] In 2024, Webcam Integration for Flawless Gameplay Logs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-inspirational-themes-for-regular-vlogs/"><u>[Updated] Inspirational Themes for Regular Vlogs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-networking-haven-beyond-vidcon/"><u>[Updated] The Ultimate Networking Haven Beyond VidCon</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-the-secrets-to-earnings-on-youtube-shorts/"><u>[Updated] Unlocking the Secrets to Earnings on YouTube Shorts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/bringing-beats-integrating-music-in-inshot-editor/"><u>Bringing Beats Integrating Music in InShot Editor</u></a></li>
-<li><a href="https://games-able.techidaily.com/celebrating-tech-brilliance-with-ifas-gadgets/"><u>Celebrating Tech Brilliance with IFA's Gadgets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/209838161-9780991248902-heaven-is-everywhere/"><u>Heaven Is Everywhere | Free Book</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-vivo-y55s-5g-2023-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Vivo Y55s 5G (2023) Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/209551285-9781547559794-megan-e-o-gato-perdido/"><u>Megan e o Gato Perdido | Free Book</u></a></li>
-<li><a href="https://win-best.techidaily.com/movavi-m4b-flac-web-online/"><u>Movavi의 방법: M4B FLAC 파일을 무료로 Web 상호 대기 위치에서 변환하는 편리한 가이드 - Online</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/211163495-9798887314976-physics-and-sufi-cosmology/"><u>PHYSICS AND SUFI COSMOLOGY | Free Book</u></a></li>
-<li><a href="https://fox-place.techidaily.com/top-cloning-software-fur-sk-hynix-ssds-ihre-perfekte-losung-finden/"><u>Top Cloning Software Für SK Hynix SSDs - Ihre Perfekte Lösung Finden</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-best-audio-libraries-top-10-sites-for-high-quality-video-soundtracks/"><u>Updated Best Audio Libraries Top 10 Sites for High-Quality Video Soundtracks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-examining-youtubes-copyright-stance-versus-cc-approach/"><u>[New] 2024 Approved Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-secure-storage-safeguarding-your-mov-videos-in-win-11/"><u>[New] 2024 Approved Secure Storage Safeguarding Your MOV Videos in Win 11</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-insights-into-youtube-shorts-business-model/"><u>[New] Insights Into YouTube Shorts Business Model</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-into-the-unknown-how-to-start-and-flourish-as-a-travel-videographer/"><u>[New] Into the Unknown How To Start & Flourish As a Travel Videographer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-copyright-landscape-decoded-a-complete-analysis/"><u>[New] YouTube's Copyright Landscape Decoded A Complete Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks/"><u>[Updated] 2024 Approved Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-android-and-ios-users-choice-top-playlist-saving-apps-for-youtube-for-2024/"><u>[Updated] Android & iOS Users' Choice Top Playlist Saving Apps for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-use-jump-cuts-in-your-vlog/"><u>[Updated] How To Use Jump Cuts in Your Vlog</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-your-online-identity-unlocked-establishing-a-new-youtube-chanel-today/"><u>2024 Approved Your Online Identity Unlocked Establishing a New YouTube Chanel Today</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fixed-excel-2010-found-a-problem-with-one-or-more-formula-stellar-by-stellar-guide/"><u>Fixed Excel 2010 Found a Problem with One or more Formula | Stellar</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/htcs-masterpiece-in-vr-the-immersive-experience/"><u>HTC's Masterpiece in VR The Immersive Experience</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-y78plus-t1-edition-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo Y78+ (T1) Edition? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/step-by-step-winx-dvd-ripper-tutorial-convert-your-dvds-to-high-quality-avi-files-for-free/"><u>Step-by-Step WinX DVD Ripper Tutorial: Convert Your DVDs to High-Quality AVI Files for Free!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/5-virtual-classrooms-for-aspiring-scientists-for-2024/"><u>Top 15 Virtual Classrooms for Aspiring Scientists for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-tips-for-device-misconfiguration-warning-code-1-resolved/"><u>Troubleshooting Tips for Device Misconfiguration Warning - Code 1 Resolved</u></a></li>
+<li><a href="https://extra-information.techidaily.com/understanding-imovie-video-trimming/"><u>Understanding iMovie Video Trimming</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Motorola Moto G73 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Shorter Path  Cutting Video Duration on YouTube\""
-date: 2024-11-11T07:00:19.467Z
-updated: 2024-11-12T22:05:06.410Z
+date: 2025-01-27T13:07:48.868Z
+updated: 2025-01-28T16:25:05.854Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -67,6 +83,10 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -83,24 +103,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expertly-crafted-video-making-software-iphone-android/"><u>[New] 2024 Approved Expertly Crafted Video-Making Software (iPhone, Android)</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-breakthrough-ways-to-amplify-your-video-content-reach-for-2024/"><u>[Updated] Breakthrough Ways to Amplify Your Video Content Reach for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-bridge-the-gap-transferring-files-from-pc-to-ios/"><u>[Updated] In 2024, Bridge the Gap Transferring Files From PC to iOS</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-disciplined-device-use-effective-ways-to-remove-youtube-channels/"><u>[Updated] In 2024, Disciplined Device Use Effective Ways to Remove Youtube Channels</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/cloud-storage-pricing-comparison-and-best-price-recommendations-for-2024/"><u>Cloud Storage Pricing Comparison and Best Price Recommendations for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-bite-size-beats-characters-in-soundscape/"><u>In 2024, Bite-Size Beats Characters in Soundscape</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unraveling-instagrams-video-sideways-quandary/"><u>In 2024, Unraveling Instagram's Video Sideways Quandary</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtube-for-beginners-channel-building-monetization-tactics/"><u>In 2024, YouTube for Beginners Channel Building, Monetization Tactics</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/innovative-frameworks-for-efficient-iptv-recording/"><u>Innovative Frameworks for Efficient IPTV Recording</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-cropping-in-final-cut-pro-x-a-step-by-step-guide-for-2024/"><u>New Cropping in Final Cut Pro X A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unleash-your-livestream-potential-no-millions-of-followers-needed/"><u>Unleash Your Livestream Potential No Millions of Followers Needed</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/winx-free-film-editor-the-authorized-source-for-reliable-dvd-ripping-and-high-definition-video-conversion-tools/"><u>WinX FREE Film Editor: The Authorized Source for Reliable DVD Ripping & High-Definition Video Conversion Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-top-rated-simulators-unleash-ps3-games-windows/"><u>[New] 2024 Approved Top-Rated Simulators Unleash PS3 Games Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork/"><u>[New] Brand Makeover Made Easy Revel in Our Array of over 50 Free Online Promotional Artwork!</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-expert-tips-for-fixing-non-displaying-shorts-thumbnails/"><u>[Updated] 2024 Approved Expert Tips for Fixing Non-Displaying Shorts Thumbnails</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-adobe-audition-101-the-art-of-fading-on/"><u>[Updated] Adobe Audition 101 The Art of Fading On</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-echoes-of-calls-past-iphones-audio-archive/"><u>[Updated] Echoes of Calls Past - iPhone's Audio Archive</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-perfecting-visual-output-integrating-luts-into-ae-projects/"><u>[Updated] In 2024, Perfecting Visual Output Integrating LUTs Into AE Projects</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-superior-streaming-recorders-for-youtube-vloggers/"><u>[Updated] Superior Streaming Recorders for YouTube Vloggers</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/beyond-antivirus-essential-strategies-for-comprehensive-protection-in-the-modern-digital-world/"><u>Beyond Antivirus: Essential Strategies for Comprehensive Protection in the Modern Digital World</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/explore-the-excitement-of-high-speed-photography-with-iphone/"><u>Explore the Excitement of High-Speed Photography with iPhone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/exploring-live-sessions-guesting-basics-of-tiktok-for-2024/"><u>Exploring Live Sessions Guesting Basics of TikTok for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-free-youtube-endings-that-stand-out-ranked/"><u>In 2024, Free YouTube Endings That Stand Out - Ranked!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/premier-video-breakdown-fifa-analysis-graphs-for-2024/"><u>Premier Video Breakdown FIFA Analysis Graphs for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ripple-rhythms-selecting-audio-distortion-tools-for-2024/"><u>Ripple Rhythms Selecting Audio Distortion Tools for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

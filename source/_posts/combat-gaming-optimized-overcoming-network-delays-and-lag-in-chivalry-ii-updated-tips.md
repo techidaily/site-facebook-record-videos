@@ -1,7 +1,7 @@
 ---
 title: "Combat Gaming Optimized: Overcoming Network Delays and Lag in Chivalry II [Updated Tips]"
-date: 2024-11-08T15:36:16.546Z
-updated: 2024-11-13T12:09:36.503Z
+date: 2025-01-24T11:45:03.846Z
+updated: 2025-01-29T12:27:46.379Z
 tags:
   - win11
   - win10
@@ -21,6 +21,10 @@ GTFO
 
  GTFO, an extrame cooperative horror shooter, is finally ready for release after two years of early access. On December 9 at the Game Awards, 10 Chambers revealed that GTFO 1.0 has arrived. As more and more PC gamers come back to play the game, many of them are bothered by**GTFO FPS drop issue on their PC** . If you find yourself on the same boat, don’t worry. You’ve come to the right place. After reading this article, you shloud be able to fix the GTFO performance issues and boost the GTFO in-game FPS easily!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  Here’s a list of fixes that have helped other PC gamers fix the GTFO FPS drop issues. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -32,13 +36,6 @@ GTFO
 5. **[Disable overlays](https://tools.techidaily.com/drivereasy/download/)**
 6. **[Disable background recording and Xbox Game Bar](https://tools.techidaily.com/drivereasy/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Install the latest game patch
 
  10 Chambers, the developers of GTFO, releases regular game patches to fix bugs and improve gaming performance. It’s possible that a recent patch has caused the game crash issue, and that a new patch is required to fix it.
@@ -46,6 +43,10 @@ GTFO
  If a patch is available, it will be detected by Steam, and the latest game patch will be automatically downloaded and installed when you launch the game.
 
  Run GTFO and see if the FPS is back to normal. If the in-game FPS still drops, or there are no new game patch available, move on to next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Update your graphics driver
 
@@ -75,6 +76,10 @@ There are mainly two methods for you to update the graphics driver:
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Set the power plan of your PC for high performance
 
  Windows power plans are designed to manage how your computer consumes and conserves power. You may encouter FPS drops when your computer is using the balanced or power saver plan.
@@ -89,13 +94,14 @@ There are mainly two methods for you to update the graphics driver:
 
 ![control panel power options](https://images.drivereasy.com/wp-content/uploads/2019/07/control-panel-power-options.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Run GTFO and check if you get a better PFS. If the GTFO FPS drops again, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Modify graphics card settings
@@ -123,21 +129,7 @@ There are mainly two methods for you to update the graphics driver:
 2. Go to **Gaming** **\>** **Global Settings** . Then modify the settings the same way you see on the screenshot below.  
 ![AMD Radeon Settings](https://images.drivereasy.com/wp-content/uploads/2018/12/AMD-Radeon-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Launch GTFO and see if the in-game FPS improves. If not, move on to the next fix, below.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Disable overlays
 
@@ -155,10 +147,7 @@ There are mainly two methods for you to update the graphics driver:
  Run GTFO again after you disabled all the in-game overlays and see if the in-game FPS increases. If this issue persists, try the next fix, below.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Disable background recording and Xbox Game Bar
@@ -173,13 +162,6 @@ There are mainly two methods for you to update the graphics driver:
 
 ![Turn off Xbox Game Bar](https://images.drivereasy.com/wp-content/uploads/2021/04/Turn-off-Xbox-Game-Bar.jpg)
 3. Click **Captures** on the left, then **turn off** the toggle udner **Background recording** if it is turned on.  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Turn off background recording](https://images.drivereasy.com/wp-content/uploads/2021/04/Turn-off-background-recording.jpg)
 
@@ -208,17 +190,20 @@ Launch GTFO to see you can play it smoothly.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-gain-strategies-for-youtube-aspirants/"><u>[New] 2024 Approved Channel Gain Strategies for YouTube Aspirants</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-boosting-earnings-in-cosmetic-videography-for-2024/"><u>[New] Boosting Earnings in Cosmetic Videography for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dissolving-details-techniques-to-anonymize-youtube-media/"><u>[New] In 2024, Dissolving Details Techniques to Anonymize YouTube Media</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-secrets-to-dynamic-and-effective-igtv-covers/"><u>[New] Secrets to Dynamic & Effective IGTV Covers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/he-roadmap-for-youtube-streaming-titans-in-gaming-for-2024/"><u>[New] The Roadmap for YouTube Streaming Titans in Gaming for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>[Updated] __Local Labor Costs__ The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-pioneering-brands-spotlight-on-top-9-free-youtube-logos-craftors/"><u>[Updated] Pioneering Brands Spotlight on Top 9 Free YouTube Logos Craftors</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/rawmovavi/"><u>「RAW画像を無料にしっかり変換！オンラインでMovaviが君の力」</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-vision-into-visual-storytelling-with-windows-11-techniques/"><u>2024 Approved Transforming Vision Into Visual Storytelling with Windows 11 Techniques</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-top-10-animation-software-for-bringing-photos-to-life/"><u>New Top 10 Animation Software for Bringing Photos to Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/satire-scrutiny-in-social-networks-policies/"><u>Satire Scrutiny in Social Network's Policies</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-enabling-your-windows-10-hosted-network-when-initialization-fails/"><u>Troubleshooting Guide: Enabling Your Windows 10 Hosted Network When Initialization Fails</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>[New] 2024 Approved A Compreayer's Guide to Monetizing Videos Critical View Figures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-building-a-sports-channel-via-macos-step-by-step-guide/"><u>[New] 2024 Approved Building a Sports Channel via macOS Step by Step Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-saving-youtube-content-with-simple-steps/"><u>[New] 2024 Approved Saving YouTube Content with Simple Steps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-launch-free-youtube-events-a-step-by-step-guide/"><u>[New] Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-customizing-your-watch-the-art-of-altering-youtube-video-pace/"><u>[Updated] 2024 Approved Customizing Your Watch The Art of Altering YouTube Video Pace</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-easy-transition-from-local-to-global-stream-spotify-playlists-on-youtube/"><u>[Updated] In 2024, Easy Transition From Local to Global Stream Spotify Playlists on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-monetizing-mastery-in-your-mind-the-no-ad-youtube-money-manual/"><u>[Updated] Monetizing Mastery in Your Mind The No-Ad YouTube Money Manual</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-illuminate-your-world-top-iphone-lights-techniques/"><u>2024 Approved Illuminate Your World Top iPhone Lights Techniques</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-navigating-vimeo-tiers-free-plus-and-pro-options/"><u>2024 Approved Navigating Vimeo Tiers Free, Plus, and Pro Options</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/inclusive-leadership-through-multilingual-expertise/"><u>Inclusive Leadership Through Multilingual Expertise</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/maximizing-instagram-video-lengths-a-step-by-step-guide/"><u>Maximizing Instagram Video Lengths A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/remote-work-perfection-unveiled-an-in-depth-look-at-the-lightest-most-efficient-laptops-on-the-market-s-picks/"><u>Remote Work Perfection Unveiled: An In-Depth Look at the Lightest, Most Efficient Laptops on the Market 'S Picks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-rated-smartwatches-featuring-in-depth-analysis-by-tech-experts-zdnet/"><u>Top-Rated Smartwatches Featuring In-Depth Analysis by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725288542187-winxvideo-ai/"><u>Winxvideo AI 사용: 원홍한 비디오 촬영 단계를 이루기 위해</u></a></li>
 </ul></div>
 

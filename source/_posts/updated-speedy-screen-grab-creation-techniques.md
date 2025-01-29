@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Speedy Screen Grab Creation Techniques"
-date: 2024-07-31T02:16:15.096Z
-updated: 2024-08-01T02:16:15.096Z
+date: 2025-01-26T17:22:44.714Z
+updated: 2025-01-29T03:44:11.003Z
 tags:
   - ai video
   - ai youtube
@@ -56,37 +56,22 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
@@ -95,18 +80,12 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
 #### Conclusion
 
 With Filmora, there are no limits. You can use your imagination to create amazing Fortnite thumbnails or thumbnails for other purposes. This article is just a demo teaching you how you use Filmora X to develop free and astounding thumbnails. Explore other options and elements of Filmora to take your thumbnails to another level.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 Ollie Mattison
@@ -115,12 +94,37 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elites-free-guide-to-10-caption-download-tools/"><u>[New] 2024 Approved Elite's Free Guide to 10 Caption Download Tools</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-the-pathway-to-profit-enabling-youtuber-earnings-via-mobile-devices/"><u>[New] In 2024, The Pathway to Profit Enabling YouTuber Earnings via Mobile Devices</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-unveiling-the-secrets-of-dark-sky-photography/"><u>[New] In 2024, Unveiling the Secrets of Dark Sky Photography</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-mastering-slack-and-filmora-efficient-meeting-planning-and-recording-guide/"><u>[New] Mastering Slack & Filmora Efficient Meeting Planning & Recording Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-no-expenses-the-ultimate-guide-to-16-top-tier-youtube-rippers-for-audios/"><u>[New] No Expenses The Ultimate Guide to 16 Top-Tier YouTube Rippers for Audios</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-resolve-instagram-video-glitches-today/"><u>[New] Resolve Instagram Video Glitches Today</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-diy-sports-highlights-a-comprehensive-guide/"><u>[Updated] 2024 Approved DIY Sports Highlights A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-editing-savvy-streamlining-your-youtube-video-lengths/"><u>[Updated] 2024 Approved Editing Savvy Streamlining Your YouTube Video Lengths</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-capture-to-air-expert-tips-for-streaming-upside-down-videos-on-youtube/"><u>[Updated] 2024 Approved From Capture to Air Expert Tips for Streaming Upside-Down Videos on Youtube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-tactics-optimizing-freefire-video-content-for-2024/"><u>[Updated] Expert Tactics Optimizing FreeFire Video Content for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-6-figure-views-prime-hashtag-strategies-for-success/"><u>[Updated] In 2024, 6-Figure Views Prime Hashtag Strategies for Success</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-ultimate-guide-to-purging-youtube-videos/"><u>[Updated] In 2024, The Ultimate Guide to Purging YouTube Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-optimizing-your-home-studio-for-online-broadcasts-for-2024/"><u>[Updated] Optimizing Your Home Studio for Online Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-problem-is-over-your-shorts-show-up-now/"><u>[Updated] The Problem Is Over Your Shorts Show Up Now</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-first-steps-in-video-content-creation/"><u>[Updated] Your First Steps in Video Content Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-building-believable-characters-through-dialogue/"><u>2024 Approved Building Believable Characters Through Dialogue</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-filmora-vs-democreator-a-guide-to-the-best-video-editor/"><u>In 2024, Filmora Vs. Democreator A Guide to the Best Video Editor</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-11-pro-max-passcode-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 11 Pro Max Passcode without Computer?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-brand-creation-top-titles-for-video-content-craftsmen-max-156-for-2024/"><u>Youtube Brand Creation Top Titles for Video Content Craftsmen (Max 156) for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Effective Approach to Swiftly Eliminate Video Comments for 2024"
-date: 2024-10-09T21:01:39.589Z
-updated: 2024-10-12T05:11:39.077Z
+date: 2025-01-21T22:53:10.989Z
+updated: 2025-01-28T23:58:54.848Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -58,10 +62,7 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
-  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
@@ -77,10 +78,7 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -118,17 +116,7 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -139,6 +127,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
@@ -171,22 +163,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-empowered-by-numbers-decoding-youtube-analytics/"><u>[New] 2024 Approved Empowered by Numbers Decoding YouTube Analytics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-exploring-youtubes-financial-blueprint-for-short-form-video-success/"><u>[New] 2024 Approved Exploring YouTube's Financial Blueprint for Short-Form Video Success</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-channel-name-wizardry-brainstorm-and-create/"><u>[New] Channel Name Wizardry Brainstorm & Create!</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-innovators-choice-best-gimbal-systems-for-video-creators/"><u>[Updated] 2024 Approved The Innovator’s Choice Best Gimbal Systems for Video Creators</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unleashing-creative-potential-with-pixiz-for-photo-videos/"><u>[Updated] 2024 Approved Unleashing Creative Potential with Pixiz for Photo Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[Updated] In 2024, A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-your-course-building-plays-on-youtube/"><u>[Updated] In 2024, Charting Your Course Building Plays on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-innovative-brainstroming-techniques-for-channels-names/"><u>[Updated] Innovative Brainstroming Techniques for Channels' Names</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-standard-youtube-license-vs-creative-commons/"><u>[Updated] Standard YouTube License Vs. Creative Commons</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-free-guide-to-youtube-ad-videos/"><u>[Updated] The Ultimate Free Guide to YouTube Ad Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/essential-streamers-guide-top-10-sports-apps-for-real-time-action-for-2024/"><u>Essential Streamers' Guide Top 10 Sports Apps for Real-Time Action for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/how-to-crop-photo-online/"><u>How To Crop Photo Online?</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-movie-magic-on-your-device-top-10-trailer-apps-for-iphone-and-ipad/"><u>New Movie Magic on Your Device Top 10 Trailer Apps for iPhone and iPad</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/oppo-find-x7-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Oppo Find X7 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://discover-deluxe.techidaily.com/synchronisierung-von-icloud-kontakten-mit-iphone-und-ipad-losung-fur-haufige-probleme/"><u>Synchronisierung Von iCloud-Kontakten Mit iPhone Und iPad - Lösung Für Häufige Probleme</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unveiling-the-perfect-gaming-experience-kinemaster-on-android-for-2024/"><u>Unveiling the Perfect Gaming Experience KineMaster on Android for 2024</u></a></li>
-<li><a href="https://techidaily.com/xiaomi-redmi-note-12-pro-4g-won-t-play-mp4-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Xiaomi Redmi Note 12 Pro 4G won’t play MP4 files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-enhance-youtube-livestreams-webcam-selection-mastery-for-2024/"><u>[New] Enhance YouTube Livestreams Webcam Selection Mastery for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comparing-the-costs-and-advantages-of-various-youtube-plans/"><u>[New] In 2024, Comparing the Costs and Advantages of Various YouTube Plans</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-guide-the-top-10-inexpensive-youtube-channels-for-visual-creators/"><u>[New] In 2024, Essential Guide The Top 10 Inexpensive YouTube Channels for Visual Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-access-creative-banners-for-video-makers-at-zero-price-for-2024/"><u>[Updated] Access Creative Banners for Video Makers at Zero Price for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-your-channel-strategies-for-skyrocketing-view-counts/"><u>[Updated] In 2024, Boosting Your Channel Strategies for Skyrocketing View Counts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/cam-repaired-obs-recovery-successful/"><u>Cam Repaired OBS Recovery Successful</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/gfx-driver-complication-blackout-phase/"><u>GFX Driver Complication - Blackout Phase</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-lava-blaze-pro-5g-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Lava Blaze Pro 5G Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-essential-wmp-routine-for-cds-ripping-and-batch-processing/"><u>In 2024, The Essential WMP Routine for CDs Ripping & Batch Processing</u></a></li>
+<li><a href="https://driver-install.techidaily.com/latest-windows-compatibility-model-specific-aoc-driver/"><u>Latest Windows Compatibility: Model-Specific AOC Driver</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-guide-eradicating-windows-mail-problem-0x80072746/"><u>Quick Guide: Eradicating Windows Mail Problem 0X80072746</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-failed-windows-update-code-0x800f0845/"><u>Tackling Failed Windows Update - Code 0X800F0845</u></a></li>
 </ul></div>
 

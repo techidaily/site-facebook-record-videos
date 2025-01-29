@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Essential Illumination Strategies for Filming"
-date: 2025-01-19T23:06:01.205Z
-updated: 2025-01-21T18:00:34.297Z
+date: 2025-01-22T09:16:48.101Z
+updated: 2025-01-28T17:48:14.605Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ One of the best things you can do for your video quality is to ensure you have g
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
@@ -37,7 +37,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -53,13 +53,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -101,7 +101,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -119,24 +119,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-elite-4-covert-content-retrievers/"><u>[New] 2024 Approved Elite 4 Covert Content Retrievers</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-mastering-fb-story-sharing-a-four-step-guide/"><u>[New] Mastering FB Story Sharing A Four-Step Guide</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-ultimate-selection-of-superior-hexadrones-for-2024/"><u>[New] Ultimate Selection of Superior HexaDrones for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-driving-income-through-youtube-shorts-crucial-elements-and-earnings-potential/"><u>[Updated] 2024 Approved Driving Income Through YouTube Shorts Crucial Elements and Earnings Potential</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-expert-insights-on-optimal-fpv-drone-blades/"><u>[Updated] 2024 Approved Expert Insights on Optimal FPV Drone Blades</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-12-premium-cameras-for-professional-vloggers-for-2024/"><u>[Updated] Exploring 12 Premium Cameras for Professional Vloggers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-your-youtube-earnings-with-smart-tactics/"><u>[Updated] Maximizing Your YouTube Earnings with Smart Tactics</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-starting-strong-with-these-trendy-15-video-intros/"><u>[Updated] Starting Strong with These Trendy 15 Video Intros</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-vr-wave-crafting-engaging-360-video-narratives-for-youtube-audiences/"><u>[Updated] The VR Wave Crafting Engaging 360 Video Narratives for YouTube Audiences</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thumbnails-unleashed-elevate-your-video-presence/"><u>[Updated] Thumbnails Unleashed Elevate Your Video Presence</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-ideas-into-viral-video-hits-on-youtube/"><u>[Updated] Transforming Ideas Into Viral Video Hits on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-worldwide-rich-list-top-earning-youtubers/"><u>[Updated] Worldwide Rich List Top Earning YouTubers</u></a></li>
-<li><a href="https://change-location.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Poco X6 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Xiaomi Redmi K70 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-d3dx92ndll-missing-error-a-step-by-step-guide/"><u>Resolving d3dx9_2n.dll Missing Error - A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rock-on-safe-hearing-ultimate-concert-plugs-review/"><u>Rock On, Safe Hearing: Ultimate Concert Plugs Review</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-iphone-7-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from iPhone 7 Plus iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtubes-role-in-todays-dynamic-educational-landscape-for-2024/"><u>YouTube's Role in Today's Dynamic Educational Landscape for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-create-compelling-animation-subscribe-bars-for-your-youtube-channel-filmora-for-2024/"><u>[Updated] Create Compelling Animation Subscribe Bars for Your YouTube Channel (Filmora) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevating-your-earning-game-with-youtube-monetization-strategies-for-2024/"><u>[Updated] Elevating Your Earning Game with YouTube Monetization Strategies for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>[Updated] In 2024, Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-inspiring-vistas-top-20-scenic-shots-for-social-media-success/"><u>[Updated] Inspiring Vistas Top 20 Scenic Shots for Social Media Success</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-compilation-of-techniques-to-source-background-images/"><u>2024 Approved The Ultimate Compilation of Techniques to Source Background Images</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/creating-personalized-notification-tones-in-gmail-step-by-step/"><u>Creating Personalized Notification Tones in Gmail – Step by Step</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/elevate-your-profile-game-strategies-for-fb-success-for-2024/"><u>Elevate Your Profile Game Strategies for FB Success for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/infinite-jest-10-ultimate-meme-layouts/"><u>Infinite Jest - 10 Ultimate Meme Layouts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-the-craft-of-gaming-permanent-solutions-for-witcher-3-pc-glitches/"><u>Master the Craft of Gaming: Permanent Solutions for Witcher 3 PC Glitches</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-fastest-3d-printers-unveiled-top-performers-based-on-print-time-analysis/"><u>The Fastest 3D Printers Unveiled – Top Performers Based on Print Time Analysis</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-list-of-32-no-cost-backup-utilities-rated-for-security-and-convenience/"><u>The Ultimate List of 32 No-Cost Backup Utilities, Rated for Security & Convenience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/youtube-video-earnings-explained-average-adsense-fees-per-kv-for-2024/"><u>Youtube Video Earnings Explained Average AdSense Fees per KV for 2024</u></a></li>
 </ul></div>
 

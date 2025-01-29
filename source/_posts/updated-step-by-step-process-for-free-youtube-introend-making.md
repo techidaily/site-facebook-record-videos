@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2025-01-15T19:50:22.349Z
-updated: 2025-01-21T17:31:04.116Z
+date: 2025-01-25T08:24:13.604Z
+updated: 2025-01-29T13:14:38.110Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,24 +143,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beyond-views-and-likes-pursuing-profits-on-youtube/"><u>[New] 2024 Approved Beyond Views and Likes Pursuing Profits on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-charm-with-cost-free-visual-aids/"><u>[New] In 2024, Channel Charm with Cost-Free Visual Aids</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-strategies-to-maximize-income-with-video-ads-on-youtube/"><u>[New] In 2024, Expert Strategies to Maximize Income with Video Ads on Youtube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hriving-in-the-world-of-youtube-content-creation/"><u>[New] Thriving in the World of YouTube Content Creation</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-unleash-your-videos-potential-thriving-in-youtube-rankings-for-2024/"><u>[New] Unleash Your Video's Potential Thriving in YouTube Rankings for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-delving-into-popular-discussion-threads-on-youtube/"><u>[Updated] 2024 Approved Delving Into Popular Discussion Threads on YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-eternal-vision-recorder-tool/"><u>[Updated] 2024 Approved Eternal Vision Recorder Tool</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-captivating-thumbnails-a-digital-marketers-guidebook/"><u>[Updated] In 2024, Crafting Captivating Thumbnails A Digital Marketer's Guidebook</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-sound-mastery-pro-tips-for-effective-audiovisual-blending-audacity-for-2024/"><u>[Updated] Sound Mastery Pro Tips for Effective Audiovisual Blending (Audacity) for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-complete-youtubers-guide-to-editing-in-premiere-pro/"><u>[Updated] The Complete Youtuber's Guide to Editing in Premiere Pro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-tutorial-transferring-youtube-videos-to-dailymotion/"><u>[Updated] The Ultimate Tutorial Transferring YouTube Videos to Dailymotion</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-8-online-learning-paths-for-newcomers-to-video/"><u>[Updated] Top 8 Online Learning Paths for Newcomers to Video</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/1726029975854-youtube/"><u>「YouTubeのショート動画」どうやって鑑賞し、記憶に残るように保管する？</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-where-creativity-meets-technology-in-youtube-studio/"><u>2024 Approved Where Creativity Meets Technology in YouTube Studio</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-honor-x50-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-itel-a60s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/comprehensive-timeline-transforming-the-landscape-of-ios-versions-10-180-included/"><u>Comprehensive Timeline: Transforming the Landscape of iOS, Versions 1.0 - 18.0 Included</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-tiktok-how-to-set-and-modify-your-profile-age/"><u>Mastering TikTok How to Set & Modify Your Profile Age</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/reflect-and-paraphrase-restate-what-youve-heard-in-your-own-words-to-ensure-comprehension-and-ask-clarifying-questions-if-needed-for-2024/"><u>Reflect and Paraphrase Restate What You've Heard in Your Own Words to Ensure Comprehension, and Ask Clarifying Questions if Needed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles/"><u>[New] 2024 Approved Enhancing User Experience A Quick How-To for YouTube CC & Subtitles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-beginners-guide-adding-text-overlays-on-youtube-for-2024/"><u>[New] Beginner's Guide Adding Text Overlays on YouTube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-masterclass-in-brief-lapses-top-5/"><u>[New] Masterclass in Brief Lapses #Top 5</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-the-quest-for-superior-video-capture-tools/"><u>[New] The Quest for Superior Video Capture Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficient-mac-video-resizing-to-fixed-ratio-for-2024/"><u>[Updated] Efficient Mac Video Resizing to Fixed Ratio for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ensuring-authenticity-of-your-youtube-account-for-2024/"><u>[Updated] Ensuring Authenticity of Your YouTube Account for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-every-creators-guide-to-youtube-revenue-for-2024/"><u>[Updated] Every Creator's Guide to YouTube Revenue for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-angled-artistry-elevating-youtube-video-editing-skills/"><u>[Updated] In 2024, Angled Artistry Elevating YouTube Video Editing Skills</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-enhance-visibility-11-must-know-youtube-video-seo-tactics/"><u>[Updated] In 2024, Enhance Visibility 11 Must-Know YouTube Video SEO Tactics</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-subscription-made-simple-building-a-user-friendly-button-for-channels/"><u>[Updated] Subscription Made Simple Building a User-Friendly Button for Channels</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-snapchat-boomerang-handbook-for-2024/"><u>[Updated] The Ultimate Snapchat Boomerang Handbook for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/converting-your-fb-videos-to-shareable-mp3-music-for-2024/"><u>Converting Your Fb Videos to Shareable MP3 Music for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/immediate-impact-shots-learn-the-top-5-home-film-tips-now/"><u>Immediate Impact Shots Learn the Top 5 Home Film Tips Now</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-webcams-that-win-top-picks-for-youtube-stream-success/"><u>In 2024, Webcams that Win Top Picks for YouTube Stream Success</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/resolving-graphics-card-errors-step-by-step-guide-by-yl-tech-experts/"><u>Resolving Graphics Card Errors: Step-by-Step Guide by YL Tech Experts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-essential-guide-to-anime-style-youtube-subscribe-buttons-using-filmora-for-2024/"><u>The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-20-shared-game-sessions-across-multiple-systems/"><u>Top 20 Shared Game Sessions Across Multiple Systems</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-integrating-audio-into-digital-videos-a-comprehensive-guide/"><u>Updated Integrating Audio Into Digital Videos A Comprehensive Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725285906119-dvd/"><u>ダイギャチーの公式ブログ: DVD コピーガイド・レシピ 築き上げた知識ポータル</u></a></li>
 </ul></div>
 

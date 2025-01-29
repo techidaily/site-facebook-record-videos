@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlock Higher Views  Basic YouTube SEO Explained\""
-date: 2025-01-17T22:27:33.411Z
-updated: 2025-01-21T20:33:15.667Z
+date: 2025-01-28T10:34:43.603Z
+updated: 2025-01-29T00:29:31.248Z
 tags:
   - ai video
   - ai youtube
@@ -84,19 +84,11 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ####  
 
@@ -164,6 +156,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -209,7 +205,7 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -220,19 +216,11 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -241,6 +229,10 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
 
@@ -266,9 +258,17 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -285,18 +285,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-converting-imovie-edits-for-online-exhibition-youtube-edition/"><u>[New] 2024 Approved Converting iMovie Edits for Online Exhibition - YouTube Edition</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-revolutionize-your-social-media-strategy-essential-instagram-analytics-platforms/"><u>[New] 2024 Approved Revolutionize Your Social Media Strategy Essential Instagram Analytics Platforms</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-editors-compendium-top-devices-transforming-media-projects/"><u>[New] In 2024, Editor's Compendium Top Devices Transforming Media Projects</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-art-of-engaging-crafting-compelling-reddit-content/"><u>[New] The Art of Engaging Crafting Compelling Reddit Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-females-in-youtube-a-list-of-leading-creators/"><u>[New] Top Females in YouTube A List of Leading Creators</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unlock-new-horizons-best-6-instagram-reel-apps-for-2024/"><u>[New] Unlock New Horizons Best 6 Instagram Reel Apps for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-dancefloor-directives-expert-dj-video-downloads-for-2024/"><u>[Updated] Dancefloor Directives Expert DJ Video Downloads for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-breaking-down-the-barriers-to-knowing-your-fans/"><u>[Updated] In 2024, Breaking Down the Barriers to Knowing Your Fans</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-infographic-insights-small-business-video-mastery/"><u>[Updated] Infographic Insights Small Business Video Mastery</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-unveiling-vsdcs-potential-and-top-alternatives/"><u>[Updated] Unveiling VSDC’s Potential & Top Alternatives</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-your-photos-into-masterpieces-with-top-pixlr-techniques/"><u>2024 Approved Transform Your Photos Into Masterpieces with Top Pixlr Techniques</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-roccat-mouse-driver-free-installation-guide/"><u>Get Roccat Mouse Driver - Free Installation Guide</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-4-ways-to-unlock-iphone-15-pro-max-to-use-usb-accessories-without-passcode-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock iPhone 15 Pro Max to Use USB Accessories Without Passcode</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-subtitles-on-the-social-media-stage-igtv/"><u>[New] 2024 Approved Mastering Subtitles on the Social Media Stage IGTV</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beginning-a-blogging-journey-profit-from-your-passion/"><u>[Updated] 2024 Approved Beginning a Blogging Journey Profit From Your Passion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-craft-eye-catching-youtubes-end-titles/"><u>[Updated] How to Craft Eye-Catching YouTubes End Titles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boosting-engagement-joint-video-strategies-for-growth/"><u>[Updated] In 2024, Boosting Engagement Joint Video Strategies for Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-fundamentals-of-sports-video-editing/"><u>[Updated] The Fundamentals of Sports Video Editing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-flawless-video-thumbnails-instantly/"><u>[Updated] Unlock Flawless Video Thumbnails Instantly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-your-viewers-your-wealth-building-an-earning-strategy/"><u>[Updated] Your Viewers, Your Wealth Building an Earning Strategy</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-explore-10-premier-yoga-streams-for-wellness-boost/"><u>2024 Approved Explore 10 Premier Yoga Streams for Wellness Boost</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-vivo-y78plus-t1-edition-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Vivo Y78+ (T1) Edition Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-components-to-creativity-designing-your-own-4k-editor-pc/"><u>In 2024, From Components to Creativity Designing Your Own 4K Editor PC</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterful-lighting-techniques-for-iphone-users-for-2024/"><u>Masterful Lighting Techniques for IPhone Users for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-misidentified-gaming-feature-within-discord-windows-edition/"><u>Resolving Misidentified Gaming Feature Within Discord, Windows Edition</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/the-ultimate-fix-for-obs-desktop-audio-problems-techniques-to-restore-recording-quality/"><u>The Ultimate Fix for OBS Desktop Audio Problems: Techniques to Restore Recording Quality</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/why-choose-youtubes-av1-for-impeccable-video-playback-in-2024/"><u>Why Choose YouTube's AV1 for Impeccable Video Playback, In 2024</u></a></li>
 </ul></div>
 
