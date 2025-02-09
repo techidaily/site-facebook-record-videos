@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2025-01-27T10:22:54.000Z
-updated: 2025-01-29T01:16:39.336Z
+date: 2025-02-07T17:34:22.820Z
+updated: 2025-02-09T16:35:55.566Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,28 +175,22 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-ensuring-long-term-youtube-success-with-creative-commons-mainteninas/"><u>[New] 2024 Approved Ensuring Long-Term YouTube Success with Creative Commons Mainteninas</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fast-track-to-youtube-partner-level-achieve-10k-views/"><u>[New] 2024 Approved Fast Track to YouTube Partner Level - Achieve 10K Views</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-3-techniques-to-retrieve-and-save-youtubes-iconic-images-for-2024/"><u>[New] 3 Techniques to Retrieve & Save YouTube's Iconic Images for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-creating-channel-names-that-capture-attention-for-2024/"><u>[New] Creating Channel Names That Capture Attention for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-enhancing-photos-and-videos-with-instagrams-creative-features-for-2024/"><u>[New] Enhancing Photos and Videos with Instagram's Creative Features for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-banner-bonanza-unlimited-50-free-youtube-designs/"><u>[New] In 2024, Banner Bonanza Unlimited 50 FREE YouTube Designs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-drive-engagement-crafting-an-animated-subscribe-button-in-filmoras-step-by-step-guide/"><u>[New] In 2024, Drive Engagement Crafting an Animated Subscribe Button in Filmora's Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-building-powerful-youtube-backlinks/"><u>[New] The Art of Building Powerful YouTube Backlinks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-engagement-through-thoughtful-youtube-tags/"><u>[Updated] 2024 Approved Enhancing Engagement Through Thoughtful YouTube Tags</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-chill-vibes-current-hits-to-match-your-yt-short-tunes/"><u>[Updated] In 2024, Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-playback-pivot-a-step-by-step-yt-guide/"><u>[Updated] Mastering Playback Pivot A Step-by-Step YT Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-partnered-filmmaking-expand-your-channels-reach/"><u>[Updated] Partnered Filmmaking Expand Your Channel's Reach</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-10-frame-makers-revealed-2024-edition/"><u>[Updated] Top 10 Frame Makers Revealed 2024 Edition</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-potential-of-cds-a-wmp-masterclass/"><u>[Updated] Unlocking the Potential of Cds A WMP Masterclass</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-s18e-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo S18e Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/erate-keyword-acquisition-the-finest-7-free-taggification-apps-for-youtube-videos-for-2024/"><u>Accelerate Keyword Acquisition The Finest 7 Free Taggification Apps for YouTube Videos for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-conquer-color-with-pro-techniques-in-photography/"><u>In 2024, Conquer Color with Pro Techniques in Photography</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/spotlight-the-most-captivating-and-inclusive-lgbtq-series-available-on-netflix-right-now-july/"><u>Spotlight: The Most Captivating and Inclusive LGBTQ Series Available on Netflix Right Now (July)</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-unlock-stunning-gopro-footage-easy-editing-for-beginners/"><u>Updated In 2024, Unlock Stunning GoPro Footage Easy Editing for Beginners</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-demystifying-the-math-of-youtube-ratio-perfection/"><u>[New] 2024 Approved Demystifying the Math of YouTube Ratio Perfection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-resource-powerdirector-users/"><u>[New] The Ultimate Resource PowerDirector Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-becoming-a-master-of-instagrams-video-dialogue-dynamics-for-2024/"><u>[Updated] Becoming a Master of Instagram's Video Dialogue Dynamics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-views-and-engagement-top-rated-online-keyword-generators-for-2024/"><u>[Updated] Boost Views and Engagement Top-Rated Online Keyword Generators for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-effective-youtube-playlist-distribution/"><u>[Updated] Strategies for Effective YouTube Playlist Distribution</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-studio-luminance-ranking-the-best-17-light-devices/"><u>[Updated] Studio Luminance Ranking the Best 17 Light Devices</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-smart-7-hd-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix Smart 7 HD.</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-expert-insights-on-yis-4k-action-video-camera/"><u>In 2024, Expert Insights on YI’s 4K Action Video Camera</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-what-is-the-best-mp4-cutter-for-youtubers-on-mac/"><u>In 2024, What Is the Best MP4 Cutter for YouTubers On Mac?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/is-chatgpt-response-size-restricted-by-characterswords/"><u>Is ChatGPT Response Size Restricted by Characters/Words?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/securely-steering-towards-the-one-million-view-mark-on-youtube-for-2024/"><u>Securely Steering Towards the One-Million View Mark on YouTube for 2024</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/windows-11-ready-auto-save-external-hard-drive-with-usb-connectivity/"><u>Windows 11 Ready Auto-Save External Hard Drive with USB Connectivity</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

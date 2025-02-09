@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Engage Audiences on All Sides  Live 360-Degree Video Broadcasting for YouTube\""
-date: 2024-07-31T02:02:17.651Z
-updated: 2024-08-01T02:02:17.651Z
+date: 2025-02-02T20:26:12.758Z
+updated: 2025-02-09T18:57:05.488Z
 tags:
   - ai video
   - ai youtube
@@ -28,8 +28,9 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 * [Part2.Live Stream from Allie 360 Camera to YouTube on Mobile](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Stream 360 to Youtube via Ricoh Theta S and OBS on PC
 
 **Step 1:** First of all you need to get ready with your Ricoh Theta S 360 camera unit.
@@ -46,19 +47,11 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
 **Step 5:** Now select your device ‘Ricoh Theta S’ and then hit Okay.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ click OK](https://images.wondershare.com/filmora/article-images/click-ok.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6:**  You will find option to register to application with your respective device. Select and hit register.
 
@@ -70,11 +63,12 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
 ![ bottom video](https://images.wondershare.com/filmora/article-images/bottom-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 9:** Once your device enters into Live Stream mode then a Led will start blinking on your device that represents your device is live at this moment.
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![led ](https://images.wondershare.com/filmora/article-images/led.jpg)
 
 **Step 10:** Now you need to plug in the USB cable again with your computer.
@@ -87,9 +81,6 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
 **Step 13:** Select video capture device as your source from drop down menu.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![device as ](https://images.wondershare.com/filmora/article-images/device-as.jpg)
 
 **Step 14:** Now from available list select Theta UVC as your active video capture source.
@@ -98,9 +89,6 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
 **Step 15:** You need to adjust screen as per your requirements.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![screen ](https://images.wondershare.com/filmora/article-images/screen.jpg)
 
 **Step 16:** Now move to YouTube and then hit New Live Events option.
@@ -109,25 +97,25 @@ thumbnail: https://thmb.techidaily.com/bd7c586aade6fed49cfda54f6e705ff08c3876c36
 
 **Step 17:** Complete the basic information.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ![basic info ](https://images.wondershare.com/filmora/article-images/basic-info.jpg)
 
 **Step 18:** You need to move to advanced settings now; select 360 live stream option and then create event.
 
 **Step 19:** Now complete the ingesting settings and finally select create new stream option.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![new stream option ](https://images.wondershare.com/filmora/article-images/new-stream-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 20:** As soon as your event is created then you will be able to find your stream name on screen, copy it and simply paste it on OBS window.
 
 ![ingesting settings ](https://images.wondershare.com/filmora/article-images/ingesting-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 21:** It is time to return to OBS settings and then you need to paste that copied name on stream key option.
 
@@ -135,15 +123,13 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 **Step 22:** Once all above settings are complete then click start stream option from your OBS window and you will soon be able to find your 360 live on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![stream key ](https://images.wondershare.com/filmora/article-images/stream-key.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![360 live ](https://images.wondershare.com/filmora/article-images/360-live.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2.Live Stream from Allie 360 Camera to YouTube on Mobile
 
@@ -158,9 +144,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 **Step 4:** As soon as you have downloaded your app then simply turn on the Bluetooth, Wi-Fi and air plane mode on your device.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![air plane mode ](https://images.wondershare.com/filmora/article-images/air-plane-mode.jpg)
 
 **Step 5:** Simply open your Allie application and then connect your camera.
@@ -171,21 +154,27 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![  icon on ](https://images.wondershare.com/filmora/article-images/icon-on.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 7:** You will be asked to fill the necessary information about your video. It is also possible to make adjustments regarding video quality. Once you are done with all required settings then hit Submit option.
 
 ![click submit ](https://images.wondershare.com/filmora/article-images/click-submit.jpg)
 
 **Step 8:** Soon your video will become live; note that you can also share your live video via SNS platform with other viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ![SNS platform ](https://images.wondershare.com/filmora/article-images/sns-platform.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -193,12 +182,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-livestream-capturing-gear-for-online-content-makers/"><u>[New] 2024 Approved Best Livestream Capturing Gear for Online Content Makers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cost-effective-techniques-for-youtube-intro-creation-for-2024/"><u>[New] Cost-Effective Techniques for YouTube Intro Creation for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-the-heart-of-video-magic-10-key-edits-in-filmora/"><u>[New] The Heart of Video Magic 10 Key Edits in Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comprehensive-guide-your-shorts-hidden-thumbnails/"><u>[Updated] 2024 Approved Comprehensive Guide Your Shorts' Hidden Thumbnails</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-tools-for-animating-with-3d-models/"><u>[Updated] Best Tools for Animating with 3D Models</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-video-converters-for-high-quality-webm-for-2024/"><u>[Updated] Best YouTube Video Converters for High-Quality WebM for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-climbing-to-youtube-zenith-a-step-by-step-guide-to-creative-studio-mastery-for-2024/"><u>[Updated] Climbing to YouTube Zenith A Step-by-Step Guide to Creative Studio Mastery for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-infusing-audio-from-yt-into-video-artistry/"><u>[Updated] Infusing Audio From YT Into Video Artistry</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-upgrade-to-newest-pl23-usb-dongle-driver-for-pcs-with-windows-os/"><u>Download & Upgrade to Newest PL23# USB Dongle Driver for PCs with Windows OS</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/effortless-streaming-successfully-watching-mkv-files-with-windows-media-player/"><u>Effortless Streaming: Successfully Watching MKV Files with Windows Media Player</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-about-xiaomi-redmi-12-frp-bypass-by-drfone-android/"><u>In 2024, About Xiaomi Redmi 12 FRP Bypass</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-perfecting-the-art-of-sound-blending-a-comprehensive-audacity-workshop-series/"><u>In 2024, Perfecting the Art of Sound Blending A Comprehensive Audacity Workshop Series</u></a></li>
+<li><a href="https://driver-download.techidaily.com/netgear-a6100-step-by-step-guide-to-downloading-and-updating-drivers-in-windows/"><u>Netgear A6100: Step-by-Step Guide to Downloading & Updating Drivers in Windows</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/outstanding-movies-beyond-the-leading-titles-for-2024/"><u>Outstanding Movies Beyond the Leading Titles for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/universal-online-creation-the-top-10-easy-youtube-videos-for-beginners-for-2024/"><u>Universal Online Creation The Top 10 Easy YouTube Videos For Beginners for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Efficient Revenue Streams  The Guide to Making Money From YouTube Mobile\""
-date: 2025-01-21T22:40:30.420Z
-updated: 2025-01-28T22:34:21.295Z
+date: 2025-02-06T22:30:28.969Z
+updated: 2025-02-09T16:23:02.550Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ This article is here to guide you on making money from your YouTube channel in 2
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
 ## Part 1\. What you need to know about YouTube Monetization
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Rules and requirements for YouTube Monetization
 
@@ -97,10 +101,6 @@ To view YouTube Studio's monetization options, click on the "Monetization" tab. 
 
 ![goggle adsense](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step - 4 . Accept YouTube's terms and conditions
 
 Read and accept YouTube's terms and conditions for the Partner Program.
@@ -129,6 +129,10 @@ Keep in mind YouTube's content policies if you want to maintain your monetizatio
 
 Your YouTube channel may need some time to be approved for monetization. Engagement with your audience is the key to increasing viewership and revenue for your videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. Monetizing YouTube channels on mobile devices: Some Proven Ways
 
 It is beneficial for creators to use YouTube AdSense, although it is not a reliable source of income. The advertising rates fluctuate, so making the same amount of money every year is hard. At last, here are some methods for monetizing YouTube:
@@ -146,6 +150,10 @@ Sponsorship involves paying a content creator to use, demonstrate, or test a bra
 ### Affiliates
 
 Using affiliate programs is another way of monetizing your YouTube videos. With affiliate marketing, your audience is directed to a brand's landing page or product by clicking an affiliate link. A commission is earned when the user purchases successfully. It is possible to earn extra income through affiliate programs. Offer discounts to your followers when you become an affiliate for a product you already use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### The merchandise
 
@@ -176,6 +184,10 @@ You can elevate your content with Filmora whether you're experienced or starting
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Features for Editing Videos or Images for YouTube
 
@@ -276,10 +288,6 @@ To view YouTube Studio's monetization options, click on the "Monetization" tab. 
 
 ![goggle adsense](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step - 4 . Accept YouTube's terms and conditions
 
 Read and accept YouTube's terms and conditions for the Partner Program.
@@ -302,6 +310,10 @@ YouTube Studio lets you monitor channel performance, identify improvements, and 
 
 ![track analytics](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step - 9 . Ensure compliance
 
 Keep in mind YouTube's content policies if you want to maintain your monetization status.
@@ -313,10 +325,6 @@ Your YouTube channel may need some time to be approved for monetization. Engagem
 It is beneficial for creators to use YouTube AdSense, although it is not a reliable source of income. The advertising rates fluctuate, so making the same amount of money every year is hard. At last, here are some methods for monetizing YouTube:
 
 ![ways for youtube monetization](https://images.wondershare.com/filmora/article-images/2023/Maximizing-Revenue-How-to-monetize-YouTube-Channel-on-Mobile-in-2023-6.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Ads on YouTube
 
@@ -418,10 +426,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -489,10 +493,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -506,11 +506,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -539,136 +547,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 * [Part 3: How to Delete Your Comments from YouTube?](#part3)
 * [part 4: Delete Other People's Comments on Others' Channels](#part4)
 * [Part 5: Delete All Your Posted YouTube Comments](#part5)
-
-## How to Delete YouTube Comments from Desktop?
-
-In this section, we will tell you how you can do it from your desktop.
-
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
-2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
-3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
-4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
-
-You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## How to Delete All YouTube Comments from Mobile?
-
-The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
-
-1. Log in to your account from the YouTube app on your phone.
-2. On the right-hand side of your YouTube homepage, there will be a profile icon. Tap on that, and from the list, select My Channel. This will direct you to all videos on your channel.
-3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
-4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
-5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## How Do You Delete Your Comments from YouTube?
-
-Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
-
-Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
-
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
-2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
-1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
-2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-## How Do You Delete Your Comments from Your Phone?
-
-Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
-
-1. Go to the YouTube app on your phone. You will need to log in to your account to delete any comment you posted.
-2. When the login process is complete, you need to find the video where your target comment is.
-
-If it is someone else’s video, you can search for it by clicking on the magnifying glass at the top of the homepage or check your YouTube History to find it. To access your History, you need to click on an option called Library at the bottom of the homepage. From there, you can find the History option.
-
-If it is your video where the comment to be removed is, you can go to My Channel from the profile icon on the right-hand side of the YouTube app’s homepage.
-
-1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
-2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-## Delete Other People’s Comments on Others’ Channels
-
-Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
-
-You can do this both from your desktop or your phone with some easy steps.
-
-**How to report people’s comments** **on YouTube?**
-
-Go to <https://www.youtube.com/> from your desktop or open the YouTube app from your phone. Log in to your account if it is not open.
-
-1. The next step is to find the video where the comment is. You can search for it by tapping on the search button at the top of the YouTube homepage. Or you can locate it from your YouTube History.
-
-To find your History from your desktop, you need to click on the three horizontal lines at the top left corner of the homepage. You will find the History option from the list. To access it from your phone, click on the Library option at the bottom of your homepage, and it will open a list where you will find the History option.
-
-1. Open the video, and scroll down to locate the comment you want to report.
-2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
-3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
-
-![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## How to Delete All Your Posted YouTube Comments?
-
-You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
-
-1. You need to go to YouTube from your desktop and sign in to your account.
-2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
-
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
-
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
-
-![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
-
-1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
-
-![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-### Final Thoughts
-
-YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-Richard Bennett
-
-Richard Bennett is a writer and a lover of all things video.
-
-Follow @Richard Bennett
-
-##### Richard Bennett
-
- Mar 27, 2024• Proven solutions
-
-YouTube is a video platform where people share informative and entertaining content. It works in the form of channels belonging to individuals or companies. People can subscribe to these channels to show support, and YouTubers create a strong sense of community with these subscribers.
-
-But some people comment inappropriate comments that can cause the community harm and spread hatred. Many YouTubers may want to delete such remarks. There are also times when you accidentally comment on a channel’s comment section and may wish to delete it.
-
-So how do you delete all YouTube comments? In this how-to blog, we will show you.
-
-* [Part 1: Deleting YouTube Comments from Desktop](#part1)
-* [Part 2: Deleting All YouTube Comments from Mobile](#part2)
-* [Part 3: How to Delete Your Comments from YouTube?](#part3)
-* [part 4: Delete Other People's Comments on Others' Channels](#part4)
-* [Part 5: Delete All Your Posted YouTube Comments](#part5)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Delete YouTube Comments from Desktop?
 
@@ -762,6 +640,10 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -805,9 +687,123 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+## How Do You Delete Your Comments from YouTube?
+
+Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
+
+Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
+
+1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
+2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+## How Do You Delete Your Comments from Your Phone?
+
+Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
+
+1. Go to the YouTube app on your phone. You will need to log in to your account to delete any comment you posted.
+2. When the login process is complete, you need to find the video where your target comment is.
+
+If it is someone else’s video, you can search for it by clicking on the magnifying glass at the top of the homepage or check your YouTube History to find it. To access your History, you need to click on an option called Library at the bottom of the homepage. From there, you can find the History option.
+
+If it is your video where the comment to be removed is, you can go to My Channel from the profile icon on the right-hand side of the YouTube app’s homepage.
+
+1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
+2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## Delete Other People’s Comments on Others’ Channels
+
+Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
+
+You can do this both from your desktop or your phone with some easy steps.
+
+**How to report people’s comments** **on YouTube?**
+
+Go to <https://www.youtube.com/> from your desktop or open the YouTube app from your phone. Log in to your account if it is not open.
+
+1. The next step is to find the video where the comment is. You can search for it by tapping on the search button at the top of the YouTube homepage. Or you can locate it from your YouTube History.
+
+To find your History from your desktop, you need to click on the three horizontal lines at the top left corner of the homepage. You will find the History option from the list. To access it from your phone, click on the Library option at the bottom of your homepage, and it will open a list where you will find the History option.
+
+1. Open the video, and scroll down to locate the comment you want to report.
+2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
+3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
+
+![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+
+## How to Delete All Your Posted YouTube Comments?
+
+You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
+
+1. You need to go to YouTube from your desktop and sign in to your account.
+2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
+
+![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+
+![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
+
+![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+
+1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+### Final Thoughts
+
+YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+YouTube is a video platform where people share informative and entertaining content. It works in the form of channels belonging to individuals or companies. People can subscribe to these channels to show support, and YouTubers create a strong sense of community with these subscribers.
+
+But some people comment inappropriate comments that can cause the community harm and spread hatred. Many YouTubers may want to delete such remarks. There are also times when you accidentally comment on a channel’s comment section and may wish to delete it.
+
+So how do you delete all YouTube comments? In this how-to blog, we will show you.
+
+* [Part 1: Deleting YouTube Comments from Desktop](#part1)
+* [Part 2: Deleting All YouTube Comments from Mobile](#part2)
+* [Part 3: How to Delete Your Comments from YouTube?](#part3)
+* [part 4: Delete Other People's Comments on Others' Channels](#part4)
+* [Part 5: Delete All Your Posted YouTube Comments](#part5)
+
+## How to Delete YouTube Comments from Desktop?
+
+In this section, we will tell you how you can do it from your desktop.
+
+1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
+3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
+4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
+
+You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## How to Delete All YouTube Comments from Mobile?
+
+The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
+
+1. Log in to your account from the YouTube app on your phone.
+2. On the right-hand side of your YouTube homepage, there will be a profile icon. Tap on that, and from the list, select My Channel. This will direct you to all videos on your channel.
+3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
+4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
+5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -854,6 +850,10 @@ To find your History from your desktop, you need to click on the three horizonta
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
 
@@ -901,24 +901,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-grateful-choices-comprehensive-otu-guide-for-2024/"><u>[New] Grateful Choices Comprehensive OTU Guide for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-handset-hack-for-youtube-filmmakers/"><u>[New] The Ultimate Handset Hack for YouTube Filmmakers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-breaking-through-boundaries-optimizing-videos-for-maximum-traction-for-2024/"><u>[Updated] Breaking Through Boundaries Optimizing Videos for Maximum Traction for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-deciphering-digital-marketing-the-power-of-youtube-keywords-for-2024/"><u>[Updated] Deciphering Digital Marketing The Power of YouTube Keywords for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-10-tricks-for-turning-youtube-watchlists-around/"><u>[Updated] In 2024, 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-transformation-through-strategic-use-of-youtube-outros/"><u>[Updated] In 2024, Channel Transformation Through Strategic Use of YouTube Outros</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-guide-private-yt-content-with-google-login/"><u>[Updated] Step-by-Step Guide Private YT Content with Google Login</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-potential-with-top-choices-in-android-editing-software/"><u>[Updated] Unlock Potential with Top Choices in Android Editing Software</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtubes-erased-memories-how-to-revisit-them-online/"><u>2024 Approved Youtube's Erased Memories How to Revisit Them Online</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/boosting-performance-how-to-successfully-upgrade-your-ram-advice-from-yl-computers-experts/"><u>Boosting Performance: How To Successfully Upgrade Your RAM - Advice From YL Computers Experts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-the-best-6-bot-applications-for-engaging-and-reviewing-your-pdf-files/"><u>Discover the Best 6 Bot Applications for Engaging and Reviewing Your PDF Files</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-vivo-y27s-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Vivo Y27s? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-atandt-iphone-6s-plus-with-3-methods-by-drfone-ios/"><u>How to Unlock AT&T iPhone 6s Plus with 3 Methods</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-iphone-6s-plus-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on iPhone 6s Plus online without jailbreak</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-winning-window-sniping-tools-ranked-best-five/"><u>In 2024, Winning Window Sniping Tools Ranked Best Five</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-the-best-of-the-best-top-vlog-video-editing-software-for-hot-platforms-for-2024/"><u>New The Best of the Best Top Vlog Video Editing Software for Hot Platforms for 2024</u></a></li>
-<li><a href="https://techidaily.com/repair-damaged-unplayable-video-files-of-14-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair damaged, unplayable video files of 14 on Mac</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/the-cover-crop-acrostic-should-not-use-any-numbers-or-symbols-it-must-be-purely-textual-using-full-sentences-that-convey-a-meaningful-message-related-to-the325/"><u>The Cover Crop Acrostic Should Not Use Any Numbers or Symbols; It Must Be Purely Textual Using Full Sentences that Convey a Meaningful Message Related to the Document.</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/vimeo-vs-youtube-which-is-better-in-2024/"><u>Vimeo vs YouTube Which Is Better, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-the-7-most-popular-video-apps-for-iphones-and-android-live-streaming/"><u>[New] In 2024, Discover The 7 Most Popular Video Apps for iPhones & Android Live Streaming</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-soundscapes-of-success-building-youtube-playlists-with-precision/"><u>[New] The Soundscapes of Success Building YouTube Playlists with Precision</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-female-youtubers/"><u>[New] Top 10 Female YouTubers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-instagram-filter-techniques/"><u>[Updated] 2024 Approved Mastering Instagram Filter Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-find-and-change-your-youtube-channel-url-super-easy/"><u>[Updated] How to Find and Change Your YouTube Channel URL – Super Easy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficient-youtube-ad-blocking-on-chromefirefoxandroid-devices/"><u>[Updated] In 2024, Efficient YouTube Ad Blocking on Chrome/Firefox/Android Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-make-money-on-youtube-without-ads/"><u>[Updated] In 2024, How to Make Money on YouTube Without Ads</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/50-microsoft-office-and-windows-11-professional-suite-deal-unbeatable-annual-offer-available-now-on-zdnet/"><u>$50 Microsoft Office & Windows 11 Professional Suite Deal – Unbeatable Annual Offer Available Now on ZDNet!</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/download-youtube-audio-safely-and-legally-in-3-ways-for-2024/"><u>Download Youtube Audio Safely & Legally in 3 Ways for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-oppo-f23-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Oppo F23 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-guide-to-using-snapchats-influencer-showcase/"><u>In 2024, A Guide to Using Snapchat's Influencer Showcase</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-freelancers-corner-yearly-best-free-text-files/"><u>In 2024, Freelancers’ Corner Yearly Best FREE Text Files</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/proven-performers-the-best-of-8-mirrorless-cameras-for-video-creators-for-2024/"><u>Proven Performers The Best of 8 Mirrorless Cameras for Video Creators for 2024</u></a></li>
 </ul></div>
 

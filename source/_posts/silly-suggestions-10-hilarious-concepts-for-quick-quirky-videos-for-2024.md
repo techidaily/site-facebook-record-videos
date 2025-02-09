@@ -1,7 +1,7 @@
 ---
 title: "\"Silly Suggestions  10 Hilarious Concepts for Quick, Quirky Videos for 2024\""
-date: 2024-07-31T02:03:29.636Z
-updated: 2024-08-01T02:03:29.636Z
+date: 2025-02-06T21:50:26.965Z
+updated: 2025-02-09T21:03:13.180Z
 tags:
   - ai video
   - ai youtube
@@ -31,8 +31,9 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -43,10 +44,11 @@ Then the right platform with a plethora of pictures is covered hereunder the fol
 
 Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you have such beautiful dreams that you would like to share with your loved ones. Then YouTube Shorts ideas are the right platform full of views, likes, and lovers from around the world. Just give a thrust to it.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
@@ -54,10 +56,11 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
 
@@ -65,10 +68,6 @@ So, pen down some compelling stories that do not need long writing work. But, li
 
 Pictures are a unique way to express feelings, especially when those funny pictures come with background voices, music, etc., it will create a different audio/visual effect.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-4.jpg)
 
 Using different online software, you can enhance the pictures or modify the background voice. Such a combination under YouTube Shorts Video ideas brings a different aura to your channel.
@@ -79,6 +78,10 @@ Life is indeed full of surprises, events, and glory. Then, why not tailor some o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
 Living every moment creates a wonder. Let others also make a part of this journey and inspire them to build your YouTube shorts ideas.
@@ -87,10 +90,6 @@ Living every moment creates a wonder. Let others also make a part of this journe
 
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
@@ -115,9 +114,6 @@ Just give it a try and dance with the music you create with all the worldwide li
 
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
@@ -128,15 +124,16 @@ Pets are the favorite of those who own them. They are excellent; they play, danc
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
 
 #### Idea 10: Talent showcase
 
 Everybody holds some unique talent. You just need to identify it. If you have some talent, then showcasing talent ideas for YouTube Shorts will apt you. The whole world is waiting to see something unique that only you can do. So, shred your shyness and let the world see how talented you are.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
 
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
@@ -195,12 +192,31 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-ace-your-marketing-game-top-5-youtube-techniques-unveiled/"><u>[New] 2024 Approved Ace Your Marketing Game Top 5 YouTube Techniques Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-digital-dollars-an-effective-way-to-understand-youtube-revenue-dynamics-for-2024/"><u>[New] Decoding Digital Dollars An Effective Way to Understand YouTube Revenue Dynamics for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-efficient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed-for-2024/"><u>[New] Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-guide-to-efficiently-convert-vimeo-videos-to-audible-files/"><u>[New] Guide to Efficiently Convert Vimeo Videos to Audible Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-your-short-form-content-top-10-edits-for-iosandroid/"><u>[New] In 2024, Elevate Your Short-Form Content Top 10 Edits for iOS/Android</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-preeminent-6-social-media-sites-favored-by-professionals/"><u>[New] Preeminent 6 Social Media Sites Favored by Professionals</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-art-of-disguising-reality-learn-free-green-screen-techniques-via-vfx-leaders-on-4-video-platforms/"><u>[New] The Art of Disguising Reality Learn Free Green Screen Techniques via VFX Leaders on 4 Video Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-6-figure-videos-top-hashtag-trends/"><u>[New] Unlock 6-Figure Videos Top Hashtag Trends</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-deck-of-cards-youtubes-milestone-challenges/"><u>[Updated] 2024 Approved Digital Deck of Cards YouTube's Milestone Challenges</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-who-wins-the-battle-of-cinematic-quality-and-durability/"><u>[Updated] In 2024, Who Wins the Battle of Cinematic Quality and Durability?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-innovators-roundtable-for-youtube/"><u>[Updated] Innovators’ Roundtable for YouTube</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-huawei-p60-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-does-chatgpt-adapt-insight-into-custom-instructions/"><u>How Does ChatGPT Adapt? Insight Into Custom Instructions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-smart-8-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Smart 8</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-honor-100-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Honor 100 to iPad | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/nokia-71-smartphone-analysis-stunning-display-and-photography-at-a-budget-friendly-cost/"><u>Nokia 7.1 Smartphone Analysis: Stunning Display & Photography at a Budget-Friendly Cost</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Embracing Constructive Feedback, Ignoring the Rest\""
-date: 2024-07-31T02:08:48.328Z
-updated: 2024-08-01T02:08:48.328Z
+date: 2025-02-06T19:50:38.155Z
+updated: 2025-02-09T19:21:02.275Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f8d5308a72df2042f1308b78dc1efb598f7f3491c
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/f8d5308a72df2042f1308b78dc1efb598f7f3491c
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/f8d5308a72df2042f1308b78dc1efb598f7f3491c
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,12 +68,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-from-zero-to-hero-in-youtubing-equipment-essentials-for-2024/"><u>[New] From Zero to Hero in YouTubing Equipment Essentials for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-add-a-professional-touch-youtube-video-image-crafting/"><u>[New] In 2024, Add a Professional Touch YouTube Video Image Crafting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-infographic-premier-fifa-videos-popularity-spotlight/"><u>[New] Infographic Premier FIFA Videos Popularity Spotlight</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-keep-your-digital-life-streamlined-blocking-youtube-channels-smartly/"><u>[New] Keep Your Digital Life Streamlined Blocking Youtube Channels Smartly</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-framework-for-captivating-streams-on-youtube/"><u>[New] The Ultimate Framework for Captivating Streams on YouTube</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tunes-to-timelapse-crafting-mobile-music-videos/"><u>[New] Tunes to Timelapse Crafting Mobile Music Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-channel-creation-chronicles-the-ultimate-beauty-blogging-start-up/"><u>[Updated] 2024 Approved Channel Creation Chronicles The Ultimate Beauty Blogging Start-Up</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beginning-creators-guide-top-8-free-youtube-tutorials/"><u>[Updated] In 2024, Beginning Creator's Guide Top 8 Free YouTube Tutorials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-binge-worthy-content-crafting-episodes-that-viewers-love/"><u>[Updated] In 2024, Binge-Worthy Content Crafting Episodes That Viewers Love</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-leverage-your-influence-top-10-igtv-video-tactics-for-brands/"><u>[Updated] In 2024, Leverage Your Influence Top 10 IGTV Video Tactics for Brands</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-strategies-for-finding-and-using-a-lost-iphone-x/"><u>2024 Approved Top Strategies for Finding & Using a Lost iPhone X</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cambia-video-su-ipad-con-il-piu-efficiente-convertitore-di-filmati-della-movavi/"><u>Cambia Video Su iPad Con Il Più Efficiente Convertitore Di Filmati Della Movavi</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cross-platform-connectivity-sharing-youtube-and-twitter-videos-on-snapchat-for-2024/"><u>Cross Platform Connectivity Sharing YouTube & Twitter Videos on Snapchat for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/immediate-visual-effects-with-instagrams-chroma-keying-feature-for-2024/"><u>Immediate Visual Effects with Instagram’s Chroma Keying Feature for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/photoshop-for-beginners-top-editing-hacks-revealed-for-2024/"><u>Photoshop For Beginners Top Editing Hacks Revealed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlined-video-grabber-your-free-downloader-companion-for-2024/"><u>Streamlined Video Grabber Your Free Downloader Companion for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210224035-9781684037162-the-science-of-channeling/"><u>The Science of Channeling | Free Book</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/transform-your-videos-without-youtube-with-these-top-5-alternatives-for-2024/"><u>Transform Your Videos Without Youtube with These Top 5 Alternatives for 2024</u></a></li>
+</ul></div>
 

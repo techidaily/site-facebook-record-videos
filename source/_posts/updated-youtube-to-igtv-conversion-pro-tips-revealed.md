@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube-to-IGTV Conversion  Pro Tips Revealed\""
-date: 2024-07-31T02:03:53.324Z
-updated: 2024-08-01T02:03:53.324Z
+date: 2025-02-02T18:30:15.009Z
+updated: 2025-02-09T21:35:56.058Z
 tags:
   - ai video
   - ai youtube
@@ -34,59 +34,52 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
 
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
 
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
 Go to the **Effects tab** and click on the **Background Blur** submenu if you want to blur the empty areas of the frame. Add the **Basic Blur effect** to the timeline and drag one of its sides to position it over the entire video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Filmora  convert YouTube to IGTV](https://images.wondershare.com/filmora/article-images/filmora-convert-youtube-video-igtv.jpg)
 
 In case you are working with a video that already has a 16:9 aspect ratio, you can create a project that has the same aspect ratio, and then just use **the Rotate slider in the Transform menu**, to change turn a landscape video into a portrait video. The scaling tool is helpful to enlarge the frames in a vertical aspect ratio.
 
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
 
 Latest News: In Filmora V10.5 and later versions, there is a new feature called Auto-Reframe. This feature allows users to convert one video for different social media platforms based on the aspect ratio changing, and its features of detecting the moving object. Click the Analyze button, and Filmora will convert this 16:9 YouTube video to vertical 9:16 IGTV video automatically. And I can adjust frames to follow Yasmine’s movement to fine-tune the result.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
 
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
 YouTubers who already have lots of videos on their channel can use online video editing platforms, like [Kapwing](https://www.kapwing.com/) to edit the content they want to post on IGTV. This online video editor offers a number of video editing tools that let you polish your videos before posting them on social media.
@@ -94,6 +87,10 @@ YouTubers who already have lots of videos on their channel can use online video 
 Click on the Resize tool and simply **copy and paste the URL** of a YouTube into the appropriate bar and the platform will **automatically import a video and display it on the screen** once the content is finally fetched.
 
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
@@ -123,12 +120,29 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-storytelling-with-jump-cuts-technique/"><u>[New] 2024 Approved Enhancing Storytelling with Jump Cuts Technique</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhancing-your-videos-final-impression/"><u>[New] 2024 Approved Enhancing Your Video's Final Impression</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-pathway-to-profitability-navigating-youtube-adsense/"><u>[New] The Pathway to Profitability Navigating YouTube AdSense</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-bringing-dialogue-to-life-writing-for-youtube-videos-for-2024/"><u>[Updated] Bringing Dialogue to Life Writing for YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficiently-balancing-professional-commitments-and-creativity-for-2024/"><u>[Updated] Efficiently Balancing Professional Commitments & Creativity for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-fanfare-gaming-patch-for-2024/"><u>[Updated] Fanfare Gaming Patch for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-guide-to-getting-1000-subscribers-for-your-youtube-channel/"><u>[Updated] Guide to Getting 1000 Subscribers for Your YouTube Channel</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-subscriber-boost4-simplest-tricks-to-grow-your-channel/"><u>[Updated] YouTube Subscriber Boost–4 Simplest Tricks to Grow Your Channel</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/15-pioneering-online-education-websites-beyond-udemy/"><u>15 Pioneering Online Education Websites Beyond Udemy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-sharpen-your-scopes-a-comprehensive-guide-to-close-up-roblox/"><u>2024 Approved Sharpen Your Scopes A Comprehensive Guide to Close-Up Roblox</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fix-safari-error-messages-and-glitches-on-your-apple-phone/"><u>Fix Safari Error Messages and Glitches on Your Apple Phone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-nokia-g42-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Nokia G42 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-uploading-subtitles-a-compreenas-guide-for-all-social-media-users/"><u>In 2024, Uploading Subtitles A Compreenas Guide for All Social Media Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ly-path-to-youtubes-hidden-treasure-troves-for-2024/"><u>Orderly Path to YouTube's Hidden Treasure Troves for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-ultraspeed-audio-segmentation-breaking-down-mp3s-with-unprecedented-speed-for-2024/"><u>Updated UltraSpeed Audio Segmentation Breaking Down MP3s with Unprecedented Speed for 2024</u></a></li>
+</ul></div>
 

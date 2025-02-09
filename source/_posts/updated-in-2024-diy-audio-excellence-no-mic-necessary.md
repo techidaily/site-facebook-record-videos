@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, DIY Audio Excellence  No Mic Necessary\""
-date: 2024-07-31T02:06:52.347Z
-updated: 2024-08-01T02:06:52.347Z
+date: 2025-02-04T16:07:54.643Z
+updated: 2025-02-09T17:35:44.278Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/e694a122580d35baa4ea409639e0ea6a835876b9d
 
 # How to Record Good Audio Without a Microphone?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -51,15 +47,15 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -70,9 +66,9 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -91,6 +87,10 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -100,8 +100,9 @@ Even if you’re not recording video from your smartphone, it might be a good id
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -110,18 +111,16 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -130,12 +129,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-add-videos-in-instagram-story/"><u>[New] How to Add Videos in Instagram Story</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-iconic-80s-aesthetic-techniques-for-cutting-videos-for-2024/"><u>[New] Iconic 80S Aesthetic Techniques for Cutting Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-amplifying-your-youtube-presence-through-consistent-content-release/"><u>[New] In 2024, Amplifying Your YouTube Presence Through Consistent Content Release</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-how-to-download-part-of-a-youtube-videos/"><u>[New] In 2024, How to Download Part of a YouTube Videos?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-10-audio-disruptors-androidios-edition/"><u>[New] Top 10 Audio Disruptors Android/iOS Edition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-accelerated-steps-to-unsettle-youtube-playlists/"><u>[Updated] 2024 Approved Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-avoid-the-quake-optimal-tripod-placement-for-stellar-vlogs-for-2024/"><u>[Updated] Avoid the Quake Optimal Tripod Placement for Stellar Vlogs for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-master-the-unboxing-game-strategies-for-more-viral-videos-and-likes/"><u>[Updated] Master the Unboxing Game Strategies for More Viral Videos and Likes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-visual-ventures-free-themes-to-elevate-your-channel/"><u>[Updated] Visual Ventures FREE Themes to Elevate Your Channel</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/addressing-the-issue-of-undetected-headphones-when-using-audio-devices-on-windows-10/"><u>Addressing the Issue of Undetected Headphones When Using Audio Devices on Windows 10</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-update-geforce-rtx-3070-drivers-for-windows-11-and-10-free/"><u>Download & Update GeForce RTX 3070 Drivers for Windows 11 and 10 – Free</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-nubia-z50-ultra-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Nubia Z50 Ultra Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elevating-emotion-the-art-of-tiktok-effects/"><u>In 2024, Elevating Emotion The Art of TikTok Effects</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-nvidia-geforce-gtx-1650-super-drivers-update-for-windows-11-users/"><u>Latest NVIDIA GeForce GTX 1650 Super Drivers Update for Windows 11 Users</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-5g-revolution-top-new-trends-in-5g-and-edge-technology-unveiled-by-industry-experts-on-zdnet/"><u>The 5G Revolution: Top New Trends in 5G & Edge Technology Unveiled by Industry Experts on ZDNet</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-asmr-potential-professional-filming-practices-revealed-for-2024/"><u>Unlocking ASMR Potential Professional Filming Practices Revealed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unveiling-the-premier-online-convertors-from-youtube-for-2024/"><u>Unveiling the Premier Online Convertors From YouTube for 2024</u></a></li>
+</ul></div>
 

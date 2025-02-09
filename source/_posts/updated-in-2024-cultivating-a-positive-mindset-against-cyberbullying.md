@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-07-31T02:01:43.766Z
-updated: 2024-08-01T02:01:43.766Z
+date: 2025-02-07T20:01:12.885Z
+updated: 2025-02-09T21:19:01.739Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/c01f488742f525379e15c90538d56863d27988360
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,8 +27,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -59,10 +56,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -70,12 +68,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-captivating-clips-keywords-that-ignite-viral-shorts-on-youtube-for-2024/"><u>[New] Captivating Clips Keywords That Ignite Viral Shorts on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-decoding-youtubes-user-comment-selection-criteria-for-2024/"><u>[New] Decoding YouTube's User-Comment Selection Criteria for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-discover-8-essential-sites-for-pristine-green-screen-images-for-2024/"><u>[New] Discover 8 Essential Sites for Pristine Green Screen Images for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-6-proven-techniques-to-elevate-your-youtube-engagement-and-reduce-churn/"><u>[New] In 2024, 6 Proven Techniques to Elevate Your YouTube Engagement and Reduce Churn</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-disciplined-device-use-effective-ways-to-remove-youtube-channels/"><u>[New] In 2024, Disciplined Device Use Effective Ways to Remove Youtube Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-audio-quality-in-social-media-recordings/"><u>[Updated] 2024 Approved Boosting Audio Quality in Social Media Recordings</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-reigning-on-social-media-top-tips-to-elevate-your-business/"><u>[Updated] 2024 Approved Reigning on Social Media Top Tips to Elevate Your Business</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-edu-top-ten-inspiring-educational-content-yt-for-2024/"><u>[Updated] Edu-Top Ten Inspiring Educational Content YT for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-flavorful-faves-top-online-chefs-and-culinary-stars/"><u>[Updated] Flavorful Faves Top Online Chefs & Culinary Stars</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-ultimate-slomo-recording-tool-assessment-guide/"><u>[Updated] The Ultimate SloMo Recording Tool Assessment Guide</u></a></li>
+<li><a href="https://win-web.techidaily.com/create-a-bootable-duplicate-of-windows-11-on-a-new-hard-drive/"><u>Create a Bootable Duplicate of Windows 11 on a New Hard Drive</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-sony-xperia-1-v-device-sim-by-drfone-android/"><u>Easily Unlock Your Sony Xperia 1 V Device SIM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-earning-game-with-youtubes-member-status/"><u>Elevate Your Earning Game with YouTube's Member Status</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-strategies-for-retrieving-emails-that-have-vanished-from-gmail-easy-steps-inside/"><u>Essential Strategies for Retrieving Emails That Have Vanished From Gmail - Easy Steps Inside</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/pioneering-techniques-in-screen-snatching/"><u>Pioneering Techniques in Screen Snatching</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo Y27 5G | Dr.fone</u></a></li>
+</ul></div>
 

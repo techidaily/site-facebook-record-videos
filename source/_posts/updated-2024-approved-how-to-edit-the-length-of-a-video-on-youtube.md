@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Edit the Length of a Video on YouTube\""
-date: 2025-01-23T16:53:16.650Z
-updated: 2025-01-28T18:07:36.987Z
+date: 2025-02-07T23:06:05.715Z
+updated: 2025-02-09T19:10:57.368Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ For instance, the application is offering non-linear ripple video editing. This 
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Edit YouTube Video Length Using the built-in Video Editor
@@ -51,7 +51,7 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
@@ -63,7 +63,7 @@ Once you've done all of the above, you would have to drag your video in order to
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3 Edit the Length
@@ -73,7 +73,7 @@ This is the part where you actually get to edit the length of your video. In ord
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
@@ -85,7 +85,7 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,17 +103,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dynamic-imagery-illustrator-motion-blur-techniques/"><u>[New] 2024 Approved Dynamic Imagery Illustrator Motion Blur Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>[New] In 2024, Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-bite-sized-beatstories-role-and-tune-fusion/"><u>[New] In 2024, Bite-Sized Beatstories Role & Tune Fusion</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-art-of-quantitative-vs-qualitative-analysis-a-guide-for-professionals/"><u>[New] Mastering the Art of Quantitative vs Qualitative Analysis A Guide for Professionals</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-unlock-the-potential-of-vr-video-on-your-iphone-for-2024/"><u>[New] Unlock the Potential of VR Video on Your iPhone for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-women-in-warfare-youtubes-elite-ten/"><u>[New] Women in Warfare YouTube’s Elite Ten</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement/"><u>[Updated] In 2024, A Visual Guide to Subtitling Techniques for Effective Dialogue Placement</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-rising-star-how-jake-paul-conquered-youtube/"><u>[Updated] Rising Star How Jake Paul Conquered YouTube</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-explore-the-most-economical-video-conference-software-best-10-recommendations-for-business-and-education/"><u>2024 Approved Explore the Most Economical Video Conference Software Best 10 Recommendations for Business & Education</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/no-cost-video-watermark-solutions-our-top-5-recommendations-for-2024/"><u>No-Cost Video Watermark Solutions Our Top 5 Recommendations for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/poetic-warriors-and-gpt-ewes-bards-ballad-battle-with-woolly-allies/"><u>Poetic Warriors & GPT Ewes - Bard's Ballad Battle with Woolly Allies</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-tutorial-on-driver-updates-for-windows-11-using-revo-uninstaller/"><u>Step-by-Step Tutorial on Driver Updates for Windows 11 Using Revo Uninstaller</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-easy-guide-unearthing-your-youtube-compliments-and-critiques-for-2024/"><u>[New] Easy Guide Unearthing Your YouTube Compliments & Critiques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-adding-impact-strategies-for-youtubes-last-impressions/"><u>[New] In 2024, Adding Impact Strategies for Youtubes' Last Impressions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earning-big-from-youtube-shorts-key-requirements-and-profit-prospects/"><u>[New] In 2024, Earning Big From YouTube Shorts Key Requirements and Profit Prospects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mastering-sound-loads-in-inshot-editing-software/"><u>[New] Mastering Sound Loads in InShot Editing Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-webs-deception-caution-against-buying-non-real-subscribers/"><u>[New] The Web's Deception Caution Against Buying Non-Real Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transforming-viewership-engaging-end-screens-tutorials/"><u>[New] Transforming Viewership Engaging End Screens Tutorials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unique-identification-making-your-youtube-url-stand-out/"><u>[New] Unique Identification Making Your YouTube URL Stand Out</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-simplify-audio-extraction-find-the-most-affordable-solutions/"><u>[Updated] Simplify Audio Extraction Find the Most Affordable Solutions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sprint-towards-subscriber-goal-reach-1000/"><u>[Updated] Sprint Towards Subscriber Goal Reach 1,000</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elevate-your-auditory-experience-iphone-and-the-world-of-podcasting/"><u>Elevate Your Auditory Experience - iPhone and the World of Podcasting</u></a></li>
+<li><a href="https://win-best.techidaily.com/harapan-terakhir-untuk-file-excel-yang-gagal-ditersembuhkan-teknikenya/"><u>Harapan Terakhir Untuk File Excel Yang Gagal Ditersembuhkan: Teknikenya</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-realme-narzo-60x-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Realme Narzo 60x 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-meizu-21-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Meizu 21 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-cutting-edge-methods-for-capturing-audio-in-audacity/"><u>In 2024, Cutting-Edge Methods for Capturing Audio in Audacity</u></a></li>
+<li><a href="https://os-tips.techidaily.com/mastering-mobile-data-sharing-with-dearmobs-rapid-relocation-tools-on-iphone-step-by-step-instructions/"><u>Mastering Mobile Data Sharing with DearMob's Rapid Relocation Tools on iPhone: Step-by-Step Instructions</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-rapid-guide-to-exporting-whatsapp-audio-as-high-quality-mp3/"><u>New Rapid Guide to Exporting WhatsApp Audio as High-Quality MP3</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/trouble-uploading-videos-to-twitter-uncover-effective-fixes-now/"><u>Trouble Uploading Videos to Twitter? Uncover Effective Fixes Now!</u></a></li>
 </ul></div>
 

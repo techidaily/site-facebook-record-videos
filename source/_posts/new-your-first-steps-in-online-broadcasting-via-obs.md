@@ -1,7 +1,7 @@
 ---
 title: "[New] Your First Steps in Online Broadcasting via OBS"
-date: 2024-07-31T02:05:22.418Z
-updated: 2024-08-01T02:05:22.418Z
+date: 2025-02-02T17:24:47.450Z
+updated: 2025-02-09T21:44:35.147Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://www.lifewire.com/thmb/vRf_tq78SoHoiOdF0Zy0gmv1R2k=/400x300/fi
 
 # Live stream to youtube with OBS step by step guide for beginners
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,16 +39,10 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 **Step 2:** Choose the Video Manager option from top most toolbar.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![video manager ](https://images.wondershare.com/filmora/article-images/video-manager.jpg)
 
 **Step 3:** From the drop down menu, simply select Live Streaming option to begin with.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![live streaming ](https://images.wondershare.com/filmora/article-images/live-streaming.jpg)
 
 **Step 4:** Now hot the steam now option on your screen.
@@ -66,56 +57,70 @@ Follow these steps to live stream your impressive videos to YouTube using Stream
 
 ![  category](https://images.wondershare.com/filmora/article-images/category.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 7:** While using stream option, never forget to click on ‘make archive unlisted when complete’ option so that you can save as well as watch your content on YouTube at later stage.
 
 ![make archive ](https://images.wondershare.com/filmora/article-images/make-archive.jpg)
 
 **Step 8:** You can monetize your ads as per need.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Monetizae you ](https://images.wondershare.com/filmora/article-images/monetizae-you.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 9:** It also provides options to add cards.
 
 ![add your cards ](https://images.wondershare.com/filmora/article-images/add-your-cards.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** Now move to encoder setup and then simply copy and paste these details to your streaming software.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ encoder setup](https://images.wondershare.com/filmora/article-images/encoder-setup.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now you can set your live chat option as per your requirement.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![ chat accordingly](https://images.wondershare.com/filmora/article-images/chat-accordingly.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 12:** The analysis window will help you to know about how many viewers are connected to your video as well as the message updates will be reflected.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![watching and messages ](https://images.wondershare.com/filmora/article-images/watching-and-messages.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 13:** Stream health can be monitored directly.
 
 ![stream health ](https://images.wondershare.com/filmora/article-images/stream-health.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 14:** One can also use the social media button for live shares.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ share via](https://images.wondershare.com/filmora/article-images/share-via.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2.Set up Your Live Streaming Encoder
 
 As soon as you have completed the above set up then next task is to adjust settings of your streaming encoder. It is possible to make easy selection out of wide range of live streaming encoders. The details below are provided with reference to OBS too that is open source type free to access software.
@@ -128,9 +133,6 @@ As soon as you have completed the above set up then next task is to adjust setti
 
 **Step 3:** It is time to copy the stream key from YouTube and then paste it directly in the specified field of OBS.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ![youtube to OBS ](https://images.wondershare.com/filmora/article-images/youtube-to-obs.jpg)
 
 **Step 4:** Users can now add their sources and scenes.
@@ -155,31 +157,22 @@ Live stream is little different from Stream Now platform as it allows users to s
 
 **Step 3:** The advance settings option works same as that of stream now features and users can adjust most of these settings as per their streaming needs.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![ advance setting](https://images.wondershare.com/filmora/article-images/advance-setting.jpg)
 
 **Step 4:** Users can turn monetization On or Off as per their preferences.
 
 ![ monetization](https://images.wondershare.com/filmora/article-images/monetization.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** As soon as you finish all above settings then simply click on the create event option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![click create event](https://images.wondershare.com/filmora/article-images/click-create-event.jpg)
 
 **Step 6:** One more window will appear on your screen and here you can make adjustment for preferred bit rate. Also put your dedicated stream key with encoder.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![ your bitrate](https://images.wondershare.com/filmora/article-images/your-bitrate.jpg)
 
 **Step 7:** When all above steps are completed then you need to hit the option for save changes so that your tool can act accordingly.
@@ -188,20 +181,18 @@ No advertising on the website.
 
 **Step 8:** Now click on events and here you will be able to find your event. Move to live control room if you want to access complete details about this event and you can easily delete it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![live control room ](https://images.wondershare.com/filmora/article-images/live-control-room.jpg)
 
 **Step 9:** Users can set privacy terms or simple delete the event that is currently in action.
 
 ![set the privacy ](https://images.wondershare.com/filmora/article-images/set-the-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video tutorial
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -210,12 +201,26 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-vertical-vistas-to-virtual-viewers-fb-live-streaming-w-dji/"><u>[New] 2024 Approved From Vertical Vistas to Virtual Viewers FB Live Streaming W/ DJI</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-decoding-youtubes-economics-how-to-quantify-watches-and-earnings/"><u>[New] In 2024, Decoding YouTube's Economics How to Quantify Watches and Earnings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-editing-savvy-streamlining-your-youtube-video-lengths/"><u>[New] In 2024, Editing Savvy Streamlining Your YouTube Video Lengths</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-path-to-youtube-stardom-six-simple-steps-for-greater-visibility/"><u>[New] Your Path to YouTube Stardom Six Simple Steps for Greater Visibility</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[Updated] 2024 Approved Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-direct-obs-live-to-instagram-feed/"><u>[Updated] In 2024, Direct OBS Live to Instagram Feed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-top-10-economical-pc-screen-recorders-compared/"><u>[Updated] In 2024, Top 10 Economical PC Screen Recorders Compared</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-revolutionizing-your-digital-presence-through-strategic-social-media-mastery/"><u>2024 Approved Revolutionizing Your Digital Presence Through Strategic Social Media Mastery</u></a></li>
+<li><a href="https://fox-http.techidaily.com/explore-top-picks-for-high-resolution-4k-panels/"><u>Explore Top Picks for High-Resolution 4K Panels</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-can-i-successfully-run-several-youtube-accounts-at-once/"><u>How Can I Successfully Run Several YouTube Accounts at Once?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-vivo-s17t-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Vivo S17t for Free? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/onscreen-recordage-navigator/"><u>Onscreen Recordage Navigator</u></a></li>
+</ul></div>
 

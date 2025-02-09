@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Charisma in Characters  Two Ways to Enliven Text\""
-date: 2024-07-31T02:04:12.938Z
-updated: 2024-08-01T02:04:12.938Z
+date: 2025-02-07T18:15:43.373Z
+updated: 2025-02-09T20:53:42.021Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
 
 # How to Create Animated Bouncing Text
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -28,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/211db9f13ec1073ddec092ae09ea49a02164e4f7a
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -53,16 +54,14 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
@@ -71,16 +70,21 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -92,9 +96,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -121,10 +122,11 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
@@ -146,12 +148,33 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-effective-ways-to-manipulate-track-tempo-in-spotify/"><u>[New] Effective Ways to Manipulate Track Tempo in Spotify</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-latest-iteration-a-closer-look-at-sonys-s6500-bdp/"><u>[New] In 2024, Latest Iteration A Closer Look at Sony's S6500 BDP</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-tactics-for-handling-youtubes-copyright-strikes-effectively/"><u>[New] Tactics for Handling YouTube's Copyright Strikes Effectively</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-top-7-grand-strategy-masterpieces-for-epic-battles-for-2024/"><u>[New] Top 7 Grand Strategy Masterpieces for Epic Battles for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-1-5-best-editors-apart-from-youtube-platform-for-2024/"><u>[Updated] 1-#5 Best Editors Apart From YouTube Platform for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-choosing-your-best-gif-creator-a-comparative-analysis/"><u>[Updated] 2024 Approved Choosing Your Best GIF Creator A Comparative Analysis</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dominate-discussion-how-to-trend-on-social-media-platforms/"><u>[Updated] 2024 Approved Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficiently-removing-youtube-channels-a-device-centric-approach-for-2024/"><u>[Updated] Efficiently Removing Youtube Channels A Device-Centric Approach for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gamers-quest-1000plus-game-adventures-unfolded/"><u>[Updated] Gamer's Quest 1,000+ Game Adventures Unfolded</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-a-beginners-guide-to-sony-vegas-and-youtube-cutting/"><u>[Updated] In 2024, A Beginner's Guide to Sony Vegas and YouTube Cutting</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-audiovisual-rhythm-optimal-dj-content-for-gatherings/"><u>[Updated] In 2024, Audiovisual Rhythm Optimal DJ Content for Gatherings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-craft-the-perfect-stream-a-comprehensive-guide-to-youtubes-full-rotation-videos/"><u>[Updated] In 2024, Craft the Perfect Stream A Comprehensive Guide to YouTube’s Full-Rotation Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-leveraging-youtube-video-endings/"><u>[Updated] The Ultimate Guide to Leveraging YouTube Video Endings</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-vive-review-step-into-the-next-dimension-for-2024/"><u>[Updated] Vive Review Step Into the Next Dimension for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-complete-playbook-to-propel-your-youtube-gaming-vids-with-hashes/"><u>2024 Approved The Complete Playbook to Propel Your YouTube Gaming Vids with Hashes</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-nokia-c02-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Nokia C02? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/setting-up-voice-assistant-chatgpt-for-android-a-step-by-step-guide/"><u>Setting Up Voice Assistant ChatGPT for Android: A Step-by-Step Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-7-proven-techniques-fur-die-reduzierung-oder-umwandlung-von-4k-videos-auf-1080p-schritt-fur-schritt-anleitung/"><u>Top 7 Proven Techniques Für Die Reduzierung Oder Umwandlung Von 4K Videos Auf 1080P - Schritt-Für-Schritt-Anleitung!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/what-you-need-to-understand-about-samsungs-newest-mobile-device-introduction/"><u>What You Need to Understand About Samsung's Newest Mobile Device Introduction</u></a></li>
+</ul></div>
 

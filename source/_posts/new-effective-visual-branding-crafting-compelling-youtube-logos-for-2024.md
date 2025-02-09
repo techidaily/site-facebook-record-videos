@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Effective Visual Branding  Crafting Compelling YouTube Logos for 2024\""
-date: 2024-07-31T01:58:52.753Z
-updated: 2024-08-01T01:58:52.753Z
+date: 2025-02-06T21:03:21.086Z
+updated: 2025-02-09T16:24:04.509Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/ce6c03f084faa6d28f397065c83acb50be7be1ae3
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,9 +39,6 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -57,10 +51,11 @@ When choosing great photos for your background, pick ones that are high quality 
 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -80,9 +75,6 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ## Part 3: What Should I Write on My Banner?
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
@@ -105,6 +97,10 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -118,8 +114,9 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -141,8 +138,9 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
@@ -151,13 +149,15 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -165,4 +165,24 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-charting-the-course-for-your-niche-in-the-youtube-world/"><u>[New] 2024 Approved Charting the Course for Your Niche in the YouTube World</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-deciphering-the-innovative-world-of-youtube-studio/"><u>[New] 2024 Approved Deciphering the Innovative World of YouTube Studio</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-elite-selection-of-fbs-best-viewing-apps/"><u>[New] 2024 Approved Elite Selection of FB's Best Viewing Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-accelerated-steps-to-unsettle-youtube-playlists/"><u>[New] In 2024, Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-advice-at-your-screen-the-finest-15-stock-channels/"><u>[New] In 2024, Expert Advice at Your Screen The Finest 15 Stock Channels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-direct-streamline-the-most-efficient-flv-to-youtube-tools-ranked-for-2024/"><u>[Updated] Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-free-film-resource-highlights-where-to-start-your-search/"><u>[Updated] Free Film Resource Highlights Where to Start Your Search</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-comparative-journey-through-the-top-10-tv-streamers/"><u>A Comparative Journey Through the Top 10 TV Streamers</u></a></li>
+<li><a href="https://solve-news.techidaily.com/bulk-conversion-of-wav-files-to-aac-format-on-windows-the-ultimate-guide/"><u>Bulk Conversion of WAV Files to AAC Format on Windows: The Ultimate Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-solve-windows-11-photos-app-crashes-effectively-for-2024/"><u>How to Solve Windows 11 Photos App Crashes Effectively for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-tecno-spark-go-2023-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Tecno Spark Go (2023) Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/navigating-the-web-abroad-elite-vpn-picks-tested-for-secure-global-connectivity-zdnet/"><u>Navigating the Web Abroad : Elite VPN Picks Tested for Secure Global Connectivity | ZDNET</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/no-itunes-needed-2-effective-methods-for-uploading-mp3-files-onto-your-ipad/"><u>No iTunes Needed: 2 Effective Methods for Uploading MP3 Files Onto Your iPad</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pioneering-resources-leading-free-video-openers-guide-for-2024/"><u>Pioneering Resources Leading Free Video Openers Guide for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-enhancing-your-gaming-experience-with-these-6-fixes-for-hogwarts-legacys-stuttering-issues-2024-edition/"><u>Resolved: Enhancing Your Gaming Experience with These 6 Fixes for Hogwarts Legacy's Stuttering Issues - 2024 Edition</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/ultimate-guide-resolving-issues-with-your-corsair-hs70-headset-microphone/"><u>Ultimate Guide: Resolving Issues with Your Corsair HS70 Headset Microphone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Epic Battle Royale Thumbnails, Done Fast\""
-date: 2024-07-31T02:00:50.500Z
-updated: 2024-08-01T02:00:50.500Z
+date: 2025-02-05T22:13:32.705Z
+updated: 2025-02-09T16:03:42.085Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/d1c93d03f28bcd5dba090eaa199ea22428e61a4a7
 
 # How to Make Fortnite Thumbnail for Free and Easy in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -36,16 +32,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
@@ -66,17 +56,10 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 07:** Filmora will ask you to purchase it, but you can now hit "Try it" to use it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step7](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step7.jpg)
 
 **Step 08:** It will remove the background of the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step8](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step8.jpg)
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
@@ -89,9 +72,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 **Step 11:** We can make this Fortnite Thumbnail look more attractive by adding elements such as stickers and icons. Filmora contains a wide range of stickers. To access them, navigate to the Elements tab. Here you can find so many categories of elements. Choose any elements according to your need and drop them in the timeline above all other layers. If you cannot find a suitable sticker, you can download one from the internet and use it by importing it into Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
 
 **Step 12:** Once you are satisfied with the final results, you can take the screenshot of the Thumbnail using the Snapshot icon located below the preview panel. It will create a screenshot in the media panel of Filmora.
@@ -100,9 +80,6 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 **Step 13:** To access the directory where this screenshot is saved, right-click on the screenshot and click on "Reveal in Explorer." It will open the folder that contains all the screenshots you take through Filmora. Your Fortnite Thumbnail is ready to be used on your Youtube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step13](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step13.jpg)
 
 #### Conclusion
@@ -117,12 +94,35 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-15-must-see-investment-channels-online-for-2024/"><u>[New] 15 Must-See Investment Channels Online for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boost-viewers-interaction-via-youtube-cards-for-2024/"><u>[New] Boost Viewers Interaction via YouTube Cards for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-audireview-listening-and-recording-evaluation/"><u>[New] In 2024, Audireview Listening & Recording Evaluation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-enabledisable-comments-a-youtube-instructional/"><u>[New] In 2024, Enable/Disable Comments A YouTube Instructional</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-online-exposure-on-youtube-by-keeping-up-creative-commons-usage/"><u>[New] Maximizing Online Exposure on YouTube by Keeping Up Creative Commons Usage</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-adding-videos-to-written-work-a-budget-friendly-way-for-2024/"><u>[Updated] Adding Videos to Written Work A Budget-Friendly Way for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-the-top-10-budget-friendly-youtube-spaces-for-artistry/"><u>[Updated] Exploring the Top 10 Budget-Friendly YouTube Spaces for Artistry</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-learning-legends-esteemed-ed-streams-online/"><u>[Updated] Learning Legends Esteemed Ed Streams Online</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleash-youtube-potential-with-imaginative-splitscreens/"><u>[Updated] Unleash YouTube Potential with Imaginative Splitscreens</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-vivo-y36-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Vivo Y36 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/effective-strategies-setting-up-instant-mysql-database-backups/"><u>Effective Strategies: Setting Up Instant MySQL Database Backups</u></a></li>
+<li><a href="https://games-able.techidaily.com/from-one-to-many-languages-rom-patch-application/"><u>From One to Many Languages: ROM Patch Application</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-correctly-address-and-repair-end-of-text-unavailable-snafu-on-your-iphone/"><u>How to Correctly Address and Repair 'End of Text Unavailable' Snafu on Your iPhone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-realme-gt-neo-5-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Realme GT Neo 5? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-lava-blaze-pro-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Lava Blaze Pro 5G Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-enhancement-the-top-tactics-for-better-storytelling/"><u>In 2024, Instagram Enhancement The Top Tactics for Better Storytelling</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-xiaomi-13-ultra-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Xiaomi 13 Ultra and Browser | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

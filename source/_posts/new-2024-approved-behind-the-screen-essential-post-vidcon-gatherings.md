@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Behind the Screen  Essential Post-VidCon Gatherings\""
-date: 2024-07-31T02:06:06.220Z
-updated: 2024-08-01T02:06:06.220Z
+date: 2025-02-06T20:43:24.903Z
+updated: 2025-02-09T18:32:49.257Z
 tags:
   - ai video
   - ai youtube
@@ -37,16 +37,18 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -57,6 +59,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -84,10 +90,11 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -121,9 +128,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
@@ -160,9 +164,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -203,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -225,9 +230,6 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -236,12 +238,29 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-best-free-subtitles-and-downloader-guide/"><u>[New] 2024 Approved Best Free Subtitles & Downloader Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-distinctive-video-stream-names-tips-for-filmora-users/"><u>[New] 2024 Approved Crafting Distinctive Video Stream Names Tips for Filmora Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-fast-format-transformation-youtube-for-mac-ratio/"><u>[New] 2024 Approved Fast Format Transformation YouTube for Mac Ratio</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-deep-dive-into-clarity-the-lg-digital-cinema-31mu97-b-review-for-2024/"><u>[New] Deep Dive Into Clarity The LG Digital Cinema 31MU97-B Review for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-your-youtube-click-through-rate-upload-schedule-insights/"><u>[New] Maximizing Your YouTube Click-Through Rate Upload Schedule Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtubes-revenue-revolution-a-practical-guide-for-monetization/"><u>[New] Youtube's Revenue Revolution A Practical Guide for Monetization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-9-youtube-video-extraction-tools-for-android-reviewed/"><u>[Updated] In 2024, 9 YouTube Video Extraction Tools for Android Reviewed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-yt-techniques-for-fading-out-unwanted-backgrounds/"><u>[Updated] Mastering YT Techniques for Fading Out Unwanted Backgrounds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-reverse-youtube-video-in-creative-ways/"><u>In 2024, How to Reverse YouTube Video in Creative Ways</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723002371951-nier-gestaltreplicant-stability-improved-no-more-system-crashes/"><u>NieR: Gestalt/Replicant Stability Improved - No More System Crashes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722997022114-poison-control-centers-can-provide-valuable-guidance-on-the-management-of-various-poisoning-scenarios/"><u>Poison Control Centers Can Provide Valuable Guidance on the Management of Various Poisoning Scenarios</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/premier-dramatic-structuring-zone/"><u>Premier Dramatic Structuring Zone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577749458-sovac-slovaci-language-journey-unfolding-one-quick-lesson-daily/"><u>Sovac Slováci - Language Journey Unfolding, One Quick Lesson Daily</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlocking-your-sub4sub-potential-the-critical-pre-entry-guide-for-2024/"><u>Unlocking Your Sub4sub Potential The Critical Pre-Entry Guide for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/zooms-ideal-cam-selections-top-6-picks/"><u>Zoom's Ideal Cam Selections Top 6 Picks</u></a></li>
+</ul></div>
 

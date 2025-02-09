@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Dynamic Lighting  Elevating Video Aesthetics\""
-date: 2024-07-31T02:00:07.046Z
-updated: 2024-08-01T02:00:07.046Z
+date: 2025-02-07T16:03:24.829Z
+updated: 2025-02-09T17:04:19.130Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8ab6ea565c08148258cccefd3c4e69bde02c4b3db
 
 # Lighting Tips for Vlogging: How to Light
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,12 +28,17 @@ One of the best things you can do for your video quality is to ensure you have g
 
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -51,13 +53,15 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -88,23 +92,16 @@ If your strong main light is too hard on your eyes then you can use a translucen
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -113,12 +110,28 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-academic-avenue-leading-educators-on-youtube/"><u>[New] 2024 Approved Academic Avenue Leading Educators on YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlock-fb-status-videos-downloading-made-easy/"><u>[New] 2024 Approved Unlock FB Status Videos Downloading Made Easy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-craft-stellar-youtube-thumbnails-with-these-8-software-alternatives/"><u>[New] In 2024, Craft Stellar YouTube Thumbnails with These 8 Software Alternatives</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-mastery-over-airwaves-recording-techniques-for-live-sounds/"><u>[New] In 2024, Mastery Over Airwaves Recording Techniques for Live Sounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-insights-on-how-youtube-handles-uploaded-videos/"><u>[New] Insights on How YouTube Handles Uploaded Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ro-free-ending-makers-ranked-1-6/"><u>[New] Pro-FREE Ending Makers - Ranked 1-6</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-television-and-social-media-4-ways-to-broadcast-fb-live/"><u>[New] Television & Social Media 4 Ways To Broadcast FB Live</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-tunes-heres-how-to-download-safely-and-free/"><u>[New] Youtube Tunes? Here's How to Download Safely & Free</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-beginners-ultimate-list-of-must-have-video-tech/"><u>[Updated] In 2024, Beginner's Ultimate List of Must-Have Video Tech</u></a></li>
+<li><a href="https://common-error.techidaily.com/comprehensive-guide-to-correcting-your-screens-no-signal-problem-from-diagnosis-to-fix/"><u>Comprehensive Guide to Correcting Your Screen's 'No Signal' Problem: From Diagnosis to Fix</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-resolving-the-persistent-0x80072efd-error-in-windows-10/"><u>Step-by-Step Guide: Resolving the Persistent 0X80072EFD Error in Windows 10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-affordable-art-of-youtube-introsends-for-2024/"><u>The Affordable Art of YouTube Intros/Ends for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-for-correcting-error-code-103003-on-armored-warfare/"><u>Troubleshooting Steps for Correcting Error Code 103003 on Armored Warfare</u></a></li>
+</ul></div>
 

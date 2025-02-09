@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2025-01-27T21:30:43.527Z
-updated: 2025-01-28T22:33:43.273Z
+date: 2025-02-02T21:34:30.097Z
+updated: 2025-02-09T20:56:56.330Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-explore-8-mirrorless-cameras-that-make-great-video-content/"><u>[New] 2024 Approved Explore 8 Mirrorless Cameras That Make Great Video Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-tweak-quick-twitter-video-preview/"><u>[New] 2024 Approved Tweak Quick Twitter Video Preview</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-beat-to-visuals-an-iphone-guide-for-music-videos/"><u>[New] Beat to Visuals An iPhone Guide for Music Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-beyond-indexation-decoding-the-purpose-of-unlisted-videos/"><u>[Updated] 2024 Approved Beyond Indexation Decoding the Purpose of 'Unlisted' Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-enhanced-entertainment-tv-ready-looping-techniques-for-video-content-for-2024/"><u>[Updated] Enhanced Entertainment Tv-Ready Looping Techniques for Video Content for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-boost-views-top-10-free-tools-for-custom-youtube-thumbnails/"><u>[Updated] In 2024, Boost Views Top 10 Free Tools for Custom YouTube Thumbnails</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-designing-youtube-ads-that-grab-attention-a-compreeher-guide/"><u>[Updated] In 2024, Designing Youtube Ads That Grab Attention A Compreeher Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-minute-video-crafters/"><u>[Updated] Minute Video Crafters</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-principles-of-filming-inspirational-daily-living-documentaries/"><u>[Updated] Principles of Filming Inspirational Daily Living Documentaries</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-step-into-fame-the-essential-blueprint-for-adding-channels-as-features-on-youtube/"><u>[Updated] Step Into Fame The Essential Blueprint for Adding Channels as Features on Youtube</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-potential-with-magix-paint-pro/"><u>2024 Approved Unlocking Potential with MAGIX Paint Pro</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/chatgpt-plus-is-it-a-smart-investment-top-5-benefits-of-registering-now/"><u>ChatGPT Plus: Is It a Smart Investment? Top 5 Benefits of Registering Now!</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/experience-unprecedented-savings-apple-slashes-m2-macbook-air-price-to-799-before-october-sales-bonanza/"><u>Experience Unprecedented Savings: Apple Slashes M2 MacBook Air Price to $799 Before October Sales Bonanza!</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-x100-pro-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo X100 Pro Phone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-honor-magic-6-lite-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Honor Magic 6 Lite To Phone | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/the-perfect-playback-top-strategies-for-gameplay-videos-for-2024/"><u>The Perfect Playback Top Strategies for Gameplay Videos for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlock-igtv-master-video-submission-for-2024/"><u>Unlock IGTV Master Video Submission for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-7-key-tools-to-convert-youtube-videos-easily-for-2024/"><u>[New] 7 Key Tools to Convert YouTube Videos Easily for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-youtube-live-expert-strategies-and-insights/"><u>[New] In 2024, Become a YouTube Live Expert Strategies and Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-migrating-twitch-videos-to-youtube/"><u>[New] In 2024, Expert Tips Migrating Twitch Videos to YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-taming-darkness-for-a-bright-youtube-experience/"><u>[New] Taming Darkness for a Bright YouTube Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-earnings-escalation-via-youtube-channel-initiatives/"><u>[Updated] 2024 Approved Earnings Escalation via YouTube Channel Initiatives</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-instagrams-guide-to-intellectual-property-in-music/"><u>[Updated] 2024 Approved Instagram's Guide to Intellectual Property in Music</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-experts-guide-to-utilizing-morphvox-voice-changers/"><u>[Updated] Expert's Guide to Utilizing MorphVOX Voice Changers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes/"><u>[Updated] The Ultimate Handbook for Optimal YouTube Banners & Art Sizes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-thriving-on-youtube-11-secrets-to-boosting-video-search-rankings/"><u>[Updated] Thriving on YouTube 11 Secrets to Boosting Video Search Rankings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-101-tips-for-a-distraction-free-video-backdrop/"><u>2024 Approved YouTube 101 Tips for a Distraction-Free Video Backdrop</u></a></li>
+<li><a href="https://apple-account.techidaily.com/icloud-separation-how-to-disconnect-iphone-12-pro-max-and-ipad-by-drfone-ios/"><u>iCloud Separation How To Disconnect iPhone 12 Pro Max and iPad</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-realme-10t-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Realme 10T 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-drone-purchase-landmines-what-you-should-consider/"><u>Navigating Drone Purchase Landmines What You Should Consider</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-guide-recover-your-viber-conversations-in-just-5-minutes/"><u>Quick Guide: Recover Your Viber Conversations in Just 5 Minutes</u></a></li>
+<li><a href="https://windows11.techidaily.com/secure-a-blissful-experience-with-no-bluescreens-on-win11/"><u>Secure a Blissful Experience with No Bluescreens on Win11</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-mechanics-behind-chatgpts-shared-access-links/"><u>The Mechanics Behind ChatGPT's Shared Access Links</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unlimited-editing-discover-these-9-free-cloud-tools-for-2024/"><u>Unlimited Editing Discover These 9 Free Cloud Tools for 2024</u></a></li>
 </ul></div>
 

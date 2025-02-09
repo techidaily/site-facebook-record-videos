@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Costs of YouTube Earning for 2024"
-date: 2024-07-31T02:05:29.222Z
-updated: 2024-08-01T02:05:29.222Z
+date: 2025-02-02T21:45:19.909Z
+updated: 2025-02-09T21:33:10.721Z
 tags:
   - ai video
   - ai youtube
@@ -37,8 +37,9 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 7. [Don't Give Up!](#dontquit)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -51,15 +52,17 @@ In order to qualify for YouTube monetization, you must meet these milestones.
  _Trying to get monetization on YouTube can feel like this._
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why YouTube Changed the Monetization Rules
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -68,9 +71,6 @@ However, even if the immediate financial impact won’t be that financially sign
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -88,8 +88,9 @@ Cough. Logan Paul. Cough.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Helpful Blog Posts
 
 [How to Get People to Subscribe by Asking the Right Way](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -98,9 +99,6 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -109,13 +107,15 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -123,4 +123,22 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-comprehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube/"><u>[New] 2024 Approved A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-how-to-sprinkle-new-colors-into-your-past-media-with-instagram/"><u>[New] 2024 Approved How to Sprinkle New Colors Into Your Past Media with Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ace-your-youtube-live-with-these-7-powerful-live-streaming-apps-iosandroid-os-for-2024/"><u>[New] Ace Your YouTube LIVE with These 7 Powerful Live Streaming Apps (iOS/Android OS) for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-ultimate-list-8-key-steps-for-irresistible-unboxing-reels/"><u>[New] In 2024, The Ultimate List 8 Key Steps for Irresistible Unboxing Reels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-comparing-the-costs-and-advantages-of-various-youtube-plans-for-2024/"><u>[Updated] Comparing the Costs and Advantages of Various YouTube Plans for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-spectrum-a-creatives-resource/"><u>[Updated] Exploring the Spectrum A Creative's Resource</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-hunt-for-heated-online-hearings/"><u>[Updated] Hunt for Heated Online Hearings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleashing-creativity-converting-youtube-videos-into-captivating-gifs/"><u>[Updated] Unleashing Creativity Converting YouTube Videos Into Captivating GIFs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-asmrs-health-perks-a-guide/"><u>[Updated] Unlocking ASMR's Health Perks A Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-iphone-12-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from iPhone 12 Safe and Legal</u></a></li>
+<li><a href="https://win-able.techidaily.com/expertly-tested-strategies-ending-vrchat-pc-malfunctions-in-8-steps/"><u>Expertly Tested Strategies: Ending VRChat PC Malfunctions in 8 Steps</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/pclaptop-editors-without-relying-on-inshot/"><u>PC/Laptop Editors without Relying on Inshot</u></a></li>
+<li><a href="https://article-posts.techidaily.com/pioneering-editing-snapseed-for-the-newcomer/"><u>Pioneering Editing Snapseed for the Newcomer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-zte-nubia-flip-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your ZTE Nubia Flip 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 
