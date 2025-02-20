@@ -1,7 +1,7 @@
 ---
 title: PHYSICS AND SUFI COSMOLOGY | Free Book
-date: 2025-02-07T17:34:22.820Z
-updated: 2025-02-09T16:35:55.566Z
+date: 2025-02-17T17:12:01.021Z
+updated: 2025-02-20T00:23:50.545Z
 categories:
   - Body, Mind & Spirit
 thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f20ca7b10346391a51631dd321b4b29a933.jpg
@@ -175,22 +175,28 @@ thumbnail: https://thmb-001-ebook.techidaily.com/5ba03b32977c1e36479891cf31a70f2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-demystifying-the-math-of-youtube-ratio-perfection/"><u>[New] 2024 Approved Demystifying the Math of YouTube Ratio Perfection</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-ultimate-resource-powerdirector-users/"><u>[New] The Ultimate Resource PowerDirector Users</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-becoming-a-master-of-instagrams-video-dialogue-dynamics-for-2024/"><u>[Updated] Becoming a Master of Instagram's Video Dialogue Dynamics for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boost-views-and-engagement-top-rated-online-keyword-generators-for-2024/"><u>[Updated] Boost Views and Engagement Top-Rated Online Keyword Generators for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-effective-youtube-playlist-distribution/"><u>[Updated] Strategies for Effective YouTube Playlist Distribution</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-studio-luminance-ranking-the-best-17-light-devices/"><u>[Updated] Studio Luminance Ranking the Best 17 Light Devices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-photos-files-on-infinix-smart-7-hd-by-fonelab-android-recover-photos/"><u>Complete guide for recovering photos files on Infinix Smart 7 HD.</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-expert-insights-on-yis-4k-action-video-camera/"><u>In 2024, Expert Insights on YI’s 4K Action Video Camera</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Honor X50 | Dr.fone</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/in-2024-what-is-the-best-mp4-cutter-for-youtubers-on-mac/"><u>In 2024, What Is the Best MP4 Cutter for YouTubers On Mac?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/is-chatgpt-response-size-restricted-by-characterswords/"><u>Is ChatGPT Response Size Restricted by Characters/Words?</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/securely-steering-towards-the-one-million-view-mark-on-youtube-for-2024/"><u>Securely Steering Towards the One-Million View Mark on YouTube for 2024</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/windows-11-ready-auto-save-external-hard-drive-with-usb-connectivity/"><u>Windows 11 Ready Auto-Save External Hard Drive with USB Connectivity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-distinctive-digital-monikers-for-video-creators/"><u>[New] 2024 Approved Distinctive Digital Monikers for Video Creators</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-baffled-by-blank-screens-on-a6400/"><u>[New] Baffled by Blank Screens on A6400</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-earnings-analysis-youtube-views-vs-financial-gain/"><u>[New] In 2024, Earnings Analysis YouTube Views vs Financial Gain</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-elevate-viewing-experience-activating-av1-codec-on-youtube/"><u>[New] In 2024, Elevate Viewing Experience Activating AV1 Codec on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-10-must-try-microphones-for-exceptional-asmr-sounds/"><u>[Updated] 2024 Approved 10 Must-Try Microphones for Exceptional ASMR Sounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-crack-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>[Updated] 2024 Approved Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-earnings-escalate-500-subscriber-marker-achieved-for-2024/"><u>[Updated] Earnings Escalate 500-Subscriber Marker Achieved for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-triggering-uninterrupted-youtube-streaming-on-facebook-feed/"><u>[Updated] In 2024, Triggering Uninterrupted YouTube Streaming on Facebook Feed</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-creme-de-la-creativite-youtube-subscriber-list/"><u>[Updated] The Crème De La Créativité YouTube Subscriber List</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-short-mastery-from-idea-to-final-product/"><u>2024 Approved YouTube Short Mastery From Idea to Final Product</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-itel-a05s-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Itel A05s</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-metaverse-beyond-virtual-reality-a-comprehensive-overview/"><u>Exploring the Metaverse: Beyond Virtual Reality - A Comprehensive Overview</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-motorola-moto-g34-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Motorola Moto G34 5G Without PUK Codes</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Lava Yuva 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-preserving-audio-visual-content-itunes-edition/"><u>In 2024, Preserving Audio-Visual Content ITunes Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-streamlined-techniques-for-ios-image-sharing/"><u>In 2024, Streamlined Techniques for iOS Image Sharing</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/masterclass-in-making-engaging-video-lessons-your-step-by-step-guide-for-youtube-for-2024/"><u>Masterclass in Making Engaging Video Lessons Your Step-by-Step Guide for YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pro-level-7-cameras-perfect-for-professional-broadcasting-vloggers-for-2024/"><u>Pro-Level 7 Cameras Perfect for Professional Broadcasting Vloggers for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/xbox-series-x-vs-gaming-pc-how-do-they-compare/"><u>Xbox Series X Vs. Gaming PC: How Do They Compare?</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 

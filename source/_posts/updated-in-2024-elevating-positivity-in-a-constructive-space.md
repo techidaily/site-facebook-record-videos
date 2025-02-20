@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Elevating Positivity in a Constructive Space"
-date: 2025-02-02T21:34:30.097Z
-updated: 2025-02-09T20:56:56.330Z
+date: 2025-02-13T21:46:03.884Z
+updated: 2025-02-19T17:45:07.037Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://www.lifewire.com/thmb/vOtdxq2XZSwA1Qf_IHXR3tZxNcM=/210x138/fi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -77,22 +77,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-7-key-tools-to-convert-youtube-videos-easily-for-2024/"><u>[New] 7 Key Tools to Convert YouTube Videos Easily for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-youtube-live-expert-strategies-and-insights/"><u>[New] In 2024, Become a YouTube Live Expert Strategies and Insights</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-migrating-twitch-videos-to-youtube/"><u>[New] In 2024, Expert Tips Migrating Twitch Videos to YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-taming-darkness-for-a-bright-youtube-experience/"><u>[New] Taming Darkness for a Bright YouTube Experience</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-earnings-escalation-via-youtube-channel-initiatives/"><u>[Updated] 2024 Approved Earnings Escalation via YouTube Channel Initiatives</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-instagrams-guide-to-intellectual-property-in-music/"><u>[Updated] 2024 Approved Instagram's Guide to Intellectual Property in Music</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-experts-guide-to-utilizing-morphvox-voice-changers/"><u>[Updated] Expert's Guide to Utilizing MorphVOX Voice Changers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes/"><u>[Updated] The Ultimate Handbook for Optimal YouTube Banners & Art Sizes</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thriving-on-youtube-11-secrets-to-boosting-video-search-rankings/"><u>[Updated] Thriving on YouTube 11 Secrets to Boosting Video Search Rankings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-101-tips-for-a-distraction-free-video-backdrop/"><u>2024 Approved YouTube 101 Tips for a Distraction-Free Video Backdrop</u></a></li>
-<li><a href="https://apple-account.techidaily.com/icloud-separation-how-to-disconnect-iphone-12-pro-max-and-ipad-by-drfone-ios/"><u>iCloud Separation How To Disconnect iPhone 12 Pro Max and iPad</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/lock-your-realme-10t-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Realme 10T 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/navigating-drone-purchase-landmines-what-you-should-consider/"><u>Navigating Drone Purchase Landmines What You Should Consider</u></a></li>
-<li><a href="https://os-tips.techidaily.com/quick-guide-recover-your-viber-conversations-in-just-5-minutes/"><u>Quick Guide: Recover Your Viber Conversations in Just 5 Minutes</u></a></li>
-<li><a href="https://windows11.techidaily.com/secure-a-blissful-experience-with-no-bluescreens-on-win11/"><u>Secure a Blissful Experience with No Bluescreens on Win11</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-mechanics-behind-chatgpts-shared-access-links/"><u>The Mechanics Behind ChatGPT's Shared Access Links</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unlimited-editing-discover-these-9-free-cloud-tools-for-2024/"><u>Unlimited Editing Discover These 9 Free Cloud Tools for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-evasion-techniques-for-youtube-bans/"><u>[New] In 2024, Evasion Techniques for YouTube Bans</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-behind-the-glamour-10-honest-insights-into-reels/"><u>[Updated] 2024 Approved Behind the Glamour 10 Honest Insights Into Reels</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-channel-saving-techniques-youtube-meets-igtv/"><u>[Updated] In 2024, Channel-Saving Techniques YouTube Meets IGTV</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mirrorless-vs-dslr-cameras-which-is-better-for-videos/"><u>[Updated] Mirrorless Vs. DSLR Cameras Which Is Better for Videos?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-stop-unsolicited-youtube-suggestion-rollouts/"><u>[Updated] Stop Unsolicited YouTube Suggestion Rollouts</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/2024-approved-best-4-morgan-freeman-voice-generator-tools-for-voice-cloning/"><u>2024 Approved Best 4 Morgan Freeman Voice Generator Tools for Voice Cloning</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-crafting-conceptions-unveiling-the-worlds-best-schools-for-stories-top-8/"><u>2024 Approved Crafting Conceptions Unveiling the World's Best Schools for Stories (Top 8)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-screenflow-showdown-the-top-video-editing-software-for-macos-users/"><u>2024 Approved ScreenFlow Showdown The Top Video Editing Software for macOS Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mitigating-high-bitrate-in-obs-outputs/"><u>In 2024, Mitigating High-Bitrate in OBS Outputs</u></a></li>
+<li><a href="https://win-answers.techidaily.com/master-guide-eliminating-game-interruptions-in-fifa-21-for-pc-users/"><u>Master Guide: Eliminating Game Interruptions in FIFA 21 for PC Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/quick-fixes-for-xbox-gold-membership-cost-surge/"><u>Quick Fixes for Xbox Gold Membership Cost Surge</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/steam-game-startup-problems-resolved-a-comprehensive-guide-for-windows-10-users/"><u>Steam Game Startup Problems Resolved: A Comprehensive Guide for Windows 10 Users</u></a></li>
 </ul></div>
 

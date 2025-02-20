@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Self-Sustained YouTube Mogul’s Handbook  No Ads, Only Gains\""
-date: 2024-07-31T01:56:05.130Z
-updated: 2024-08-01T01:56:05.130Z
+date: 2025-02-17T17:25:48.515Z
+updated: 2025-02-19T22:27:08.291Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ More and more people are making a living by creating videos on YouTube. Accordin
 
 Over thousands of hours of content are uploaded on YouTube every day and people are going crazy to earn money with video monetization. There should be a minimum time gap between your video shoot, editing, and uploading it to your channel. Wondershare Filmora Video Editor can help you get your videos edited faster. Not only the interface is simple and intuitive, it has both the basic and professional editing tools such as cutting, trimming, crop&zoom, a large collection of video effects and royalty-free music, and you can also upload the video directly on YouTube after editing. All of these make Filmora stand out in the queue and become a favorite tool to edit YouTube videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **What is the YouTube Partner Program (YPP)?**
 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
@@ -54,9 +58,6 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -91,6 +92,10 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
 
 #### **Services:**
@@ -105,6 +110,10 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -117,9 +126,6 @@ Here is how you should go about selling your product or service on YouTube:
 
 If you are selling a meditation eBook and guided meditation services, type in some possible keywords in the YouTube search bar. What appears will be some popular searches:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
@@ -136,16 +142,14 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 **Link in the description box:**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The YouTube Card:**
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
 
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
@@ -154,9 +158,6 @@ You can add one or multiple cards to direct viewers to your website or to anothe
 
  **Call to action button:**
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
@@ -171,9 +172,6 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
 
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **2\. Affiliate Marketing:**
 
 Businesses know that there are more eyes watching YouTube than ever — behind Google, YouTube is the second most popular place for people researching what to buy — and influencers and reviews are an effective method of getting sales. You can leverage that by participating in affiliate marketing as a YouTuber.
@@ -184,9 +182,6 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
@@ -228,8 +223,9 @@ Here is the list of 4 popular affiliate marketing networks:
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -266,9 +262,14 @@ Steps to getting a brand deal:
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **4\. Crowdfunding:**
 
@@ -315,9 +316,6 @@ There are many ways to make money off of YouTube, I encourage you to try a few o
 
 Got questions about making money on YouTube? Leave a comment below. We love to help you get paid for the videos you create.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -326,12 +324,33 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-10-visionary-beauticians-poised-success-for-2024/"><u>[New] 10 Visionary Beauticians Poised Success for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-charting-your-path-to-success-in-youtubes-earnings-system/"><u>[New] In 2024, Charting Your Path to Success in YouTube's Earnings System</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-comedic-counterpoints-funny-song-flips/"><u>[New] In 2024, Comedic Counterpoints Funny Song Flips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-latest-techniques-for-ios-iphoneipad-screen-capture-2023-update-for-2024/"><u>[New] Latest Techniques for iOS (iPhone/iPad) Screen Capture - 2023 Update for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-accelerate-your-youtube-journey-achieve-the-essential-10k-vistas/"><u>[Updated] 2024 Approved Accelerate Your YouTube Journey - Achieve the Essential 10K Vistas</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-free-youtube-video-editing-apps-for-iphone-and-ipad-for-2024/"><u>[Updated] Best Free YouTube Video Editing Apps for iPhone & iPad for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-explore-the-possibilities-with-dual-screen-watching-on-netflix/"><u>[Updated] Explore the Possibilities with Dual-Screen Watching on Netflix</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-how-to-outsmart-youtube-sanctions/"><u>[Updated] How to Outsmart Youtube Sanctions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-revolutionize-zoom-videos-with-key-conversion-methods-for-2024/"><u>[Updated] Revolutionize Zoom Videos with Key Conversion Methods for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-essential-steps-for-transitioning-videos-from-youtube-to-dailymotion/"><u>[Updated] The Essential Steps for Transitioning Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-instructions-installing-new-battery-into-an-older-ipad-model/"><u>Expert Instructions: Installing New Battery Into an Older iPad Model</u></a></li>
+<li><a href="https://win-hot.techidaily.com/guide-to-fixing-unexpected-unknown-errors-in-communication-platforms/"><u>Guide to Fixing Unexpected Unknown Errors in Communication Platforms</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-nintendo-switchs-ultimate-hd-gameplay/"><u>In 2024, Nintendo Switch's Ultimate HD Gameplay</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-color-correction-techniques-for-2024/"><u>Mastering Color Correction Techniques for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/next-gen-webcams-top-5-featuring-premium-audio-capabilities-for-2024/"><u>Next-Gen Webcams Top 5 Featuring Premium Audio Capabilities for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimal-audio-options-for-online-speakers-for-2024/"><u>Optimal Audio Options for Online Speakers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/three-trustworthy-ways-to-extract-audio-from-youtube-videos-for-2024/"><u>Three Trustworthy Ways to Extract Audio From YouTube Videos for 2024</u></a></li>
+<li><a href="https://media-tips.techidaily.com/top-5-advantages-of-apple-tvplus-over-netflix-a-comparative-analysis/"><u>Top 5 Advantages of Apple TV+ Over Netflix: A Comparative Analysis</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-excessive-cpu-consumption-by-iastordatasvc-on-your-windows-10-machine-fixed/"><u>Troubleshooting Excessive CPU Consumption by IAStorDataSvc on Your Windows 10 Machine [Fixed]</u></a></li>
+</ul></div>
 

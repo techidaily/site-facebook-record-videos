@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2025-02-03T20:42:37.872Z
-updated: 2025-02-09T16:26:16.852Z
+date: 2025-02-13T20:18:17.130Z
+updated: 2025-02-19T22:10:07.464Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/b2d913b57df62249e08cf6aa2213e0e218bf0ce45
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -73,7 +73,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -86,7 +86,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,7 +125,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -143,16 +143,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-exclusive-discovery-gpodcs-best-series/"><u>[New] Exclusive Discovery GPodC's Best Series</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-exploring-the-depths-of-asmr-content/"><u>[New] In 2024, Exploring the Depths of ASMR Content</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-a-beginners-pathway-to-effective-video-tag-usage-for-2024/"><u>[Updated] A Beginner's Pathway to Effective Video Tag Usage for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-decoding-revenue-how-much-do-creators-earn-on-youtube-in-2024/"><u>[Updated] Decoding Revenue How Much Do Creators Earn on Youtube, In 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-audio-amplification-for-impressive-instagram-reels/"><u>[Updated] In 2024, Audio Amplification for Impressive Instagram Reels</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ranking-8-proven-online-promotion-techniques-for-videos/"><u>[Updated] Ranking 8 Proven Online Promotion Techniques for Videos</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-thorough-breakdown-the-dji-inspire-1-features/"><u>[Updated] Thorough Breakdown The DJI Inspire 1 Features</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/advancing-autonomous-vehicles-with-innovative-ml-research-insights-from-zdnet/"><u>Advancing Autonomous Vehicles with Innovative ML Research - Insights From ZDNet</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ras-recipe-for-captivating-youtube-trailers-for-2024/"><u>Filmora’s Recipe for Captivating YouTube Trailers for 2024</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/step-by-step-guide-how-to-successfully-reinstall-your-graphics-drivers-techsolutions/"><u>Step-by-Step Guide: How to Successfully Reinstall Your Graphics Drivers - TechSolutions</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/top-10-video-transcoding-tools-secure-and-swift-solutions-for-windows-1110-users/"><u>Top 10 Video Transcoding Tools: Secure and Swift Solutions for Windows 11/10 Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-how-to-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>[New] 2024 Approved How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfecting-video-productions-by-adding-youtube-music/"><u>[New] Perfecting Video Productions by Adding YouTube Music</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cross-social-video-broadcasting-from-twitter-to-snapchat-for-2024/"><u>[Updated] Cross-Social Video Broadcasting From Twitter, To Snapchat for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discover-top-15-youtube-sources-for-sci-education-for-2024/"><u>[Updated] Discover Top 15 YouTube Sources for Sci-Education for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-captivate-audiences-with-this-essential-guide-to-making-youtube-shorts/"><u>[Updated] In 2024, Captivate Audiences with This Essential Guide to Making YouTube Shorts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[Updated] In 2024, Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-the-art-of-text-sculpting-for-an-astonishing-photos-effect/"><u>[Updated] Master the Art of Text Sculpting for an Astonishing PHOTOS Effect</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-f23-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Oppo F23 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/how-to-make-a-thumbnail-for-your-youtube-free-easily-in-2024/"><u>How to Make a Thumbnail for Your YouTube Free Easily, In 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-box-customization-havens-on-the-internet/"><u>In 2024, Best Box-Customization Havens on the Internet</u></a></li>
+<li><a href="https://win11.techidaily.com/skirting-stuck-troubleshooters-in-windows-updates/"><u>Skirting Stuck Troubleshooters in Windows Updates</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/visual-storytellers-complete-vsco-tutorial/"><u>Visual Storyteller's Complete VSCO Tutorial</u></a></li>
 </ul></div>
 

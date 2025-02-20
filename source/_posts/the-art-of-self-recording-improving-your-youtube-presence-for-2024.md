@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Self-Recording  Improving Your YouTube Presence for 2024\""
-date: 2024-07-31T01:52:03.265Z
-updated: 2024-08-01T01:52:03.265Z
+date: 2025-02-17T20:39:46.959Z
+updated: 2025-02-19T20:50:54.339Z
 tags:
   - ai video
   - ai youtube
@@ -32,18 +32,24 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -73,9 +79,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -83,6 +86,10 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -100,21 +107,16 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -123,12 +125,31 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-vr-shopping-experience-optimization/"><u>[New] 2024 Approved VR Shopping Experience Optimization</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-dive-deep-into-dynamic-dialogue-dives-for-2024/"><u>[New] Dive Deep Into Dynamic Dialogue Dives for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-secure-survival-housing-in-minecraft/"><u>[New] Secure Survival Housing in Minecraft</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-skype-audio-archive-mp3-techniques-free-edition/"><u>[New] Skype Audio Archive MP3 Techniques, Free Edition</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-complete-hp-laptop-screen-recording-manual/"><u>[New] The Complete HP Laptop Screen Recording Manual</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-camera-excellence-the-top-10-4k-ready-shoulder-rigs/"><u>[Updated] 2024 Approved Camera Excellence The Top 10 4K-Ready Shoulder Rigs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dialing-in-the-perfect-aspect-ratio-for-youtube-images-for-2024/"><u>[Updated] Dialing in the Perfect Aspect Ratio for YouTube Images for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>[Updated] Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-tutorial-for-successful-youtube-video-submissions/"><u>[Updated] Step-By-Step Tutorial for Successful YouTube Video Submissions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategic-use-of-creative-commons-copyright-law/"><u>[Updated] Strategic Use of Creative Commons Copyright Law</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/enhance-digital-marketing-with-cookiebot-technology-integration/"><u>Enhance Digital Marketing with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-new-frontier-of-wellness-with-amazons-cutting-edge-halo-fitness-device/"><u>Exploring the New Frontier of Wellness with Amazon's Cutting-Edge Halo Fitness Device</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/initiate-impactful-engagement-configuring-and-assessing-instream-ads-in-fb-for-2024/"><u>Initiate Impactful Engagement Configuring and Assessing Instream Ads in FB for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/investing-5-yields-hundreds-of-new-viewers-now-in-2024/"><u>Investing $5 Yields Hundreds of New Viewers Now, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tailored-techniques-to-cut-off-unwanted-youtube-content-on-devices-for-2024/"><u>Tailored Techniques to Cut Off Unwanted YouTube Content on Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-marketing-to-reach-more-users/"><u>Timing Your Marketing to Reach More Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/ultimate-sound-editing-solutions-for-online-bloggers-for-2024/"><u>Ultimate Sound Editing Solutions for Online Bloggers for 2024</u></a></li>
+</ul></div>
 
